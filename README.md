@@ -31,5 +31,10 @@ Terceira VSL de disfunção erétil (mercado EUA). Repositório de trabalho: ide
 | Alpha Erec | expert sozinho, régua e ressonância | transcrição EN + PT |
 | HoneyFil Male | mel, Elon Musk + Dr. Carter, 52 min | transcrição EN + PT, docx com prints, 281 frames, dissecação Atlas |
 | Red Horse | lead de atriz na cozinha (0:00–5:13) | lead transcrita (MD/docx), JSON completo, 26 frames |
+| Horse Fill / Horse Boost | gringa (preju no front) / aumento | transcrições PT (fora da análise, ver `01_Ideias/02`) |
+| Horse Trick (produtor pornô) | Endopower Pro, Terry Williams, Spin Thrift Farm, cGMP | transcrição PT (docx + txt) |
+| Horse Jelly atual | JellyRock, Brecka + Mel Gibson, PFAS, 24 blocos, 69 min | docx EN + PT com 441 prints, txt |
+| SH4 (diabetes) | Mark Cuban, Daily Show → Shark Tank, CCD, insulina havaiana | doc de estratégia + copy PT (docx + txt) |
+| Vicks VapoRub | Sydney Sweeney → podcast Rogan x Dr. Phil, veteranos, MAHA | copy PT (docx + txt) |
 
 As nossas duas VSLs ficam em `00_base/vsl1_bull_soda_rise/` (análises, briefing, tese de controle, copy EN) e `00_base/vsl2_ironpulsex/` (copy EN completa, pontos da HoneyFil aplicados, mapa de redundâncias).

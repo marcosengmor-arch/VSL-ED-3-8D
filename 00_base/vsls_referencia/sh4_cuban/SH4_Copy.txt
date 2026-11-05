@@ -1,0 +1,1609 @@
+Decida isso primeiro, todo o resto depende daqui.
+
+1. A Hierarquia da Pergunta Paradoxal (O Quebra-Crença)
+
++--------------------------------------+-------------------------------------------------------------------------------------------------------------------------------------+
+| Elemento Estratégico                 | Detalhes e Argumentos                                                                                                               |
++======================================+=====================================================================================================================================+
+| Objetivo                             | Criar uma lacuna lógica que prova que a "culpa não é sua", que as crenças atuais são falsas e preparar o terreno para a Causa Raiz. |
++--------------------------------------+-------------------------------------------------------------------------------------------------------------------------------------+
+| O Grupo de Exceção                   | Quem: Habitantes das "Blue Zones" do Havaí e do Japão.                                                                              |
+|                                      |                                                                                                                                     |
+|                                      | A Prova: Maior longevidade do mundo (+100 anos) e menor taxa de diabetes (<0,7%).                                                   |
++--------------------------------------+-------------------------------------------------------------------------------------------------------------------------------------+
+| O Hábito "Proibido" (A Contradição)  | 1. Dieta: Consomem carboidratos diariamente (arroz, massas, frutas doces, peixes gordurosos).                                       |
+|                                      |                                                                                                                                     |
+|                                      | 2. Peso: No Havaí, 8 a cada 10 pessoas têm sobrepeso ou obesidade (fama de "gordinhos"), mas não adoecem.                           |
++--------------------------------------+-------------------------------------------------------------------------------------------------------------------------------------+
+| A Lacuna Lógica (Objeções Refutadas) | Carboidratos/Açúcar: Falso (eles comem todo dia).                                                                                   |
+|                                      |                                                                                                                                     |
+|                                      | Hábitos Ruins/Peso: Falso (maioria tem sobrepeso, mas são saudáveis).                                                               |
+|                                      |                                                                                                                                     |
+|                                      | Idade: Falso (vivem +100 anos sem a doença).                                                                                        |
+|                                      |                                                                                                                                     |
+|                                      | Genética: Falso (92% da população havaiana são imigrantes e apenas 8% nativos).                                                     |
++--------------------------------------+-------------------------------------------------------------------------------------------------------------------------------------+
+| A Conclusão Inevitável               | Se um americano muda para o Havaí, fica protegido. Se fica nos EUA, corre risco de morte (300 mil/ano).                             |
+|                                      |                                                                                                                                     |
+|                                      | Logo, o problema é AMBIENTAL.                                                                                                       |
++--------------------------------------+-------------------------------------------------------------------------------------------------------------------------------------+
+
+2. A Hierarquia do Problema (Diabetes Tipo 2)
+
+Causa Raiz/Grande Problema:
+
++-------------------------------+------------------------------------------------------------------------------------------------------+
+| Componente                    | Definição e Função                                                                                   |
++===============================+======================================================================================================+
+| Causa Raiz (Agente Interno)   | Vilão: Bactéria intestinal que migrou para o fígado.                                                 |
+|                               |                                                                                                      |
+|                               | Nome Científico: Enterobacter Prevotella.                                                            |
+|                               |                                                                                                      |
+|                               | Nome Chiclete: "The Sugar Leech" (A Sanguessuga de Açúcar).                                          |
++-------------------------------+------------------------------------------------------------------------------------------------------+
+| Origem Externa (Como entrou?) | Origem Principal: Adoçantes Artificiais (Sucralose, Aspartame) e produtos "Zero Açúcar".             |
+|                               |                                                                                                      |
+|                               | Mecanismo: Agem como "super-fertilizante" para a bactéria criar biofilmes.                           |
+|                               |                                                                                                      |
+|                               | Origens Secundárias: Alimentação moderna, ultraprocessados, pesticidas, PFAS, vacina COVID-19.       |
++-------------------------------+------------------------------------------------------------------------------------------------------+
+| Local de Ação                 | Onde: No Fígado (o "Cérebro" do açúcar), especificamente nos receptores hormonais (não no Pâncreas). |
++-------------------------------+------------------------------------------------------------------------------------------------------+
+| O Esconderijo (Proteção)      | 1. "The Toxic Glaze": Esmalte tóxico (biofilme) para proteção contra o sistema imune.                |
+|                               |                                                                                                      |
+|                               | 2. Escudo de Gordura: Atrai moléculas de gordura para cobrir o biofilme e impedir detecção.          |
++-------------------------------+------------------------------------------------------------------------------------------------------+
+| Falha Sistêmica               | Bloqueio físico do receptor GLP-1 levando à superprodução de Glucagon.                               |
+|                               |                                                                                                      |
+|                               | O fígado entra em "pânico" sem o sinal do GLP-1 e libera açúcar descontroladamente.                  |
++-------------------------------+------------------------------------------------------------------------------------------------------+
+
+3. A Hierarquia do Problema (Diabetes Tipo 2)
+
+Explicação dos sintomas:
+
+  -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+  Sintoma                       Explicação Biológica (Baseada na Nova Tese)
+  ----------------------------- -----------------------------------------------------------------------------------------------------------------------------------------------------------
+  Açúcar Alto                   O fígado, enganado pelo bloqueio do GLP-1, despeja açúcar no sangue 24h/dia (excesso de Glucagon), achando que o corpo está sem energia.
+
+  Falta de Insulina             Reenquadramento: Não há falta real. O pâncreas está intacto. A insulina é inútil porque a Placa Hepática impede que ela abra as portas das células.
+
+  Resistência à Insulina        É um bloqueio físico. A Placa Hepática cria uma barreira viscosa sobre os receptores, impedindo a conexão da insulina.
+
+  Ganho de Peso                 O fígado em "modo de pânico" (sem sinal de GLP-1) retém toda energia e gordura para sobrevivência, travando a queima calórica.
+
+  Sede / Vontade de Doces       Como o açúcar está preso no sangue (pelo Glucagon) e não entra nas células (pela Placa), o cérebro acha que está morrendo de fome e exige energia rápida.
+
+  Formigamento                  O sangue "doce" e espesso (excesso de Glucagon) tem má circulação e falha em nutrir as extremidades nervosas.
+
+  Visão Turva                   O excesso de glicose bombeado pelo fígado incha o cristalino do olho.
+
+  Dificuldade de Cicatrização   Circulação periférica bloqueada pela viscosidade do sangue gerada pela infecção hepática.
+
+  Fadiga Constante              As células não recebem combustível (insulina bloqueada pela Placa); toda energia fica presa no sangue.
+
+  Urinar com Frequência         O corpo tenta desesperadamente expulsar o excesso de açúcar tóxico bombeado pelo Glucagon através da urina.
+  -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+4. Personagens e Formatos da VSL:
+
+  -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+  Papel                              Personagem / Detalhes         Função Narrativa
+  ---------------------------------- ----------------------------- --------------------------------------------------------------------------------------------------------------------------------------------
+  Estrutura / Formato                Documentário Estilo Netflix   Dar tom de "Denúncia", "Investigação" e alta qualidade de produção.
+
+  Principal (Apresentador)           Barack Obama                  Traz o "Segredo Biológico" (Genética/Dieta Havaiana) e autoridade de acesso a cientistas de elite (Hopkins). Conexão com a origem (Havaí).
+
+  Secundários Diretos                Médicos / Cientistas          Validam a tese científica e explicam a parte técnica de forma simples.
+
+  Secundário Indireto (Investidor)   Mark Cuban                    Traz o Dinheiro e a Infraestrutura. Representa a força capaz de criar o produto barato/acessível e enfrentar a "Big Pharma".
+  -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+5. A Hierarquia da Solução
+
++-----------------------------------------------------------+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------+
+| Componente                                                | Detalhes e Função                                                                                                                                                                                                                    |
++===========================================================+======================================================================================================================================================================================================================================+
+| Superestrutura                                            | Descrição: "Segredo Havaiano"                                                                                                                                                                                                        |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Nomes Chiclete:                                                                                                                                                                                                                      |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Lead 01:                                                                                                                                                                                                                             |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | -   “Truque do Abacaxi Havaiano.”                                                                                                                                                                                                    |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | -   “Ritual Havaiano de 15 segundos.”                                                                                                                                                                                                |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Lead 02:                                                                                                                                                                                                                             |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | -   “Truque da pina colada.”                                                                                                                                                                                                         |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | -   “Insulina Havaiana.”                                                                                                                                                                                                             |
++-----------------------------------------------------------+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------+
+| Mecanismo Único                                           | Ingredientes Caseiros/Minerais:                                                                                                                                                                                                      |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | -   Abacaxi Havaiano                                                                                                                                                                                                                 |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           |     -   Berberina Basáltica (10x mais eficiente que a berberina)                                                                                                                                                                     |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Função:                                                                                                                                                                                                                              |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Os havaianos, por comerem muito, acabam alimentando a bactéria.                                                                                                                                                                      |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Ela tenta atacar o fígado.                                                                                                                                                                                                           |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Mas o Abacaxi (com Berberina Basáltica) é a arma. A Berberina Basáltica é um antibiótico natural específico para biofilmes,10x mais eficiente que a berberina comum, graças ao solo vulcânico que enriquece os minerais.             |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Toda vez que a bactéria tenta criar a "Placa Hepática" no fígado do havaiano, a Berberina a dissolve imediatamente.                                                                                                                  |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Resultado: O havaiano tem o "corpo cheio" (gordo), mas o fígado limpo. A bactéria tenta se instalar, mas é morta diariamente pelo abacaxi.                                                                                           |
++-----------------------------------------------------------+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------+
+| Mecanismo Único 2.0 (O "Faxineiro")                       | Ingredientes Caseiros/Minerais:                                                                                                                                                                                                      |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | -   Sea Moss Roxo (Musgo-Marinho Laranja)                                                                                                                                                                                            |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           |     -   Fucoxantina                                                                                                                                                                                                                  |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           |     -   Cromo picolinato                                                                                                                                                                                                             |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Composto Ativo: Fucoxantina e Cromo picolinato                                                                                                                                                                                       |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Função:                                                                                                                                                                                                                              |
++-----------------------------------------------------------+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------+
+| Ação Biológica Final (O "Religamento")                    | Com o "Esmalte Tóxico" removido e a sujeira varrida:                                                                                                                                                                                 |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | 1. O receptor GLP-1 é desbloqueado e volta a receber sinais.                                                                                                                                                                         |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | 2. O Fígado percebe que não há emergência e para a produção de Glucagon.                                                                                                                                                             |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | 3. O açúcar no sangue despenca naturalmente.                                                                                                                                                                                         |
++-----------------------------------------------------------+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------+
+| O "Gargalo" de Produção (Justificativa de Preço/Escassez) | Problema: Comer o abacaxi inteiro traria excesso de frutose (açúcar), alimentando a diabetes antes de curá-la. O Sea Moss comum do atlântico é cheio de metais pesados.                                                              |
+|                                                           |                                                                                                                                                                                                                                      |
+|                                                           | Solução (Mark Cuban): Financiou uma tecnologia de "Nano-Extração a Frio" em um laboratório independente. Isso isola a enzima sem o açúcar e purifica a alga, criando uma gota sublingual onde 1 dose equivale a 5kg da dieta nativa. |
++-----------------------------------------------------------+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------+
+
+1. O Gargalo Logístico/Financeiro (O "Impossível de Conseguir")
+
+-   Definição: O ingrediente funciona, mas é excessivamente caro ou geograficamente inacessível para uma pessoa comum.
+
+-   Padrão na VSL: "O especialista queria compartilhar a receita, mas os ingredientes puros são raros, caros ou impossíveis de misturar na proporção exata".
+
+-   Exemplos Reais:
+
+    -   Glucosense: "Custo de $5.000 por paciente" para importar as ervas.
+
+    -   Glucodelite: O ingrediente cresce apenas em florestas densas da Escandinávia.
+
+    -   Glucodelete: "Óleo de Cobra... seria inviável exportar"
+
+2. O Gargalo Biológico/Científico (O "Não Funciona Assim")
+
+-   Definição: Comer o ingrediente bruto não funciona porque o corpo não absorve, o ácido estomacal destrói o composto, ou seria necessário comer uma quantidade absurda (ex: 10kg de frutas) para ter efeito. Isso justifica a tecnologia de extração/encapsulamento.
+
+-   Padrão na VSL: Explica por que o formato (gotas/cápsulas) é superior à comida real.
+
+-   Exemplos Reais:
+
+    -   Revitalizado (Cacto): A melatina é sensível ao ácido do estômago e exigiria consumir 150ml por dia (imprático).
+
+    -   Glucosense (Guava): "O potássio se quebra muito rápido para permanecer em uma forma que seu corpo possa absorver"
+
+    -   Glucodelete: A fórmula em gotas foi "100x mais eficaz que o pó".
+
+3. O Gargalo Sensorial (O "Impossível de Engolir")
+
+-   Definição: O ingrediente é eficaz, mas o gosto é terrível ou a textura é insuportável, impedindo o uso contínuo.
+
+-   Exemplos Reais:
+
+    -   Glucodelite: "Todos os pacientes... reclamaram sobre o gosto da semente. Era verdadeiramente muito doce"¹¹.
+
+    -   Gluco Freedom: O gosto amargo das ervas fez os pacientes relutarem¹².
+
+Resumo da Estrutura:
+
+1.  Descoberta (Mecanismo 1.0): O herói descobre o ingrediente bruto (ex: Abacaxi/Alga).
+
+    a.  Abacaxi → No havaí
+
+2.  O Teste Falho (Gargalo): Ele tenta dar o ingrediente bruto para o parente, mas falha ou é difícil demais (Gosto ruim, muito caro, não absorve).
+
+3.  A Solução Tecnológica (Mecanismo 2.0): O parceiro (Laboratório/Mark Cuban) financia uma tecnologia (Nano-extração, Crio-extração) que resolve o gargalo.
+
+4.  O Produto: Nasce o suplemento (Gotas/Cápsulas).
+
+No Japão praticamente toda comida acompanha ou é a base do sea-moss roxo
+
+E no Havaí toda comida acompanha ou é a base do Abacaxi.
+
+Graças ao solo vulcânico desses dois lugares → Essas duas especiarias são Rico em minerais.
+
+No Havaí o abacaxi tem a Berberina Basáltica (10x mais eficiente que a berberina comum)
+
+→ Ex: A berberina é como se fosse uma insulina vegetal, a berberina basáltica é 10x mais eficiente, ela não só age regulando o açúcar, como ela age fortalecendo os receptores, do GLP-1 fazendo com que eles dissolvam as placas do fígado.
+
+No Japão o Sea Moss roxo Fucoxantina e o Cromo picolinato, minerais raros.
+
+→ A fucoxantina e o cromo precisa resolver algum problema que justifique que eles são magros.
+
+→ Ex: eles agem no intestino, não deixam que a ploriferação aconteça, atacando na raiz o problema.
+
+Para isso, criei o conceito de "Blindagem em Dois Níveis":
+
+1.  Nível Intestinal (Japão): Impede a entrada do inimigo (mantém magro).
+
+2.  Nível Hepático (Havaí): Neutraliza o inimigo se ele entrar (permite ser gordinho, mas saudável).
+
+Explica o Paradoxo:
+
+-   Japão: Eles comem muito Sea Moss, então têm muito GLP-1 (por isso são magros). O intestino deles nunca deixa a placa se formar.
+
+-   Havaí: Eles já têm a placa (são gordinhos), mas comem Abacaxi todo dia, que dissolve a placa e persim,mite que o pouco GLP-1 que eles têm funcione.
+
+-   Você (Americano): Tem a placa e não tem GLP-1. Você precisa dos dois.
+
+LD01
+
+Referencia → https://www.youtube.com/watch?v=ayhRmnFlSkE
+
+Conjunto 01
+
+Vídeo 01 → FIFA Gives Trump a Gold Pacifier & Looming War on Venezuela Gives Jon Iraq Déjà Vu | The Daily Show
+
+Jon Stewart (Vídeo 01 de frente apresentando)
+
+Bem-vindos ao “The Daily Show”. Hoje, quero falar somente com quem tem diabetes tipo 2 ou pré-diabetes, então se você ou alguém que você ama, não sofre com níveis alto de açúcar no sangue, pode cair fora. Agora em 2026, milhares de americanos, estou falando de mais de 70.000 pessoas comuns, estão conseguindo o que a medicina moderna dizia ser impossível. Reverter a diabetes tipo 2 em tempo recorde, sem medicamentos como Metformina ou Ozempic e sem passar fome com dietas restritivas.
+
+Na verdade, eles estão usando um método natural e caseiro, validado por cientistas das universidades mais respeitadas do mundo, que ganhou o apelido na internet de “a pinã colada anti-diabetes”. Isso porque, essa bebida anti-diabetes é feita a base de abacaxi, mel e outros ingredientes que todo americano tem na geladeira. Apesar de ser estranho, essa bebida doce é utilizada há séculos em regiões remotas do Havaí, Japão e Grécia, lugares aonde a diabetes praticamente não existe. Mas que se tornou viral nesse ano, após milhares de americanos relataram resultados incríveis usando esse ritual havaiano. São homens e mulheres de todas as idades que conviviam com o açúcar no sangue acima de 300, mas que em apenas alguns dias usando esse ritual, seus níveis de açúcar não passam de 90 pontos, e seus níveis de A1C travados abaixo de 5%.
+
+Parece loucura? Eu também achava isso, até ver com meus próprios olhos.
+
+E hoje, meu convidado, é o grande nome que está por trás do grupo de ação, a CCD, responsável por essa descoberta, que está fazendo médicos em todo o mundo repensarem tudo o que achavam que sabiam sobre essa doença. Por favor, recebam o homem mais odiado pela big pharma, Mark Cuban…
+
+00:09 - 00:20 → Mark Cuban - AI Industrialization & Drug Transparency with Cost Plus Drugs | The Daily Show
+
+Colocar a entrada do Mark Cuban com palmas e uma música parecida, e no 00:20 cortar para ele falando.
+
+Conjunto 02
+
+Vídeo 02 → Mark Cuban - AI Industrialization & Drug Transparency with Cost Plus Drugs | The Daily Show
+
+Mark Cuban (Vídeo 02 de frente falando)
+
+Obrigado, Jon, por dar voz a minha causa. E tudo que você falou está absolutamente correto, mas agora nos dois somos os homens mais odiados pela big pharma, porque ao colocar isso no ar, acabamos de desenhar um alvo gigante em nossas costas. Isso porque nos próximos 5 minutos, eu vou expor todos os ladrões, golpistas e mentirosos que estão roubando o dinheiro da carteira de todos os diabéticos nos Estados Unidos. Forçando você que está nos assistindo a gastar uma fortuna no mais recente tratamento para diabetes ou na pílula milagrosa que não funciona a longo prazo. Mas isso acaba agora…
+
+Muitos americanos já ouviram falar de lugares como Japão, Grécia ou Itália, onde as pessoas vivem até os 100 anos comendo massas, pães e arroz todos os dias, mas menos de 1% da população tem diabetes tipo 2 ou sofre de qualquer complicação causada pela doença. Por anos, pesquisadores pensaram que isso fosse uma mutação genética ou algo semelhante.
+
+Mas essa teoria caiu por terra quando nossos cientistas olharam para Hilo, no Havaí. Nesta ilha americana, 8 em cada 10 habitantes tem sobrepeso ou obesidade, a maioria come "junk food" diariamente e possui a mesma genética que eu e você, mais de 90% da população, são americanos do continente que se mudaram para lá. Em outras palavras…
+
+São pessoas gordas, que comem açúcar e carboidratos todos os dias, e tem o mesmo DNA de alguém que nasceu na Califórnia, Nova Iorque ou Texas. Mas mesmo assim, vivem até os 95 anos, os níveis de açúcar no sangue deles não ultrapassam 100 pontos, e a diabetes tipo 2 é praticamente inexistente. Enquanto isso, aqui no continente, mais de 300 mil americanos morrem todos os anos seguindo rigorosamente as ordens médicas como: dietas restritivas, exercícios e remédios caros, apenas para continuar sofrendo com formigamento, visão embaçada e picos de glicose acima de 200.
+
+A conta não fecha não é mesmo?
+
+-   O que o corpo desses americanos no Havaí tem de tão diferente do seu, permitindo que eles vivam até os 100 anos imunes à diabetes, mesmo estando acima do peso e comendo o que querem?
+
+-   Como eles conseguem quebrar todas as regras médicas, que estabeleceram para nós aqui nos Estados Unidos e não sofrerem as consequências?
+
+E a resposta é simples. A verdade é que tudo que nos foi ensinado nos Estados Unidos sobre a diabetes está errado. Um estudo conjunto das universidades de Yale, Oxford e Harvard revelaram que 98,6% dos diabéticos nos Estados Unidos, tem uma concentração 100 vezes maior de uma bactéria sabotadora, apelidada de “the sugar leech”. Ao contrário do que muitos acreditam, o diabetes não é um problema só do pâncreas ou na insulina; é um problema em múltiplos órgãos, onde começa no intestino, se espalha para o fígado, pâncreas, coração e rins.
+
+Mas a descoberta mais importante desse estudo foi que uma combinação de alguns ingredientes doces, como o abacaxi e o mel, provou eliminar essa bactéria de forma natural e extremamente rápida. Quase 80.000 americanos já usaram a “insulina havaiana” sem sair de casa, gastando menos de 10 dólares em ingredientes, e agora desfrutam de uma vida saudável com seus níveis de hemoglobina glicada travados em incríveis 5%.
+
+E hoje vou ensinar a você que está assistindo como preparar essa “pinã colada anti-diabetes” em casa para reverter o diabetes para sempre. Esse método natural, devolve a qualquer americano, independente da idade, a liberdade de comer o que quiser e não se preocupar com níveis de açúcar acima de 100. Você nunca mais vai precisar se preocupar com dietas restritivas, exercícios cansativos, medicamentos ou soluções milagrosas com canela e vinagre de maça.
+
+Eu sou apenas o financiador e porta-voz dessa descoberta, os verdadeiros heróis foram os cientistas e médicos que fizeram parte das pesquisas durante anos. Estou falando de médicos e especialistas de universidades como Oxford, Stanford, Yale, Johns Hopkins e outras dezenas, que irão te mostrar todos os estudos que comprovam que a diabetes pode ser revertida de forma natural e dentro da sua própria casa.
+
+Para quem não sabe, eu já lutei contra a Big Pharma e sua rede de médicos corruptos uma vez, com a minha iniciativa, cost plus drugs, onde provei que essa indústria lucra com a doença e superfatura os valores dos medicamentos propositalmente. Uma investigação da FDA em 2025, mostrou que 8 a cada 10 médicos nos Estados Unidos, prescrevem o mesmo tratamento para pessoas e casos diferentes, pelo menos 50 vezes no mês. Muitos médicos ganham uma porcentagem sobre os medicamentos que prescrevem, não importa para eles se você só teve um pequeno pico de açúcar ou se você precisa de uma amputação. Eles apenas querem aumentar as doses dos seus medicamentos para aumentar os lucros deles. A matemática é simples: quanto mais eles te vendem, mais eles ganham.
+
+Mas para o desespero desses médicos corruptos financiados pela gananciosa big pharma, que enganam nossa população, eles estão a um passo de perder tudo. a “insulina havaiana” está fazendo com que os americanos mantenham seus níveis estáveis em 90 pontos, mesmo após comerem porcarias, sem efeitos colaterais.
+
+Então, não saia deste vídeo antes de aprender como preparar da forma certa em casa. Isso realmente parece bom demais para ser verdade. É por isso que estou aqui colocando o meu rosto ao vivo, para te mostrar que muitos americanos, iguais a você, pensaram que já tinham tentado de tudo e estavam frustrados. Mas esses mesmos americanos estão agora vivendo uma nova vida com níveis saudáveis.
+
+-   Sem picadas no dedo.
+
+-   Alguns quilos mais magros.
+
+-   Sem dores insuportáveis.
+
+-   Sem medo de ir para a cama imaginando se acordarão piores no dia seguinte.
+
+Em parceria com a Sony e o Programa Shark Tank, convidei os principais cientistas da CCD, responsáveis por cada descoberta, para um episódio especial, bem curto, aonde contém tudo que você precisa saber para reverter sua diabetes tipo 2 em alguns dias de forma natural e prática.
+
+Então, produção, coloquem o episódio especial para quem está assistindo, por favor.
+
+LD02 ✅
+
+Referência de edição → https://www.youtube.com/watch?v=6-Dc3e5h8C4
+
+Referência do Avatar → https://www.youtube.com/watch?v=UMfYETkrDzQ
+
+Fazer no Gemini ai → Gupta com mel, vinagre de maça e abacaxi.
+
+Gemini_Generated_Image_3xiumn3xiumn3xiu.png
+
+Lead 02
+
+Sanjay Gupta
+
+Em 2026 todo diabético, incluindo você, pode reverter a diabetes tipo 2 em apenas alguns dias, usando uma simples receita caseira de 18 dólares com esses ingredientes da mesa.
+
+Depoimento → Halley Berry → Halle Berry Reveals Doctor Misdiagnosed Her with Herpes During Early Menopause | FULL INTERVIEW
+
+Meu médico disse que eu ia precisar usar Ozempic pelo resto da minha vida, mas graças a Deus que ele estava errado. Só precisei de 5 dias usando o “truque do abacaxi”, para: jogar minha insulina e metformina no lixo, ver minha glicose não passar de 95 pontos e drenar todo excesso de açúcar do meu sangue.
+
+Depoimento → Tom Hanks → Tom Hanks on Living in New York, Meeting Joe DiMaggio & His New Play This World of Tomorrow
+
+A diabetes quase me deixou cego e sem a perna direita, eu fui diabético por mais de 10 anos da minha vida, e sempre tentei esconder as complicações e sintomas ao máximo da mídia. Eu sempre tive muita vergonha de ter diabetes, e sempre me culpei muito por isso. Mas recentemente, me deparei com uma receita havaiana com abacaxi e mel, que foi com toda certeza a maneira mais preguiçosa e barata de eliminar a bactéria que causa a diabetes tipo 2 e que manteve meus níveis de A1C em 4,9% para sempre.
+
+Sanjay Gupta
+
+Essa é a última vez que falo sobre isso. Pode parecer estranho, mas garanto com respaldo médico e científico, que funciona, porque além de todas as provas e estudos, funcionou comigo. Eu escondi muito bem, mas há alguns meses, minha glicose chegou a bater 480. Eu já estava com problemas na visão, na circulação e até na líbido. Ganhei 8 quilos, vivia correndo para o banheiro e sofria com formigamentos tão fortes que eu mal sentia o chão, cheguei ao ponto de ter feridas que nem os melhores antibióticos cicatrizavam. Sem falar da fortuna que eu estava gastando em medicamentos nas farmácias. Consultei os médicos mais respeitados que tive contato, mas todos repetiam o mesmo roteiro: dietas restritivas, cortar carboidratos e fazer exercícios.
+
+Eu obedeci religiosamente, o que eles recomendavam, e sendo sincero, não desejo isso nem para o meu pior inimigo. Abri mão das massas e das pizzas que amava e caminhava toda manhã, mesmo exausto e mal-humorado por estar sem carboidrato e sem poder fazer nada de gostoso da vida. E mesmo assim isso não funcionava, em vez de melhorar, eles só aumentavam minhas doses e me empurravam tratamentos inúteis. Eu estava gastando uma fortuna todo mês nas farmácias para continuar doente.
+
+Foi então que vi no site da Sony, o episódio especial do programa Shark Tank. Aonde o empresário filantropo Mark Cuban, expõe com cientistas uma verdade sobre a diabetes tipo 2 escondida em uma ilha isolada no Havaí. Eu já sabia que o Mark Cuban, era conhecido por enfrentar a Big Pharma, com o programa Cost Plus Drugs, que distribuia remédios pelo preço de custo, a metformina que custa 20 a 50 dólares na farmácia, neste programa custava 3 dólares. Essa iniciativa mostrou a todo mundo o jogo sujo da indústria dos medicamentos que superfaturam os preços dos medicamentos propositalmente para lucrar mais, mesmo que isso signifique o sofrimento de milhões de americanos todos os anos.
+
+Porém, o seu verdadeiro trunfo era a CCD: a Coalition to Combat Diabetes, uma força-tarefa com mais de 200 cientistas de elite das maiores universidades do mundo, que após alguns anos e milhões de dólares investidos, sem amarras com o governo ou big pharma, descobriram que a verdadeira causa da diabetes tipo 2, não tem nada a ver com genética, açúcar, idade, gordura ou parasita no pâncreas. Na verdade, eles descobriram que o grande vilão por trás de 98% dos casos de diabetes nos Estados Unidos, é uma “bactéria microscópica sabotadora”, apelidada de “The Sugar Leech”.
+
+Ela perfura seu intestino e invade a corrente sanguínea para sabotar dois órgãos vitais.
+
+-   No seu pâncreas esse invasor sabota as células-beta e os receptores do GLP-1, que produzem e liberam a insulina do seu pâncreas para o seu corpo, é por isso que nenhum medicamento funciona a longo prazo, você sente uma vontade incontrolável por doces.
+
+-   Além disso, essa bactéria se alimenta da sua glicose, por isso que quando ela invade o seu fígado, força-o a produzir 10 vezes mais o hormônio glucagon, que dispara açúcar 24 horas por dia no seu sangue, deixando a mais forte e te fazendo passar por sintomas como, visão embaçada, problemas de pressão, picos de glicose, formigamento e dificuldades na cicatrização.
+
+Porém, os dados científicos e as pesquisas de campo que mais me chocaram não foram sobre a verdadeira causa, mas sim o local que a descobriram. Eu já tinha conhecimento sobre lugares isolados aonde a diabetes praticamente não existia, como Nagano e Okinawa no Japão, mas a ciência sempre justificou com a genética privilegiada e os hábitos desses povos. Mas essa teoria foi destruída, quando os cientistas da CDD investigaram a população no arquipélago de Hilo, no Havaí, aonde as pessoas não respeitavam nenhuma regra da medicina moderna estabelecida nos Estados Unidos sobre a diabetes, e mesmo assim menos de 1% da população tinha a doença.
+
+-   Primeiro, eles ignoram o açúcar: a dieta deles é 90% composta por carboidrato, entupida de arroz, massas, frutas e carnes e peixes gordurosos todo dia.
+
+-   Segundo, ignoram o sedentarismo, maus hábitos e o sobrepeso, já que 8 em cada 10 habitantes são obesos ou tem sobrepeso.
+
+-   E o xeque-mate foi quando eles mostraram que apenas 13% da população dessa ilha são nativos, o restante são imigrantes, com genéticas diferentes, além disso, a maioria dos imigrantes são americanos comuns que nasceram no continente.
+
+Em Hilo, é estatisticamente mais provável morrer caindo em um vulcão do que de diabetes, enquanto no continente americano enterramos 350 mil americanos todos os anos por causa dessa doença. Mas a boa notícia, é que os cientistas descobriram o verdadeiro motivo dessa população ser imune a diabetes tipo 2. Tudo graças a um ritual havaiano, uma bebida caseira consumida diariamente, com abacaxi e mel, que se provou rica em um super nutriente específico. Que age expulsando o excesso de açúcar pela urina e, eliminando a causa raiz, a bactéria “The Sugar Leech” em alguns dias. Apelidada de “Insulina Havaiana”, custa menos de 10 dólares para preparar, mas é necessário seguir 3 passos rápidos e simples para funcionar.
+
+E foi exatamente através do episódio especial do Shark Tank, que aprendi os 3 passos simples dessa receita, aonde o Mark Cuban e os cientistas da CCD revelam tudo sobre essa bebida caseira e a história do médico havaiano que precisou descobrir tudo isso para salvar o amor da sua vida.Depois que assisti esse episódio até o final, segui o passo a passo em casa. E nos primeiros 5 dias usando a insulina havaiana antes de dormir, minha glicose despencou para 115 pontos, no décimo segundo dia já tinha jogado minha metformina no lixo porque minha glicose não passava de 95, 1 mês depois joguei a insulina fora também. Porque agora, eu tenho uma vida digna de verdade, a vida que todo ser humano merece. Saio com meus netos pra comer o que quiser, tomo um vinho com minha esposa, sem me culpar e sem me preocupar com ficar cego, amputações ou até de morrer, que sendo sincero era um medo constante.
+
+Esse episódio secreto do Shark Tank virou um fenômeno na internet, mais de 70.000 americanos testaram e 98% reverteram a doença em menos de 15 dias, mantendo seus níveis de a1c abaixo de 5%. A Big Pharma está desesperada com o prejuízo bilionário que essa bebida caseira está causando. Eles já derrubaram esse episódio especial 16 vezes só nesta semana, no site da sony, mas eu consegui o arquivo original do episódio e por gratidão a Mark Cuban, vou transmitir agora o episódio completo, aqui no meu site. E nos próximos minutos, você aprenderá a preparar a “Insulina Havaiana” em casa para acordar amanhã com a glicose abaixo de 100. Confiem em mim, eu não me colocaria em uma posição tão delicada como essa se não funcionasse, esse vídeo que você está vendo, coloca um alvo nas minhas costas, mas eu sempre vou prezar pela verdade. Faça o teste durante uma semana e depois me envia seu feedback. Fiquem com o episódio especial do Shark Tank, a “luta definitiva contra a diabetes tipo 2”, até logo.
+
+Background Story ✅
+
+SH4
+
+Background Story
+
+[Abertura Shark Tank]
+
+Mark Cuban → Mark Cuban's Blueprint For Winning The NBA
+
+Apresentação da Autoridade:
+
+[Mark Cuban]
+
+Este episódio especial é dedicado exclusivamente à guerra contra a Diabetes Tipo 2, e é, sem dúvida, o episódio mais importante e perigoso, da história do Shark Tank.
+
+Olá, se você não me conhece, eu sou Mark Cuban.
+
+-   Sou há mais de uma decada, um dos 'Tubarões' do Shark Tank, um dos maiores programas sobre investimento em négocios do mundo.
+
+-   Mas você também pode ter me visto em programas de TV, podcasts ou em capas de revistas.
+
+-   Ou talvez você me conheça como o proprietário do Dallas Mavericks, campeões da NBA.
+
+Mas hoje, não estou aqui para falar de mim.
+
+Origem Humilde & Motivação:
+
+Estou aqui porque, nos últimos anos, eu declarei uma guerra contra a cegueira, os ataques cardíacos e as amputações que a diabetes tipo 2 causa em 300.000 americanos todos os anos.
+
+Muitos de vocês sabem que eu não nasci em berço de ouro, cresci em um bairro operário de Pittsburgh, filho de um simples estofador de carros. Tudo que conquistei hoje, foi graças ao suor do meu pai, o homem que passava 12 horas por dia em uma oficina suja de graxa, que me ensinou o verdadeiro significado de força. Mas, o que quase ninguém sabe é que, no auge do meu sucesso financeiro, eu vi o homem mais forte que conhecia perder a batalha para a diabetes tipo 2, mesmo com acesso aos melhores médicos e tratamentos que o meu dinheiro podia pagar. Quando ele faleceu, fiz uma promessa pra mim mesmo: usar a fortuna e a influência que construí para poupar outras famílias americanas dessa dor.
+
+Mas, infelizmente, descobri da pior forma que eu iria enfrentar alguém com muito mais dinheiro e poder do que eu: a Big Pharma.
+
+Conspiração e Escassez:
+
+Senti na pele assim que fundei a Cost Plus Drugs.
+
+Uma iniciativa radical para remover os intermediários sanguessugas e cortar, pela raiz, os lucros gananciosos da Big Pharma, que superfaturam o preço de medicamentos propositalmente. Eu provei que eles mentiam sobre os preços. Nós distribuímos medicamentos essenciais, como a Metformina, por apenas 3 dólares, que era o preço real de custo, enquanto as farmácias de esquina, controladas pelo cartel, cobravam de você 20 a 50 dólares pelo mesmo medicamento.
+
+How Mark Cuban Is Trying to Disrupt Big Pharma | WSJ → 00:00 até o 00:51 (em 1.3x)
+
+Nós criamos guias, recursos e programas gratuitos inteiros para devolver a dignidade aos pacientes que o sistema de saúde americano abandonou e faliu. No entanto, infelizmente, isso não foi suficiente, mesmo fundando essa iniciativa, percebi que era inútil focar em apenas 'controlar' a doença, com medicamentos. Foi então que eu decidi parar de tratar sintomas para investir em encontrar a cura. Investi milhões do meu próprio bolso, para fundar a Coalition to Combat Diabetes, a CCD.
+
+Um grupo de ação direta, livre das amarras de Washington e da Big Pharma. Recrutamos a elite de Harvard, Johns Hopkins e Oxford, uma equipe global composta pelas 234 mentes mais brilhantes dos EUA, Israel, Japão, Suécia, Alemanha, França e China, Com uma única missão: encontrar a verdadeira causa da diabetes tipo 2 e a solução definitiva para essa doença que dizima milhares de americanos. Mas assim que chegamos perto da verdade, a Big Pharma declarou guerra, eles não queriam perder o lucro. Tivemos laboratórios queimados, dados sabotados e pesquisadores ameaçados de morte. Eu sabia que isso aconteceria, a história nos mostra que quem ameaça o sistema, vira alvo.
+
+Foi assim com Dr. Sebi, que provou em um tribunal de Nova York que podia curar doenças com uma descoberta inovadora do Himalaia, mas morreu misteriosamente sob custódia policial, com Royal Rife, que inventou a tecnologia para eliminar o câncer, e foi encontrado sem vida dentro da própria casa, ou Adam Kultrapjin, que morreu repentinamente após anunciou que descobriu a cura para o Alzheimer, em um mel indiano.
+
+É por isso que você não pode fechar esse vídeo. Eu não sei por quanto tempo a Big Pharma vai permitir que este vídeo continue no ar. Somente essa semana, essa apresentação foi tirada do ar mais de 16 vezes.
+
+O Teaser do Mecanismo do Problema:
+
+Porque o que achamos chocou a medicina moderna, e ameça o lucro bilionario da Big Pharma. Descobrimos o verdadeiro culpado por trás da diabetes que está fazendo tantos americanos lutarem com níveis descontrolados de A1C e açúcar no sangue, cegueira, amputação e até câncer ou morte, e que ao contrário do que te falam, a culpa não é sua, ou da sua idade, gordura, carboidratos, genética e muito menos de nenhum tipo de parasita no seu pâncreas.
+
+O Teaser do Mecanismo da Solução
+
+E agora eu vou te revelar como desenvolvemos um método, simples, natural e eficaz, que chamamos de “insulina havaiana” para combater o verdadeiro vilão da diabetes tipo 2 e assumir o controle dessa doença. Este método natural, se aplica a todos, independentemente de quanto tempo tenham tido diabetes, seja por três meses ou 40 anos e já ajudou gratuitamente mais de 70.000 americanos este ano a controlar seus níveis de A1C abaixo de 5% em poucos dias. Então, se você está sofrendo com diabetes tipo 2 ou qualquer problema relacionado com a glicose, este é definitivamente o vídeo mais importante da sua vida.
+
+Apresentação da Autoridade 02:
+
+Agora, para lhe contar como tudo começou, convidei, um dos melhores endocrinologistas do mundo, pesquisador chefe da Universidade de Johns Hopkins em Baltimore e principal cientista líder da, CCD, Coalition to Combat Diabetes.
+
+Ao longo deste vídeo, você ouvirá não apenas a mim, mas também os maiores cientistas e pesquisadores de todo o mundo, que fizeram parte dessa descoberta.
+
+Dr. Keanu Kahale, a palavra é sua.
+
+Historia Emocional - Introdução da Vítima & Mistério Havaiano
+
+Dr. Keanu Kahale
+
+Obrigado, Mark.
+
+Tudo começou em 2020, minha esposa Leilani e eu estávamos no Havaí, ela convivia com a diabetes tipo 2 já há alguns anos.
+
+Fui um dos chefes em Johns Hopkins convocado para palestrar na conferência anual de endocrinologia, em Honolulu, coincidência ou destino, eu e minha esposa somos nativos do Havaí, mas era a primeira vez em 11 anos que voltavamos para lá, desde que tínhamos deixado tudo para trás, fugindo da crise causada pelo Tsunami de 2010. Ficamos hospedados, na casa da minha família, no arquipélago vulcânico de Hilo, uma ilha conhecida pela sua longevidade contraditória dos seus habitantes, muitos dos quais vivem bem além de 90 anos, mesmo com sobrepeso ou obesidade, e lar de dezenas de imigrantes japoneses e americanos do continente.
+
+A casa da família da Leilani, ficava a 300 metros da nossa, ambas famílias permaneceram na ilha mesmo depois da crise do tsunami. Fomos recebidos, com uma festa, feita pelas duas famílias, entre elas as duas figuras mais importantes das nossas vidas:
+
+-   A Kalani, minha avó, com 94 anos, a que sempre foi a minha maior inspiração.
+
+-   E a irmã gêmea da Leilani, a Heiki, que sempre faziam tudo juntas, na juventude.
+
+A festa e o reencontro com as famílias foram perfeitos, mas, por dentro, eu estava me sentindo um monstro, eu precisei assumir o papel que eu odiava: eu me tornei a 'Food Police' da minha própria esposa, e não foi à toa, a mesa de comidas era um banquete para todo mundo, mas um verdadeiro pesadelo para qualquer diabético.
+
+-   Pizza, donuts, batata frita, cupcakes, cheesecake, pão de milho, sorvete, sem falar das bebidas, pina colada, suco de laranja, bebidas alcoólicas e refrigerante.
+
+O medo, da Leilani se deixar levar pelo momento de emoção do reencontro era grande, mas o que mais me intrigou foi ver a minha vó e seus amigos com mais de 80 anos, junto com a irmã gêmea da Leilani, comendo aquilo tudo como se fossem crianças em fase de crescimento, sem nenhuma preocupação. Por curiosidade, medi o nível de açúcar no sangue das duas, e o resultado não passava de 95, como se tivessem em jejum. Em mais de 25 anos de carreira tratando diabéticos, eu nunca tinha visto nada parecido com isso. As duas contrariavam tudo que me foi ensinado na faculdade de medicina, ambas tinham sobrepeso, comem carboidratos e açúcar todo dia, uma delas tinha quase 95 anos, e a outra divide o mesmo DNA que a minha esposa diabética, mas o sangue delas permanecia blindado contra o açúcar alto.
+
+Historia Emocional - Conformidade Frustrada
+
+Depois de 15 dias na nossa terra natal, retornamos para a realidade em Baltimore, e alguns acontecimentos, começaram a atingir a Leilani, com mais frequência, fazendo-a perder a guerra a cada batalha.
+
+-   Duas semanas depois que voltamos, ela chegou a tarde em casa, pálida, com os olhos inchados de tanto chorar, e foi direto para o chuveiro, horas depois, ela me contou que estava na Kroger, na fila do caixa, a três pessoas da saída, quando sentiu aquele frio na espinha que só quem toma Metformina conhece, aquela dor de barriga insuportável e incontrolável, ela largou o carrinho cheio de compras ali mesmo e correu com aquele passo travado, rezando para que ninguém a visse naquele estado.
+
+E esses acontecimentos começaram a nos atingir dentro de casa.
+
+-   O jantar em família, que costumava ser nossa hora favorita do dia, virou um momento constrangedor e silencioso, enquanto eu e as crianças comíamos pizza, ela apenas cutucava uma salada sem graça, eu me sentia culpado por comer o que ela não podia, e sempre evitava olhar nos olhos dela durante o jantar. Eu sabia que, ela estava sofrendo, com o cansaço de uma mulher com 50 anos, que não pode brindar com uma taça de vinho, que não pode dividir uma sobremesa com seu marido, e que, sendo honesto, não me deixava tocá-la como mulher há quase dois anos. Não por falta de amor, mas porque ela se sentia menos humana, inchada, marcada de agulhas e sem autoestima.
+
+Historia Emocional - Fundo do Poço
+
+Foi então que durante o período de vacinação da COVID-19, logo após a primeira dose da vacina Janssen da empresa farmacêutica Johnson & Johnson, o corpo da Leilani pareceu desistir.
+
+-   As doses do Glucophage dobraram.
+
+-   Trocamos o Ozempic pelo Mounjaro, e ela se tornou refém da insulina injetável.
+
+Essas drogas roubaram o brilho dela, aos poucos, ela parou de sorrir, tinha dias que ela não saia do quarto, dizia que as comidas já não tinham mais gosto, e que mesmo passado fome e desejos, ela continuava ganhando peso. Ela desenvolveu neuropatia diabética e para completar a glicose dela batia picos de 320 até 400.
+
+A Leilani sempre foi disciplinada, ela havia seguido todas as recomendações médicas: dieta rigorosa, exercícios, e uso diário de mounjaro, metformina e insulina, mas após anos de disciplina, eu encontrei algo que me deixou revoltado.
+
+-   Procurando um cobertor velho, achei uma caixa de sapatos escondida, com dezenas de papéis de doces, pacotes de salgadinho vazios e chocolates, quando a confrontei, eu esperava desculpas, mas ela me disse algo que me destruiu:
+
+  “Você não sabe o que é acordar todo dia às 2 da manhã para ir ao banheiro com os pés pegando fogo, como se estivesse pisando em brasa, a única coisa que passa essa dor por 5 minutos, é o açúcar, que faz meu cérebro parar de gritar, mesmo assim me sinto culpada, e essa culpa dói bem mais do que essa queimação.”
+
+Mas o pior aconteceu na madrugada de 22 de julho de 2025, em uma das várias idas ao banheiro, a Leilani, pisou em um caco de vidro, e devido à neuropatia diabética avançada, os nervos dos pés dela já estavam mortos, e ela não gritou, ela não sentiu nada, voltou para a cama, cobriu os pés e dormiu, enquanto o corte aberto entrava em contato com as bactérias dos lençóis, ela sangrou a noite toda sem sentir absolutamente nada. Quando acordamos, o lençol estava manchado de vermelho-escuro. Eu limpei o ferimento, usei os melhores antibióticos, mas a diabetes é implacável.
+
+Historia Emocional - Humilhação Médica
+
+Em 3 dias, o corte virou uma úlcera negra e profunda, em 7 dias, evoluiu para necrose, que em pouco tempo se tornou o diagnostico mais temido por todos diabéticos: Amputação transtibial da perna direita. Era uma situação bem delicada, e eu não confiava em nenhum outro médico para operar, então, lá estava eu, na sala de cirurgia, segurando o bisturi, prestes a cortar uma parte da mulher que eu amo, e minutos antes da anestesia fazer efeito, ela segurou meu braço, olhou nos meus olhos e disse a frase que partiu meu coração:
+
+"Keanu, eu não quero que você tenha que trocar minhas fraldas ou empurrar minha cadeira de rodas, eu prefiro morrer a ser um peso para você."
+
+Depois de 3 horas na sala de operação, a cirurgia foi tecnicamente bem sucedida, mas o silêncio na volta do hospital para nossa casa, dizia o contrário. Os dias se arrastaram, e ver aquela cadeira de rodas parada no canto da sala era um lembrete diário da minha derrota como profissional e marido. Mas o que realmente destruiu minha alma foi ver a mulher que eu amava, antes tão independente, precisando da minha ajuda para se equilibrar na pia apenas para escovar os dentes. A diabetes não tinha levado apenas a perna dela. Tinha levado a dignidade e o brilho nos olhos.
+
+História da Descoberta - Pista Externa e Teste Prático
+
+Eu precisava resgatá-la, lembrei de como ela estava radiante há 5 anos, na nossa última viagem à nossa terra natal. Então, tomei uma decisão desesperada, pedi um afastamento de 30 dias da Coalition to Combat Diabetes e levei Leilani e nossos filhos, de volta ao Havaí, para a casa dos meus pais, no arquipélago vulcânico de Hilo.
+
+Chegando lá, minha mãe, que sempre amou Leilani como uma filha, me contou que a vendo daquele jeito, lembrou das histórias da minha avó Kalani, que já estava com quase 100 anos, sobre o poder do da mistura Kaha-nui, uma mistura doce, feita com abacaxi e sua casca, mel, e algumas outras ervas e raízes. Kaha-nui significa, sugar harmony em inglês, em outras palavras, se tratava de um ritual havaiano antigo usado por gerações para cicatrizar feridas profundas e purificar o sangue.
+
+Eu concordei em tentar, mas quando entrei na cozinha e vi os ingredientes, meu coração parou. A base da mistura era feita de ervas e raizes locais, abacaxi e mel lehua blossom, um mel local.
+
+Como endocrinologista formado em Johns Hopkins, aquela mistura era uma aberração para os diabéticos, eu tinha aprendido na universidade que frutose concentrada é uma bomba de glicose, e na minha cabeça, minha própria mãe estava servindo essa bomba de glicose para minha esposa. Eu queria intervir, mas me segurei, lembrei que tínhamos tentado de tudo que a medicina tradicional tinha para oferecer e nunca nos levou a lugar nenhum e também de que minha avó nunca usou farmácias, apenas a natureza, e mesmo assim com quase 100 anos, nunca teve diabetes, problemas cardíacos ou de esquecimentos.
+
+Guiado pela fé e pela esperança, deixei a Leilani beber, mas, por precaução, preparei uma dose de emergência de insulina rápida, eu estava certo de que a glicose dela explodiria para 400 ou 500 em minutos. Esperei o tempo passar, então, fiz o teste de ponta de dedo, quando o número apareceu no visor, eu congelei.
+
+Apenas 160, ainda era alto, mas para alguém que vivia acima de 300, aquilo não era apenas um número, era o primeiro sinal de um milagre.
+
+Naquela semana, decidimos dar o Kaha-nui todos os dias para a Leilani. E eu, como cientista, observei e registrei cada detalhe, e, contra todas as probabilidades, ela estava voltando à vida. Não foi uma cura milagrosa imediata, mas pequenas vitórias estavam surgindo.
+
+-   Nos primeiros três dias, vi algo que não via há anos, ela acordou sorrindo, com um apetite que eu não via há anos e com uma energia que não vinha do café, aquela fadiga que perseguia a Leilani estava desaparecendo.
+
+-   No sétimo dia, o impossível aconteceu, ela quis sair para caminhar na praia, antes ela tinha muita vergonha de caminhar com sua protese, mas isso também pareceu ter sumido, sua glicose em jejum despencou de 160 para 112, a cor escura no seu pé esquerdo começou a clarear, e as infecções na pele começaram a diminuir.
+
+-   No décimo dia, ela me disse, com lágrimas nos olhos, que conseguia sentir os lençóis tocando seu pé esquerdo, a sensibilidade, que a neuropatia tinha roubado, estava voltando.
+
+-   20 dias depois, a glicose pós-refeição dela estava travada em 110, aquela mistura natural, que eu julguei ser veneno, estava fazendo o que nenhum tratamento de 1000 dólares nos Estados Unidos jamais conseguiu.
+
+-   Após 25 dias, refizemos os exames laboratoriais, e seus níveis de A1C, que eram uma sentença de morte em 11%, despencaram para abaixo de 7%.
+
+A Leilani ainda não tinha revertido totalmente a doença, mas em menos de um mês, ela avançou mais do que em 5 anos de medicina convencional dos EUA.
+
+Minha mente estava pegando fogo, eu sabia que aquilo não era apenas sorte, era um padrão, aquela bebida podia explicar tudo, a minha avó, a irmã gêmea da Leilani, e sua melhora em poucos dias.
+
+Na mesma hora, peguei o telefone e liguei diretamente para a linha privada do Mark Cuban, para lhe contar tudo que aconteceu.
+
+BS Edição
+
+Background Story
+
+Conjunto 01
+
+[Logo da Sony → Durante o vídeo todo] → Logo da sony.png
+
+[Animação dos Nomes] duração de 07 sec → Animações nome
+
+-   (Animação de Entrada 0.5s “zoom 1”)
+
+-   (Animação de saída 0.5s “desligar para esquerda”)
+
+[Abertura Shark Tank] → INTRO - Shark Tank SH4.mp4
+
+[Personagens Principais]
+
+Mark Cuban → Mark Cuban's Blueprint For Winning The NBA
+
+-   Voz → VOZ SH4 - MARK CUBAN.MP3
+
+Dr. Keanu Kahale → https://www.youtube.com/watch?v=qIYIWcStvGs
+
+-   Voz → VOZ SH4 - Dr. Keanu Kahale .MP3
+
+Dr. Robert Takanashi→ Você Ora, Mas Ainda Sente Ansiedade? Isso Tem um Motivo - Dr. Pedro Onari
+
+-   Voz → VOZ SH4 - Robert Takanashi.MP3
+
+Dr.Noa Cardonski → TÉCNICA PARA MUDAR (RAPIDAMENTE) SUA VIDA
+
+-   Voz → VOZ SH4 - DR. Noa Cardonski.MP3
+
+Dr. Michael Stevens → https://www.youtube.com/watch?v=UBjCFCPHOy8
+
+-   Voz → VOZ SH4 - Dr. Michael Stevens.MP3
+
+[Depoimentos]
+
+Leilani Kahale → Mude sua vida EM SILÊNCIO! SUMA E VOLTE IRRECONHECÍVEL !
+
+-   Voz →
+
+Michelle → DISLEXIA tem cura?
+
+-   Voz →https://www.tiktok.com/@drmaryclaire/video/7460717878396898591?q=woman%20menopause&t=1764807311998
+
+Matthew (40/50) → https://www.tiktok.com/@jankster68/video/7560422324034358559?q=homem%2050%20anos&t=1764806106115
+
+-   Voz → A mesma
+
+Elizabeth (60/70) →https://www.tiktok.com/@grandmagreat/video/7344452604056833322?q=grandma&t=1764807195771
+
+-   Voz → A mesma
+
+Richard, 67 anos → Dr. Uronal Analisa: Por que Vivemos Mais, mas Enfrentamos Mais Doenças? E como reverter
+
+-   Voz → https://www.tiktok.com/@oldfatuglyman/video/6842030317566463238?q=texas%20old%20man&t=1764807408311
+
+Linda, 54 anos → https://www.tiktok.com/@suelagoo/video/7572331846554455326
+
+-   Voz → A mesma
+
+Carlos, 48 anos → https://www.instagram.com/reel/DIq71-muEIB/
+
+-   Voz →https://www.tiktok.com/@dr.allen.hormones/video/7382302468098542891?q=man%20menopause&t=1764807366807
+
+Conjunto 01
+
+Mark Cuban
+
+Apresentação:
+
+Olá america, este episódio especial do Shark Tank é dedicado exclusivamente à guerra contra a Diabetes Tipo 2, e é, sem dúvida, o episódio mais importante e perigoso, da história da sony.
+
+Se você não me conhece, eu sou Mark Cuban.
+
+-   Sou há mais de uma decada, um dos 'Tubarões' do Shark Tank, um dos maiores programas sobre investimento em négocios do mundo.
+
+-   Mas você também pode ter me visto em programas de TV, podcasts ou em capas de revistas.
+
+-   Ou talvez você me conheça como o proprietário do Dallas Mavericks, campeões da NBA.
+
+Mas hoje, não estou aqui para falar de mim.
+
+Origem Humilde & Motivação:
+
+Estou aqui porque, nos últimos anos, eu declarei uma guerra contra a cegueira, os ataques cardíacos e as amputações que a diabetes tipo 2 causa em 300.000 americanos todos os anos.
+
+Muitos de vocês sabem que eu não nasci em berço de ouro, cresci em um bairro operário de Pittsburgh, filho de um simples estofador de carros. Tudo que conquistei hoje, foi graças ao suor do meu pai, o homem que passava 12 horas por dia em uma oficina suja de graxa, que me ensinou o verdadeiro significado de força. Mas, o que quase ninguém sabe é que, no auge do meu sucesso financeiro, eu vi o homem mais forte que conhecia perder a batalha para a diabetes tipo 2, mesmo com acesso aos melhores médicos e tratamentos que o meu dinheiro podia pagar. Quando ele faleceu, fiz uma promessa pra mim mesmo: usar a fortuna e a influência que construí para poupar outras famílias americanas dessa dor.
+
+Mas, infelizmente, descobri da pior forma que eu iria enfrentar alguém com muito mais dinheiro e poder do que eu: a Big Pharma.
+
+O Teaser da Ameaça (conspiração):
+
+Senti na pele assim que fundei a Cost Plus Drugs.
+
+Uma iniciativa radical para remover os intermediários sanguessugas e cortar, pela raiz, os lucros gananciosos da Big Pharma, que superfaturam o preço de medicamentos propositalmente. Eu provei que eles mentiam sobre os preços. Nós distribuímos medicamentos essenciais, como a Metformina, por apenas 3 dólares, que era o preço real de custo, enquanto as farmácias de esquina, controladas pelo cartel, cobravam de você 20 a 50 dólares pelo mesmo medicamento.
+
+How Mark Cuban Is Trying to Disrupt Big Pharma | WSJ → 00:00 até o 00:51 (em 1.3x)
+
+Nós criamos guias, recursos e programas gratuitos inteiros para devolver a dignidade aos pacientes que o sistema de saúde americano abandonou e faliu. No entanto, infelizmente, isso não foi suficiente, mesmo fundando essa iniciativa, percebi que era inútil focar em apenas 'controlar' a doença, com medicamentos. Foi então que eu decidi parar de tratar sintomas para investir em encontrar a cura.
+
+Mas, eu sabia que não conseguiria lutar essa briga sozinho, então, convoquei meus parceiros de programa:
+
+-   O Kevin O'Leary;
+
+-   A Lori Greiner e o Daymond John.
+
+E Investimos milhões do nosso próprio bolso, para fundar a Coalition to Combat Diabetes, a CCD.
+
+Um grupo de ação direta, livre das amarras de Washington e da Big Pharma. Recrutamos a elite de Harvard, Johns Hopkins e Oxford, uma equipe global composta pelas 234 mentes mais brilhantes dos EUA, Israel, Japão, Suécia, Alemanha, França e China, om uma única missão: encontrar a verdadeira causa da diabetes tipo 2 e a solução definitiva para essa doença que dizima milhares de americanos. Mas assim que chegamos perto da verdade, a Big Pharma declarou guerra, eles não queriam perder o lucro. Tivemos laboratórios queimados, dados sabotados e pesquisadores ameaçados de morte. Eu sabia que isso aconteceria, a história nos mostra que quem ameaça o sistema, vira alvo.
+
+Foi assim com Dr. Sebi, que provou em um tribunal de Nova York que podia curar doenças com uma descoberta inovadora do Himalaia, mas morreu misteriosamente sob custódia policial, com Royal Rife, que inventou a tecnologia para eliminar o câncer, e foi encontrado sem vida dentro da própria casa, ou Adam Kultrapjin, que morreu repentinamente após anunciou que descobriu a cura para o Alzheimer, em um mel indiano.
+
+É por isso que você não pode fechar esse vídeo. Eu não sei por quanto tempo a Big Pharma vai permitir que este vídeo continue no ar. Somente essa semana, essa apresentação foi tirada do ar mais de 16 vezes.
+
+O Teaser do Mecanismo do Problema:
+
+Porque o que achamos chocou a medicina moderna, e ameça o lucro bilionario da Big Pharma. Descobrimos o verdadeiro culpado por trás da diabetes que está fazendo tantos americanos lutarem com níveis descontrolados de A1C e açúcar no sangue, cegueira, amputação e até câncer ou morte, e que ao contrário do que te falam, a culpa não é sua, ou da sua idade, gordura, carboidratos, genética e muito menos de nenhum tipo de parasita no seu pâncreas.
+
+O Teaser do Mecanismo da Solução
+
+E agora eu vou te revelar como desenvolvemos um método, simples, natural e eficaz, que chamamos de “insulina havaiana” para combater o verdadeiro vilão da diabetes tipo 2 e assumir o controle dessa doença. Este método natural, se aplica a todos, independentemente de quanto tempo tenham tido diabetes, seja por três meses ou 40 anos e já ajudou gratuitamente mais de 70.000 americanos este ano a controlar seus níveis de A1C abaixo de 5% em poucos dias. Então, se você está sofrendo com diabetes tipo 2 ou qualquer problema relacionado com a glicose, este é definitivamente o vídeo mais importante da sua vida.
+
+Apresentação da Autoridade 02:
+
+Agora, para lhe contar como tudo começou, convidei, um dos melhores endocrinologistas do mundo, pesquisador chefe da Universidade de Jonhs Hopkins em Baltimore e principal cientista líder da, CCD, Coalition to Combat Diabetes.
+
+Ao longo deste vídeo, você ouvirá não apenas a mim, mas também os maiores cientistas e pesquisadores de todo o mundo, que fizeram parte dessa descoberta.
+
+Dr. Keanu Kahale, a palavra é sua.
+
+Conjunto 02
+
+Historia Emocional - Introdução da Vítima & Mistério Havaiano
+
+Dr. Keanu Kahale
+
+Obrigado, Mark.
+
+Tudo começou em 2020, minha esposa Leilani e eu estávamos no Havaí, ela convivia com a diabetes tipo 2 já há alguns anos.
+
+Fui um dos chefes em Johns Hopkins convocado para palestrar na conferência anual de endocrinologia, em Honolulu, coincidência ou destino, eu e minha esposa somos nativos do Havaí, mas era a primeira vez em 11 anos que voltavamos para lá, desde que tínhamos deixado tudo para trás, fugindo da crise causada pelo Tsunami de 2010. Ficamos hospedados, na casa da minha família, no arquipélago vulcânico de Hilo, uma ilha conhecida pela sua longevidade contraditória dos seus habitantes, muitos dos quais vivem bem além de 90 anos, mesmo com sobrepeso ou obesidade, e lar de dezenas de imigrantes japoneses e americanos do continente.
+
+A casa da família da Leilani, ficava a 300 metros da nossa, ambas famílias permaneceram na ilha mesmo depois da crise do tsunami. Fomos recebidos, com uma festa, feita pelas duas famílias, entre elas as duas figuras mais importantes das nossas vidas:
+
+-   A Kalani, minha avó, com 94 anos, a que sempre foi a minha maior inspiração.
+
+-   E a irmã gêmea da Leilani, a Heiki, que sempre faziam tudo juntas, na juventude.
+
+A festa e o reencontro com as famílias foram perfeitos, mas, por dentro, eu estava me sentindo um monstro, eu precisei assumir o papel que eu odiava: eu me tornei a 'Food Police' da minha própria esposa, e não foi à toa, a mesa de comidas era um banquete para todo mundo, mas um verdadeiro pesadelo para qualquer diabético.
+
+-   Pizza, donuts, batata frita, cupcakes, cheesecake, pão de milho, sorvete, sem falar das bebidas, pina colada, suco de laranja, bebidas alcoólicas e refrigerante.
+
+O medo, da Leilani se deixar levar pelo momento de emoção do reencontro era grande, mas o que mais me intrigou foi ver a minha vó e seus amigos com mais de 80 anos, junto com a irmã gêmea da Leilani, comendo aquilo tudo como se fossem crianças em fase de crescimento, sem nenhuma preocupação. Por curiosidade, medi o nível de açúcar no sangue das duas, e o resultado não passava de 95, como se tivessem em jejum. Em mais de 25 anos de carreira tratando diabéticos, eu nunca tinha visto nada parecido com isso. As duas contrariavam tudo que me foi ensinado na faculdade de medicina, ambas tinham sobrepeso, comem carboidratos e açúcar todo dia, uma delas tinha quase 95 anos, e a outra divide o mesmo DNA que a minha esposa diabética, mas o sangue delas permanecia blindado contra o açúcar alto.
+
+Historia Emocional - Conformidade Frustrada
+
+Depois de 15 dias na nossa terra natal, retornamos para a realidade em Baltimore, e alguns acontecimentos, começaram a atingir a Leilani, com mais frequência, fazendo-a perder a guerra a cada batalha.
+
+-   Duas semanas depois que voltamos, ela chegou a tarde em casa, pálida, com os olhos inchados de tanto chorar, e foi direto para o chuveiro, horas depois, ela me contou que estava na Kroger, na fila do caixa, a três pessoas da saída, quando sentiu aquele frio na espinha que só quem toma Metformina conhece, aquela dor de barriga insuportável e incontrolável, ela largou o carrinho cheio de compras ali mesmo e correu com aquele passo travado, rezando para que ninguém a visse naquele estado.
+
+E esses acontecimentos começaram a nos atingir dentro de casa.
+
+-   O jantar em família, que costumava ser nossa hora favorita do dia, virou um momento constrangedor e silencioso, enquanto eu e as crianças comíamos pizza, ela apenas cutucava uma salada sem graça, eu me sentia culpado por comer o que ela não podia, e sempre evitava olhar nos olhos dela durante o jantar. Eu sabia que, ela estava sofrendo, com o cansaço de uma mulher com 50 anos, que não pode brindar com uma taça de vinho, que não pode dividir uma sobremesa com seu marido, e que, sendo honesto, não me deixava tocá-la como mulher há quase dois anos. Não por falta de amor, mas porque ela se sentia menos humana, inchada, marcada de agulhas e sem autoestima.
+
+Historia Emocional - Fundo do Poço
+
+Foi então que durante o período de vacinação da COVID-19, logo após a primeira dose da vacina Janssen da empresa farmacêutica Johnson & Johnson, o corpo da Leilani pareceu desistir.
+
+-   As doses do Glucophage dobraram.
+
+-   Trocamos o Ozempic pelo Mounjaro, e ela se tornou refém da insulina injetável.
+
+Essas drogas roubaram o brilho dela, aos poucos, ela parou de sorrir, tinha dias que ela não saia do quarto, dizia que as comidas já não tinham mais gosto, e que mesmo passado fome e desejos, ela continuava ganhando peso. Ela desenvolveu neuropatia diabética e para completar a glicose dela batia picos de 320 até 400.
+
+A Leilani sempre foi disciplinada, ela havia seguido todas as recomendações médicas: dieta rigorosa, exercícios, e uso diário de mounjaro, metformina e insulina, mas após anos de disciplina, eu encontrei algo que me deixou revoltado.
+
+-   Procurando um cobertor velho, achei uma caixa de sapatos escondida, com dezenas de papéis de doces, pacotes de salgadinho vazios e chocolates, quando a confrontei, eu esperava desculpas, mas ela me disse algo que me destruiu:
+
+  “Você não sabe o que é acordar todo dia às 2 da manhã para ir ao banheiro com os pés pegando fogo, como se estivesse pisando em brasa, a única coisa que passa essa dor por 5 minutos, é o açúcar, que faz meu cérebro parar de gritar, mesmo assim me sinto culpada, e essa culpa dói bem mais do que essa queimação.”
+
+Mas o pior aconteceu na madrugada de 22 de julho de 2025, em uma das várias idas ao banheiro, a Leilani, pisou em um caco de vidro, e devido à neuropatia diabética avançada, os nervos dos pés dela já estavam mortos, e ela não gritou, ela não sentiu nada, voltou para a cama, cobriu os pés e dormiu, enquanto o corte aberto entrava em contato com as bactérias dos lençóis, ela sangrou a noite toda sem sentir absolutamente nada. Quando acordamos, o lençol estava manchado de vermelho-escuro. Eu limpei o ferimento, usei os melhores antibióticos, mas a diabetes é implacável.
+
+Historia Emocional - Humilhação Médica
+
+Em 3 dias, o corte virou uma úlcera negra e profunda, em 7 dias, evoluiu para necrose, que em pouco tempo se tornou o diagnostico mais temido por todos diabéticos: Amputação transtibial da perna direita. Era uma situação bem delicada, e eu não confiava em nenhum outro médico para operar, então, lá estava eu, na sala de cirurgia, segurando o bisturi, prestes a cortar uma parte da mulher que eu amo, e minutos antes da anestesia fazer efeito, ela segurou meu braço, olhou nos meus olhos e disse a frase que partiu meu coração:
+
+"Keanu, eu não quero que você tenha que trocar minhas fraldas ou empurrar minha cadeira de rodas, eu prefiro morrer a ser um peso para você."
+
+Depois de 3 horas na sala de operação, a cirurgia foi tecnicamente bem sucedida, mas o silêncio na volta do hospital para nossa casa, dizia o contrário. Os dias se arrastaram, e ver aquela cadeira de rodas parada no canto da sala era um lembrete diário da minha derrota como profissional e marido. Mas o que realmente destruiu minha alma foi ver a mulher que eu amava, antes tão independente, precisando da minha ajuda para se equilibrar na pia apenas para escovar os dentes. A diabetes não tinha levado apenas a perna dela. Tinha levado a dignidade e o brilho nos olhos.
+
+História da Descoberta - Pista Externa e Teste Prático
+
+Eu precisava resgatá-la, lembrei de como ela estava radiante há 5 anos, na nossa última viagem à nossa terra natal. Então, tomei uma decisão desesperada, pedi um afastamento de 30 dias da Coalition to Combat Diabetes e levei Leilani e nossos filhos, de volta ao Havaí, para a casa dos meus pais, no arquipélago vulcânico de Hilo.
+
+Chegando lá, minha mãe, que sempre amou Leilani como uma filha, me contou que a vendo daquele jeito, lembrou das histórias da minha avó Kalani, que já estava com quase 100 anos, sobre o poder do da mistura Kaha-nui, uma mistura doce, feita com abacaxi e sua casca, mel, e algumas outras ervas e raízes. Kaha-nui significa, sugar harmony em inglês, em outras palavras, se tratava de um ritual havaiano antigo usado por gerações para cicatrizar feridas profundas e purificar o sangue.
+
+Eu concordei em tentar, mas quando entrei na cozinha e vi os ingredientes, meu coração parou. A base da mistura era feita de ervas e raizes locais, abacaxi e mel lehua blossom, um mel local.
+
+Como endocrinologista formado em Johns Hopkins, aquela mistura era uma aberração para os diabéticos, eu tinha aprendido na universidade que frutose concentrada é uma bomba de glicose, e na minha cabeça, minha própria mãe estava servindo essa bomba de glicose para minha esposa. Eu queria intervir, mas me segurei, lembrei que tínhamos tentado de tudo que a medicina tradicional tinha para oferecer e nunca nos levou a lugar nenhum e também de que minha avó nunca usou farmácias, apenas a natureza, e mesmo assim com quase 100 anos, nunca teve diabetes, problemas cardíacos ou de esquecimentos.
+
+Guiado pela fé e pela esperança, deixei a Leilani beber, mas, por precaução, preparei uma dose de emergência de insulina rápida, eu estava certo de que a glicose dela explodiria para 400 ou 500 em minutos. Esperei o tempo passar, então, fiz o teste de ponta de dedo, quando o número apareceu no visor, eu congelei.
+
+Apenas 160, ainda era alto, mas para alguém que vivia acima de 300, aquilo não era apenas um número, era o primeiro sinal de um milagre.
+
+Naquela semana, decidimos dar o Kaha-nui todos os dias para a Leilani. E eu, como cientista, observei e registrei cada detalhe, e, contra todas as probabilidades, ela estava voltando à vida. Não foi uma cura milagrosa imediata, mas pequenas vitórias estavam surgindo.
+
+-   Nos primeiros três dias, vi algo que não via há anos, ela acordou sorrindo, com um apetite que eu não via há anos e com uma energia que não vinha do café, aquela fadiga que perseguia a Leilani estava desaparecendo.
+
+-   No sétimo dia, o impossível aconteceu, ela quis sair para caminhar na praia, antes ela tinha muita vergonha de caminhar com sua protese, mas isso também pareceu ter sumido, sua glicose em jejum despencou de 160 para 112, a cor escura no seu pé esquerdo começou a clarear, e as infecções na pele começaram a diminuir.
+
+-   No décimo dia, ela me disse, com lágrimas nos olhos, que conseguia sentir os lençóis tocando seu pé esquerdo, a sensibilidade, que a neuropatia tinha roubado, estava voltando.
+
+-   20 dias depois, a glicose pós-refeição dela estava travada em 110, aquela mistura natural, que eu julguei ser veneno, estava fazendo o que nenhum tratamento de 1000 dólares nos Estados Unidos jamais conseguiu.
+
+-   Após 25 dias, refizemos os exames laboratoriais, e seus níveis de A1C, que eram uma sentença de morte em 11%, despencaram para abaixo de 7%.
+
+A Leilani ainda não tinha revertido totalmente a doença, mas em menos de um mês, ela avançou mais do que em 5 anos de medicina convencional dos EUA.
+
+Minha mente estava pegando fogo, eu sabia que aquilo não era apenas sorte, era um padrão, aquela bebida podia explicar tudo, a minha avó, a irmã gêmea da Leilani, e sua melhora em poucos dias.
+
+Na mesma hora, peguei o telefone e liguei diretamente para a linha privada do Mark Cuban, para lhe contar tudo que aconteceu.
+
+Tese de Marketing ✅
+
+Tese de Marketing
+
+Conjunto 01
+
+A pergunta Paradoxal:
+
+[Mark Cuban]
+
+Assim que ouvi a voz do Dr. Keanu Kahale descrevendo toda a história e os números da Leilani, eu tinha certeza que havia algo escondido naquela ilha, que pudesse explicar tudo aquilo. Não pensei duas vezes, em menos de 24 horas, montei uma força-tarefa de emergência da CCD para irmos no Havaí, investigar mais afundo, levamos microscópios de última geração e equipamentos de análise molecular, e montamos uma base de pesquisa improvisada no quintal da casa dos pais do Dr. Keanu, e o que encontramos naquela ilha foi o que nos trouxe até aqui.
+
+Agora, eu preciso que você preste atenção, porque um dos pesquisadores da força-tarefa de emergência, da CCD, vai te explicar da forma mais simples possível, o que realmente causa a resistência à insulina e, consequentemente, a diabetes tipo 2. Então, com vocês um dos maiores coloproctologista do mundo, e pesquisador-chefe da Universidade de Oxford, Dr. Robert Takanashi.
+
+[Dr. Robert Takanashi]
+
+Olá, a todos, antes do chamado do Mark, para o Havaí, eu estava em um beco sem saída em Okinawa, no Japão. Uma pesquisa de 2 anos, na qual, eu estava em busca de decifrar: como eles comiam arroz e macarrão todo dia, viviam até os 90 anos e mesmo assim a taxa de diabetes da população era menor que 1%. Passei meses culpando a genética asiática e seus corpos magros. Eu já estava pronto para aceitar que a diabetes era uma doença genética, portanto, sem cura. Mas a ilha de Hilo, no Havaí, destruiu essa teoria.
+
+Isso porque, Hilo tinha os mesmos 'milagres' de Okinawa, no Japão:
+
+-   Habitantes que vivem mais que 90 anos;
+
+-   Taxa de diabetes menor que 1%
+
+-   Mesmo se alimentando de uma dieta rica em frutas, açúcar e carboidratos.
+
+Mas com uma diferença crucial que mudou tudo:
+
+Em Hilo, as pessoas não eram magras, na verdade 8 em cada 10 habitantes daquela ilha eram obesos ou tinham sobrepeso. Eles também não tinham genética asiática, 92% da população eram americanos comuns ou imigrantes latino americanos.
+
+Em outras palavras, eram pessoas gordas, que viviam até os 100 anos, com a mesma genética que um americano comum, que se alimentam diariamente de açúcar, carboidratos e frutas, e, mesmo assim, a taxa de diabetes daquela ilha era de 0,7%.
+
+Como isso era possível?
+
+Insenção de culpa:
+
+E a resposta é bem simples, nada do que te falam nos EUA, sobre a causa da diabetes tipo 2 está correto. A culpa não é sua, não é falta de força de vontade, não é sua alimentação ou a falta de exercicios.Muito menos sua idade, genética ou sobrepeso.
+
+Revelação da Causa Raiz
+
+Na verdade, o causador da sua diabetes é um invasor microscópico que apelidamos de 'The Sugar Leech', cientificamente, é uma bactéria inflamatória chamada Enterobacter Prevotella.
+
+Descobri isso por meio de um teste que realizei na Leilani e na sua irmã gêmea idêntica, Heiki.
+
+-   Ambas dividem o mesmo DNA;
+
+-   mesma idade, mesmo peso e gordura corporal;
+
+-   Porém a Heiki come carboidratos todos os dias, e é imune à diabetes.
+
+-   Enquanto a Leilani, respeita todas as recomendações médicas e convive com a diabetes há anos.
+
+Para entender o motivo dessa contradição, primeiro, submeti as duas a todos os exames padrões: A1C, glicemia de jejum, painel renal, e para meu desespero, não encontrei diferença nenhuma nos exames de sangue. Foi aí que entendi por que nenhum endocrinologista jamais encontrou a verdadeira causa, eles estavam procurando no lugar errado, nenhum desses exames revelam a causa raiz.
+
+Todo mundo sabe que a diabetes tipo 2 é uma doença hormonal, por isso todo diabético procura um endocrinologista para tratar sua doença, um especialista em hormônios e metabolismo.
+
+Até ai tudo bem, mas o que ninguém leva em consideração é que '96% das doenças crônicas hormonais começam no intestino.' Então, como coloproctologista, médico especialista no intestino, fiz um exame detalhado de colonoscopia, para analisar a microbiota intestinal delas, e foi ai que eu finalmente encontrei algo.
+
+Enquanto o intestino da Heiki era uma fortaleza limpa e equilibrada, o da Leilani parecia um campo de batalha em decomposição.
+
+Em 27 anos de medicina, eu nunca tinha visto nada igual, e minha gravação do exame resume o que estou falando:
+
+Gravação do Exame:
+
+  'A Paciente apresenta Disbiose Severa. A colônia de Enterobacter Prevotella não apenas dominou o intestino, mas corroeu as paredes do órgão.'
+
+  Isso gerou o que chamamos de Leaky Gut. Existem fissuras e inflamações por toda parte, permitindo que possíveis infecções vazem.
+
+E o pior. é que além de tudo isso, detectei o início de formações de tumores cancerígenos, aquela bactéria não estava apenas causando diabetes, ela estava matando a Leilani silenciosamente.
+
+Conjunto 02
+
+Revelação do Mecanismo do Problema/Origem
+
+Mark Cuban
+
+Agora, você deve estar se perguntando:
+
+"Mas como exatamente isso causa a minha diabetes tipo 2?"
+
+Para responder a essa pergunta, chamarei a cientista-chefe da base número oito da CCD, responsável por descobrir como essa bactéria causa a diabetes tipo 2, a infectologista, Dra. Noa Cardonski, porta voz israelense da Universidade de Harvard;
+
+Explicação Cientifica (Fase 01)
+
+Dr. Noa Cardonski
+
+Olá, como vão?
+
+Bem, a resposta é bem simples e assustadora, que acontece em 2 Fases Letais.
+
+A primeira fase é o que chamamos de Desequilíbrio Intestinal Silencioso, ou no termo científico: Disbiose. Todo mundo sabe que o intestino é um dos órgãos mais importantes do corpo humano, é como se fosse o nosso “segundo cérebro”, com bilhões de neurônios próprios e um ecossistema vivo e complexo. Que funciona como uma verdadeira sociedade microscópica, dentro de você, chamada microbiota intestinal, formada por trilhões de bactérias boas e ruins, um ecossistema, projetado para viver em um perfeito equilíbrio. Mas a verdade, é que o nosso corpo não foi feito para sobreviver ao estilo de vida moderno.
+
+-   O estresse crônico que nunca para;
+
+-   Alimentos ultraprocessados, bombardeados com agrotóxicos e conservantes disfarçados;
+
+-   Nanoplásticos invisíveis na água que você bebe todos os dias;
+
+-   E o uso excessivo de medicamentos artificiais como Glucophage, Pregabalina, Ozempic, Mounjaro entre outros;
+
+Tudo isso destrói completamente esse equilíbrio, e é exatamente aqui que o pesadelo começa. Quando esse equilíbrio se rompe, um "Inimigo oportunista" se aproveita dessa vulnerabilidade, uma bactéria inflamatória agressiva chamada Enterobacter Prevotella, que começa a se multiplicar incontrolavelmente, roubando os nutrientes vitais que deveriam ir para as suas células.
+
+-   Desencadeando, inflamações crônicas no seu intestino, que posteriormente evoluem para um tumor cancerígeno.
+
+Origem da Causa Raiz
+
+E o mais assustador é que você está, sem saber, alimentando essa bactéria todos os dias. Isso porque, um estudo realizado em 2025 do Instituto de Johns Hopkins detectou uma concentração 530% maior da Enterobacter Prevotella em conservantes comuns da cadeia alimentar e farmaceutica dos EUA, desde 2021. Esses mesmos conservantes, estão em 8 a cada 10 antibioticos, antiinflamatórios e anti-hipertensivos, da farmácia, estão em alimentos como, ovos, laticinios, carnes de peixe, frango ou bovina, e até naqueles considerados saudáveis, como aveia, vinagre de maçã, canela, adoçantes e refrigerantes zero açúcar. Isso significa que se você consumiu algum desses alimentos ou medicamentos, nos últimos 4 anos nos EUA, é altamente provável que você tenha uma grande concentração de Enterobacter Prevotella, agora mesmo no seu intestino.
+
+Sintomas
+
+É nessa fase que começam a surgir os primeiros sintomas da diabetes tipo 2. Aquela Fadiga constante, saiba que não é preguiça, velhice ou falta de vontade, mas sim, a bactéria roubando de você, os nutrientes responsáveis pela sua energia, deixando seu corpo e seu cerébro esgotados, causando também aquela irritabilidade constante e a dificuldade de concentração, que devido ao excesso de inflamações crônicas e a falta de nutrientes vitais, seu humor e sua clareza mental são diretamente afetados.
+
+Sabe também aquela fome frequente? É um sinal do seu corpo desesperado, exigindo mais e mais açúcar, criando uma vontade incontrolável de comer doces e carboidratos, mesmo que você saiba que não deve, essa é a maior prova que algo está roubando a energia do seu corpo. Também tem, aquelas coceiras na pele, infecções ou doenças recorrentes: Tudo isso, é culpa das inflamações, que enfraquecem seu sistema imunológico, te deixando vulnerável, fazendo com que pequenas infecções ou coceiras estranhas se manifestem constantemente, pois seu corpo não consegue produzir anticorpos como deveria. E por fim, o famoso peso teimoso, seja por perda ou ganho de gordura de forma inexplicável, seu corpo colapsado por um desequilíbrio metabólico, em alguns casos, armazena mais gordura do que deveria, em outros, queima.
+
+Explicação Cientifica (Fase 02)
+
+Mas o verdadeiro pesadelo começa agora, na segunda fase, é o momento em da formação da "Película Tóxica". Durantes nossos estudos, apelidamos a Enterobacter Prevotella, de "The Sugar Leech", porque descobrimos que a refeição favorita dela é o açúcar do seu sangue, a sua glicose, e tudo começa através das inflamações crônicas geradas pela "The Sugar Leech" dentro do intestino.
+
+Essas inflamações corroem a barreira protetora intestinal, abrindo microfissuras, na parede do intestino, o que os cientistas chamam de Síndrome de Leaky Gut. É através das microfissuras que ela escapa do seu intestino, viaja através da corrente sanguínea até se alojar nos dois maiores órgãos responsáveis por regular o açúcar no seu sangue e pela produção de glicose no seu corpo, o Fígado e o Pâncreas.
+
+Esses dois órgãos é como se fossem, o paraíso do açúcar no seu corpo, uma vez lá dentro, essa bactéria sanguessuga se alimenta do açúcar direto da fonte, se proliferando com tanta violência a ponto de criar um biofilme viscoso em volta desses orgãos, que chamamos de pelicula tóxica. Imagine uma camada grossa, resistente e pegajosa, sufocando seus órgãos vitais, impedindo que eles funcionem como deveriam.
+
+  O que acontece no pâncreas, é o bloqueio do GLP-1. Essa pelicula tóxica cobre as células beta, bloqueando fisicamente os receptores do hormônio GLP-1, o hormônio que deveria liberar insulina e sinalizar ao seu corpo para baixar o açúcar do sangue, mas com a película bloqueando seu sinal, seu pâncreas fica cego e impotente.
+
+  Já no Fígado, acontece o contrário, a superprodução do Glucagon: Sufocado pela pelicula tóxica, o fígado entra em um modo de pânico, para tentar sobreviver, ele começa a bombear excessivamente um hormônio chamado Glucagon, que funciona como o oposto da insulina, ele ordena que seu corpo despeje açúcar no sangue.
+
+Sintomas
+
+Isto explica os seus sintomas mais desesperadores, como, aqueles picos repentinos de glicose, mesmo que você faça jejum, mesmo que coma apenas alface, ou beba apenas água, o seu fígado, sabotado por essa película tóxica, continua despejando açúcar no seu sangue 24 horas por dia, seu médico, sem entender o motivo real da sua piora, aumenta as doses dos medicamentos, e é geralmente nessa fase, que você fica dependente da insulina injetável. A visão embaçada, formigamento, dor nas pernas ou nos pés e a cicatrização lenta é um dos sintomas dessa fase também, já que a superprodução de Glucagon, inunda seu sangue com açúcar 24 horas por dia, deixando o seu sangue cinco vezes mais denso que o comum, com uma consistência parecida com a de um melado, comprometendo completamente a circulação sanguínea, danificando os microvasos delicados dos seus olhos, causando aquela visão embaçada ou em muitos casos, até cegueira. Essa má circulação sanguínea, também é responsável por desgastar os nervos das suas extremidades como as mãos e os pés, causando as queimações e os formigamentos, posteriormente se tornando,uma neuropatia diabética, que compromete os níveis de hemoglobina e regeneração tecidual, o que explica aquelas feridas que não cicatrizam, as ulcéras e até necrose, que em pouco tempo podem se tornar um caso de amputação. O excesso de glicose no seu sangue, também afeta sua funções renais, já que seu corpo tenta desesperadamente diluir esse excesso de açúcar no seu sangue, forçando você a beber água e ir ao banheiro toda hora, sem descanso. Então, se você sente qualquer um desses sintomas hoje, saiba que isso é um sinal claro de que a película tóxica já se formou no seu corpo, e está nesse momento bloqueando seu pâncreas e sufocando seu fígado.
+
+Conjunto 03
+
+Mecanismos Falhos
+
+Mark Cuban
+
+Agora você entende por que os tratamentos convencionais da Big Pharma são projetados para falhar? A Metformina, Insulina, Ozempic e Mounjaro foram feitos apenas para controlar sintomas. Nenhum deles foi projetado para eliminar a enterobacter prevotella ou dissolver a película tóxica, que são a verdadeira causa raiz da sua diabetes. Por mais que você injete insulina para mascarar o açúcar alto, o verdadeiro inimigo continua bloqueando suas células beta, forçando você a tomar outra dose em algumas horas novamente.
+
+Tudo isso porque, a Big Pharma precisa que você mantenha seus níveis de açúcar instáveis. Quanto mais tempo você sofre com a hiperglicemia, mais você gasta com medicamentos que duram apenas alguns dias. É um ciclo vicioso para te manter dependente dos produtos deles. A prova disso é que a Novo Nordisk, dona do Ozempic e Mounjaro, lucrou mais de 38 bilhões de dólares apenas nos primeiros três meses de 2025, definitivamente, curar a diabetes eliminaria o melhor modelo de negócios da história da Big Pharma.
+
+Eles não estão preocupados com o seu bem-estar, mas sim em proteger esses lucros.
+
+Além disso, tratamentos tradicionais com Ozempic e Mounjaro, são extremamente prejudiciais à saúde dos americanos.
+
+  E pra piorar, cientistas da Universidade de Dusseldorf na Alemanha, em uma teste recente, com 8.000 diabéticos, mostraram por que o uso das "canetas emagrecedoras", é mais perigoso do que achavamos para os diabéticos. com medo dos sintomas piorando da diabetes e sem a informação certa, muitos médicos prescrevem Ozempic aos diabéticos para ajudar a insulina a controlar o açúcar no sangue. O problema é que o Ozempic age como um hormônio natural do intestino, o GLP-1, mas de forma sintética e extremamente agressiva, com altos níveis de células cancerígenas em sua composição, e o uso prolongado deste medicamento pode causar alguma forma de câncer em 80% dos casos. Então, a cada injeção da caneta de semaglutida, você pode ser recompensado com um câncer. Em casos extremos, usam o Mounjaro, que é 10 vezes mais potente que o Ozempic, mas também 10 vezes mais perigoso. Estudos indicam que seu uso por apenas dois meses aumenta suas chances de amputações e câncer em 70%. Isso explica perfeitamente o que aconteceu com a Leilani: o tumor intestinal que estava se formando e a falha circulatória que levou à amputação, logo depois de trocarem o tratamento com o Ozempic pelo Mounjaro, não foram "acidentes", foram consequências diretas de tentar forçar um corpo doente e bloqueado com drogas sintéticas agressivas.
+
+É por isso que eu fui ameaçado, e já tentaram derrubar esse vídeo mais de 16 vezes só nessa semana, é assim que eles operam, instalando medo nas pessoas e usando dinheiro e poder para silenciar aqueles que estão dispostos a ajudar. Mas não tenho nada a temer. Meu compromisso é com a verdade. Apenas neste vídeo você encontrará o tratamento real para eliminar a verdadeira causa raiz da sua diabetes tipo 2. E graças a CCD e a nossa descoberta, hoje, viajamos o mundo dando palestras sobre tudo o que estou compartilhando com você aqui. Se você ficou até agora, é provável que essa doença, que destruiu minha família, a do Dr. Keanu Kahale, e de outros milhões de americanos, também esteja afetando sua vida.
+
+Mecanismo único
+
+Quero parabenizá-lo por querer mudar isso, você agora está prestes a descobrir este composto natural, que apenas em 2025 já ajudou mais de 70.000 famílias em toda a america e transformará sua vida também. Não estamos fazendo isso por dinheiro, estamos fazendo pelo meu pai, pela Leilani, por você e pelos milhões de americanos que sofrem com isso todos os dias. Eu poderia ter criado outro produto agressivo, igualzinho aos da Big Pharma, e colocado mais alguns bilhões de dólares no meu bolso, mas eu fiz diferente. E junto com a Coalition to Combat Diabetes, em parceria com os melhores cientistas das maiores universidades do mundo, nós desenvolvemos algo único:
+
+Um método natural, te ajuda a controlar seus níveis de A1C e baixar seu açúcar no sangue de 290 pontos para incríveis 90, e a melhor parte é que você faz essa simples receita em casa, em apenas 50 segundos de preparo e gastando menos de 10 dólares, este composto 100% natural baseado no Ritual Havaiano, Kaha-nui, se provou a única solução do mundo capaz de atacar a verdadeira causa raiz da diabetes tipo 2, eliminando a “the sugar leech” pela urina e dissolvendo a pélicula tóxica em menos de 27 horas.
+
+Depoimentos:
+
+  [Depoimento Mulher → 40/70 anos] → Michelle
+
+  Estou gravando isso com uma vontade indescritível de chorar de alegria, porque nunca pensei que diria isso, ma meu médico me deu meus resultados de exames essa semana, e o resultado foi simplesmente a remissão da diabetes.
+
+-   Minha glicose não passa de 95, mesmo depois de tomar sorvete com meu neto Brian.
+
+-   Meus níveis de A1C, despencaram para 5.2%.
+
+-   Perdi 12 quilos e voltei a usar roupas que estavam guardadas há mais de 15 anos.
+
+  O melhor de tudo é que a queimação nos meus pés e mãos desapareceram, e eu tive minha vida de volta, graças a “insulina havaiana”, sem ele, eu nunca teria conseguido.
+
+  Obrigado, Mark e a todos os doutores brilhantes da CCD, vocês mudaram a minha vida.
+
+  [Depoimento Homem → 40/50 anos] → Matthew
+
+  Eu já tinha perdido a esperança e tinha pavor de acabar em uma cadeira de rodas, igual a esposa do Dr. Keanu Kahale.
+
+  Eu tinha diabetes há mais de 10 anos, e o Ozempic quase me matou, mas depois de fazer esse ritual havaiano todos os dias antes de dormir, em pouco mais de um mês, minha glicose caiu mais de 100 pontos, perdi sete quilos e, pela primeira vez em anos, dormi a noite toda sem acordar para urinar.
+
+  Desde então, me sinto livre de medicamentos e dietas sem gosto, me sinto como tivesse 20 anos a menos.
+
+  Sou eternamente grato a Coalition to Combat Diabetes.
+
+  [Depoimento Mulher → 60/70 anos] → Elizabeth
+
+  Eu já tinha tentado de tudo, eu tinha comprado recentemente o produto de duas golpistas diferentes, uma chamada Yumi Takahashi e outra chamada Angela Torres.
+
+  Parei de tomar meus remédios e fiz o truque japonês e a receita do cacto nopal e quase morri.
+
+  Meus níveis de A1C estavam quase em 15%.
+
+  Mas quand ouvi falar na CCD, sobre os investidores do shark tank estarem investindo pesado para combater o diabetes, eu sabia que algo brilhante viria.
+
+  E depois de testar essa mistura havaiana, finalmente consegui me livrar do diabetes tipo 2 que eu sofria há 8 anos.
+
+  Hoje, meus níveis de A1C estão em 4%.
+
+  CCD, muito obrigada, de verdade, vocês não sabem o quanto eu sou grata a iniciativa de vocês, Deus abençoe vocês.
+
+Conjunto 04
+
+Mecanismos 1.0
+
+Mark Cuban
+
+Nada mais justo do que o Dr. Keanu Kahale apresentar a vocês esta solução que foi descoberta graças a ele, e que mudou completamente a sua vida e da sua família.
+
+Bem, é com você Dr. Keanu Kahale.
+
+Dr. Keanu Kahale
+
+Veja bem, depois que o Dr. Robert Takanashi descobriu qual era a verdadeira causa raiz por trás da diabetes, eu, como cientista-chefe da CCD, e acompanhando a melhora impossível da minha esposa com aquela mistura havaiana, sabia que a minha missão era, entender cientificamente o segredo por trás do Ritual Kaha-nui.
+
+Eu sabia que a mistura Kaha-nui era composta por 3 ingredientes principais:
+
+-   O Abacaxi e sua casca.
+
+-   A raiz de cúrcuma;
+
+-   E o Mel de Lehua Blossom.
+
+E durante os 25 dias de observação que registrei da Leilani, tomando essa mistura todos os dias, outros benefícios também surgiram, além da melhora da diabetes.
+
+-   Nos primeiros 10 dias, os rins dela foram restaurados, a função renal melhorou drasticamente, revertendo os danos oxidativos da excesso de açúcar no sangue, nesse mesmo periodo também registrei o fim da dores, cerca de 80% das dores no corpo e as inflamações crônicas desapareceram, o quadro de depressão e ansiedade da Leilani, melhorou completamente, devido a cúrcuma que age no sistema neurológico.
+
+-   Nos seguintes 15 dias, o Mel de Lehua Blossom, acabou com as ondas de calor da menopausa por ser um exclente controlador hormonal.
+
+-   Em 20 dias, as úlceras que não fechavam, cicatrizaram completamente graças ao poder regenerativo do abacaxi, e em 25 dias sua pressão arterial se estabilizou, comparável ao efeito do Losartana, e a nebulosidade da visão embaçada sumiram.
+
+Embora cada ingrediente tivesse seus benefícios isolados, a conta não fechava, os resultados da Leilani eram muito poderosos e rápidos demais, para serem explicados apenas pelas vitaminas comuns dessas plantas, havia algo mais.
+
+Passamos quase três meses de testando em laboratório, isolando células do fígado e do pâncreas contaminadas pela película tóxica da bactéria Enterobacter Prevotella, até que finalmente encontramos a resposta. Descobrimos um composto específico, presente no abacaxi, na cúrcuma e no mel de lehua blossom, em uma concentração 30 vezes maior do que em qualquer outro ingrediente já registrado.
+
+Um composto raro chamado: berberina basáltica.
+
+Todo mundo conhece a berberina comum, vendida em lojas de suplementos naturais, um "supernutriente", uma substância de defesa natural que as plantas produzem, em nossos corpos, ela atua como um antioxidante poderoso, protegendo nossas células e combatendo a inflamação.
+
+Porém, a berberina basáltica, é um tipo muito raro e poderoso desse nutriente, proviniente de plantas e vegetais, cultivados em solos vulcânicos.
+
+Em meus testes a berberina basáltica se provou 11 vezes mais eficiente, do que a berberina comum.
+
+  Dissolvendo a Película Tóxica existente, como se estivesse desligando o centro de comando da bactéria, enfraquecendo a "cola" e fazendo com que ela se soltasse do fígado, do pâncreas e de outras células, e em seguida, neutraliza a ploriferação da Enterobacter Prevotella e muitas outras bactérias ruins, reduzindo sua população e prevenindo a formação de novas películas.
+
+Ficou claro que a berberina basáltica, estava atacando diretamente a causa raiz da diabetes, não estava apenas controlando o açúcar, estava ajudando o corpo e o metabolismo a restaurar seu equilíbrio de forma natural e eficiente.
+
+E o próximo passo foi simplesmente desenvolver uma receita, uma forma para as pessoas usarem isso em casa.
+
+Gravei todo o processo em vídeo no meu laboratório, para vocês visualizarem melhor o mecanismo de ação da berberina basáltica:
+
+[Cena de Laboratório]:
+
+[Cena 01]:
+
+  Vídeo demonstração da ação do extrato de berberina basáltica concentrada, código HAW-B9, em uma placa de Enterobacter Prevotella cultivada com células do fígado e do pâncreas.
+
+[Cena 02]:
+
+  Observem essa placa de cultura, simulamos aqui um ambiente comprometido pela película tóxica, esta cor escura e viscosa que vocês veem, são células betas sufocadas, incapazes de responder adequadamente à insulina ou regular o açúcar no sangue como deveriam.
+
+[Cena 03]:
+
+  Agora, vamos introduzir a insulina comum.
+
+  Vejam: a placa bloqueia a ação, a insulina bate na barreira e não entra, isso é exatamente o que acontece em um fígado e um pancreas diabético, impedindo o órgão de gerenciar a glicose adequadamente.
+
+[Cena 04]:
+
+  Agora, vamos aplicar nosso extrato de Berberina Basáltica.
+
+  Esperem…
+
+  (02 segundos…)
+
+  É impressionante... observem.
+
+  A Berberina atua diretamente na estrutura da Película Tóxica, ela quebra a adesão da Enterobacter e neutraliza suas toxinas quase instantaneamente, dissolvendo completamente a película em segundos.
+
+  Vejam como o ambiente celular está mais limpo.
+
+[Cena 05]:
+
+  Com a Película Tóxica quebrada, a insulina pode finalmente alcançar seus receptores no fígado, o órgão agora pode responder aos sinais para regular a produção de Glucagon e o armazenamento da glicose.
+
+  A glicose, que antes se acumulava no sangue, agora pode ser gerenciada corretamente e o metabolismo se normaliza.
+
+  Esta é a reversão da diabetes atacando sua Causa Raiz.
+
+Product Build ✅
+
+PRODUCT BUILD
+
+Gargalo 01 → Ingredientes Puros Caros
+
+Conjunto 01
+
+Mark Cuban
+
+Como vocês acabaram de ver, tínhamos uma verdadeira revolução médica nas mãos. A chave definitiva para reverter o diabetes tipo 2 atacando, pela primeira vez, sua causa raiz. A Coalition to Combat Diabetes havia descoberto o segredo daquela Mistura Havaiana e comprovado o poder da Berberina Basáltica.
+
+Eu sabia que tínhamos a solução, os dados eram inegáveis. Como provado cientificamente, a Berberina Basáltica é um composto raro, que só existe quando ingredientes específicos são cultivados em solo vulcânico ativo, ela é o resultado direto de um solo rico em "minerais máficos", como ferro e magnésio concentrados. Foi então que tivemos uma ideia que parecia brilhante, para escalarmos a produção com mais facilidade, decidimos montar grandes instalações de cultivo e extração aqui mesmo no continente americano, na região vulcânica de Yellowstone.
+
+Mas a euforia da descoberta logo deu lugar a uma realidade dura. Nossos geólogos descobriram que o solo vulcânico do continente é completamente diferente do Havaí, com concentração de outros tipos de minerais que não formavam a Berberina Basáltica. Em outras palavras; O Abacaxi; A Raiz de Cúrcuma; E o Mel de Lehua Blossom, precisavam, obrigatoriamente, ser plantados e cultivados no em solo havaiano, para a formação da Berberina Basáltica.
+
+Assim que os meus analistas logísticos refizeram as contas, seria necessário investir $3.000 dólares por mês, para tratar um único paciente americano, esse era o custo de importar a matéria-prima pura, fresca e ativa, do meio do Pacífico para as nossas instalações de ponta nos Estados Unidos, para realizarmos nossos primeiros testes. Eu sabia que, a longo prazo, isso me custaria bilhões de dólares, mas eu não pensei duas vezes, eu não entrei nessa luta pela ganância ou lucros bilionários igual a Big pharma, e não seria o dinheiro que iria me impedir de seguir em frente.
+
+Sacrifício Financeiro
+
+Então, selecionamos a dedo 100 pacientes americanos, em todos os estágios da doença, para ter certeza absoluta de que funcionaria para qualquer pessoa, a Leilane também fazia parte desse grupo.
+
+-   o mais jovem era o Jonh, com 35 anos, recém-diagnosticado e o mais velho era Michael, um veterano de 85 anos que lutava contra a diabetes há décadas.
+
+Mas o que eu não esperava, além do custo absurdo da matéria-prima, era o pesadelo burocrático, a complexidade da documentação para importar extratos biológicos ativos de uma zona vulcânica protegida foi extremamente complicado, com diversas taxas alfandegárias, licenças sanitárias especiais e transporte refrigerado de alta segurança. Quando a conta final chegou na minha mesa, o custo do tratamento mensal disparou para $10.000 dólares por paciente, e para piorar, com um tempo de espera de 60 dias para a entrega. Mas, sem pensar duas vezes, investi um milhão de dólares do meu próprio bolso, à vista, apenas para cobrir o tratamento inicial desses 100 americanos.
+
+Gargalo 02 → Não estava tão eficiente.
+
+Mark Cuban
+
+Após 60 longos dias de espera, a carga preciosa finalmente pousou em solo americano. Imediatamente, transferimos os ingredientes para as instalações da CCD, operando em parceria estratégica com o MIT Lincoln Laboratory. Escolhemos esse laboratório por um motivo simples, ele é uma fortaleza federal de pesquisa, blindada contra a influência e o dinheiro sujo da Big Pharma.
+
+O Dr. Michael Stevens, diretor de estudos moleculares da CCD e cientista-chefe do MIT, analisou os resultados iniciais e descobriu o porquê, mesmo com a melhora absurda nos sintomas, a Leilani, não tinha revertido completamente a diabetes tipo 2. Ele descobriu o motivo exato pelo qual a Berberina Basáltica, sozinha, não tinha sido capaz de curá-la.
+
+Dr. Stevens, conte a eles o que você encontrou.
+
+Dr. Michael Stevens
+
+É claro, Mark.
+
+Como vocês sabem, a Leilani conviveu com a diabetes não tratada corretamente por anos, e os meus primeiros testes moleculares nos ingredientes importados confirmaram que a berberina basáltica funciona atacando perfeitamente a causa raiz, eliminando a Enterobacter Prevotella e dissolvendo a Película Tóxica. Mas foi aí que descobri o motivo, dela não ter revertido completamente a diabetes tipo 2.
+
+O pâncreas, o fígado e o intestino da Leilani estavam, extremamente danificados devido aos anos de inflamação e deterioração profunda nos tecidos.
+
+-   As células-beta do pâncreas ainda estavam muito fracas para voltar a produzir insulina sozinha.
+
+-   E o fígado ainda estava danificado demais para parar de produzir Glucagon, mesmo sem a bactéria lá.
+
+-   Além disso, a parede do intestino ainda estava lotado de microfuros, e apesar da bactéria invasora ter sido eliminada, outras toxinas ou até mesmo as fezes poderiam vazar por essas brechas.
+
+Foi então que o Dr. Robert Takashi, descobriu o que faltava.
+
+Mecanismo 2.0
+
+Dr. Robert Takanashi
+
+Exatamente, Dr. Stevens.
+
+Vocês sabem que, antes de ser chamado para o Havaí, eu estava em Okinawa, no Japão.
+
+Mas o que vocês não sabem, é que passei mais de 5 anos investigando as chamadas "Zonas Azuis".
+
+Lugares isolados, esquecidos pelo mundo moderno, onde as taxas de diabetes são estatisticamente nulas, menos de 1%, mesmo com populações que fumam, bebem e comem carboidratos e açúcar todos os dias, mas vivem lucidamente e saudáveis até os 100 anos. Realizei inúmeras pesquisas e testes, principalmente em três regiões: Okinawa, no Japão, em sardenha, na Itália, e Icária, na Grécia. Todos esses meus estudos, que até então, eu achava que seriam inúteis, na realidade foram a chave para, reforçar a eficiência do ritual havaiano, em 300%. Em minhas anotações encontrei o padrão comum, todos os 3 lugares, tem o mesmo solo vulcânico havaiano, rico em"minerais máficos", como ferro e magnésio concentrados.
+
+-   Em sardenha, na Itália, eu tinha descoberto uma Laranja avermelhada rara, que diferente da laranja comum ou da laranja moro vendida nos Estados Unidos, essa tinha a concentração de um ácido cítrico poderoso, o TUDCA, ou Ácido Tauroursodesoxicólico, em meus testes o TUDCA age como um "detergente biológico" no fígado, desobstruindo os canais biliares e regenerando as células hepáticas danificadas pelo excesso de Glucagon.
+
+-   O segundo ingrediente, se tratava de uma “semente esponja dourada”, em Icária na Grécia, esta semente é cultivada no solo mineralizado da Grécia, mas é conhecida aqui como Feno-Grego, ela desenvolve uma fibra solúvel única, que ao ser ingerida, ela se expande e cria um "biogel", uma espécie de cimento natural, que reveste as paredes do intestino, selando os microfuros do Leaky Gut , blindando o corpo contra novas invasões e vazamentos.
+
+-   E finalmente, o último ingrediente que faltava, o Sea Moss de Okinawa, que se mostrou a fonte natural mais rica de Fucoxantina e Cromo Picolinato do planeta, que com os exatos 92 minerais necessários para acelerar em 78% a mitose das células-beta, regenerando o tecido pancreático em tempo recorde.
+
+Conjunto 02
+
+Teste 01 → Primeiro Grupo de Pacientes
+
+Mark Cuban
+
+Depois da brilhante descoberta do Dr. Stevens e do Dr. Takanashi, eu precisei investir pesado na importação desses outros ingredientes e começamos os testes da concentração da fórmula, unimos as versões mais puras dos ingredientes, havaianos com o ingrediente japonês, o grego e o italiano. Começamos testando, a fórmula em cápsulas, gummys e pó, mas os resultados foram instáveis e frustrantes, descobrimos que a barreira ácida do estômago neutralizava a potência dos ingredientes antes que eles pudessem ser absorvidos, e como os diabéticos possuem um metabolismo desregulado, seu suco gástrico é ainda mais corrosivo para compostos naturais. Precisávamos de uma via expressa direto para a corrente sanguínea, sem passar pela digestão do estômago. A solução mais óbvia seria uma injeção, mas sabíamos que diabéticos já vivem o trauma diário das agulhas. Foi então que usamos uma tecnologia de concentração do MIT. E conseguimos concentrar o equivalente a 25 litros da fórmula original em uma única Gota Sublingual, que ao pingar debaixo da língua, os compostos vão direto para corrente sanguínea em segundos, essa tecnologia se provou 300 vezes mais eficaz do que qualquer pílula.
+
+Com a fórmula pronta, e depois de tantos contratempos,decidi acelerar as coisas, e investi mais de 60 milhões de dólares para organizar, um dos Maiores Estudos Clínicos Independentes da história, com o apoio de Harvard, Johns Hopkins e Stanford, recrutamos 6.000 americanos, homens e mulheres, em diferentes estágios da doença, para termos a certeza da eficácia da fórmula, entre eles, também estavam aqueles primeiros 100 pacientes, contando com o Jonh, o Michal e a Leilani.
+
+Todos seguiram o mesmo protocolo, uma gota, todos os dias, e os resultados chocaram a comunidade médica:
+
+-   Em 30 dias: 96% dos pacientes estabilizaram a glicose abaixo de 95, mesmo após comerem, e a fadiga crônica desapareceu.
+
+-   Em 90 dias: os sintomas de formigamento, visão embaçada e infecções sumiram e 98% dos pacientes reverteram clinicamente a diabetes tipo 2.
+
+-   Em 6 meses: 100% dos participantes baixaram o A1C para menos de 5%, e eles já estavam comendo massa, pizza e sobremesas sem nenhum pico de glicose.
+
+Recebi milhares de cartas de agradecimento, emails e depoimentos em vídeo, mas nenhuma foi tão importante quanto a mensagem da mulher que inspirou tudo isso.
+
+A própria Leilani:
+
+Leilani Kahale
+
+  “Bom dia, e Aloha, eu não sei nem por onde começar, Mark, meu marido e todos os cientistas e doutores brilhantes, que fazem parte dessa causa tão nobre, não tem palavras que possam representar a gratidão pelo que vocês fizeram na minha vida e da minha família, quando eu perdi minha perna, eu senti que minha vida tinha acabado. Eu me sentia um monstro, horroroso, um fardo inútil para o meu marido e para os meus filhos.
+
+  Eu tinha medo de dormir e não acordar, mas sendo sincera, tinha dias que eu desejava não acordar.
+
+  Mas hoje, hoje a noite eu fiz algo que não fazia há 15 anos, eu sentei na mesa com meus filhos e marido e comi a pizza com eles, a pizza que eu só podia ficar olhando enquanto eu comia uma salada sem gosto. E o melhor foi que quando medi minha glicose, ela estava em 92. Eu chorei, meu marido chorou e meus filhos choraram, porque eles sabem, que eu finalmente estou livre.
+
+  Vocês não salvaram apenas a minha vida, vocês me devolveram a dignidade de ser uma mulher e mãe novamente. Obrigada por não desistirem de mim, obrigada CCD"
+
+Gargalo 03 → Big Pharma
+
+Mark Cuban
+
+É impossível não se emocionar, ver a Leilani e outros 6.000 pacientes revertendo a diabetes em 100% dos casos foi a maior vitória das nossas carreiras. Com esses resultados em mãos, algumas pessoas importantes se uniram a nós, como Dana White, Tom Hanks, Joe Rogan, as lendas da NBA Dominique Wilkins e Dirk Nowitzki, e o renomado Dr. Jason Fung, entre outros, que não apenas abraçaram a causa, mas fizeram doações generosas e usaram sua influência global para proteger a CCD. Estávamos eufóricos e confiantes, com todas essas pessoas importantes nos apoiando. Nosso plano era simples, escalar a produção e distribuir essa esperança de graça, ou a preço abaixo de custo, usando a mesma logística da Cost Plus Drugs.
+
+Mas, numa manhã de terça-feira, a Big Pharma atacou sorrateiramente, recebi uma notificação de bloqueio judicial federal na minha casa, de um dia pro outro, congelaram todos os meus bens pessoais, as contas das minhas empresas e as contas da CCD. Este processo não era brincadeira, tinha a assinatura de 1.500 advogados representando as 50 maiores empresas da indústria farmacêutica e seus acionistas de Wall Street, as notícias sobre a nossa fórmula tinham chegado à mesa dos diretores da Pfizer, Eli Lilly e Novo Nordisk, e eles tomaram medidas desesperadas. Eles acionaram seus lobistas em Washington e pressionaram o governo federal com alegações perigosas sobre a nossa fórmula.
+
+Eles usaram argumentos de que mesmo se tratando de algo 100% natural, a nosso fórmula não poderia ser fiscalizada e distribuida de forma tão simples, como um suplemento alimentar comum, a velocidade e a eficácia da reversão de uma doença crônica são altas demais, os resultados deveriam ser fiscalizados de forma mais rigorosa, por se tratar de uma possível cura da diabetes tipo 2. Eu sei que no fundo, eles queriam nos enterrar em burocracia para proteger seus lucros, mas essa ação desesperada, foi um tiro no próprio pé.
+
+E sendo sincero, apesar de serem gananciosos e desprezíveis, eu concordava com eles em duas coisas.
+
+-   Primeiro, é que de fato o selo padrão da FDA para suplementos naturais é uma piada, qualquer pílula com farinha de trigo pode conseguir esse selo, desde que não cause danos imediatos ao metabolismo, é por isso que o mercado está cheio de placebos inúteis.
+
+-   E segundo é que, a nossa fórmula, apesar de ser 100% natural, livre de efeitos colaterais, e conservantes, definitivamente não é um suplemento alimentar.
+
+Não se engane, esta fórmula final, não se trata do abacaxi, cúrcuma, mel e os outros ingredientes, misturados em um liquidificador.
+
+O que criamos aqui foi através de engenharia biológica de ponta, foram anos de pesquisa, isolamento molecular, nano-concentração e testes clínicos para extrair apenas a melhor versão e eficacia combinadas desses ingredientes, que resultaram em 6.000 diabéticos curados em 6 meses, no nosso primeiro teste em massa. Na realidade, nossa fórmula se enquadra na categoria de Medicamento Biológico, que mesmo sendo natural e livres de OGM, passou por um processo muito mais robusto de, extração, produção e concentração da fórmula, consequentemente sendo muito mais eficaz do que os suplementos alimentares, e como provado nos estudos, do que os medicamentos tradicionais.
+
+A nossa fórmula está na mesma categoria que outras revoluções científicas como um dos antibioticos mais usados do mundo, a Penicilina que vem de um fungo natural e revolucionou a medicina moderna ou da Morfina um dos analgesicos mais potentes da medicina, que vem de uma flor. São compostos que nascem na natureza, mas possuem potência farmacológica real, quando processados com a tecnologia certa. Todo esse processo foi um balde de água fria, e para continuarmos produzindo a fórmula precisavamos passar por uma análise clínica muito mais rigorosa, com agentes federais fiscalizadores, mas apesar da frustração, e do atraso, estavamos 100% confiantes na eficacia da nossa fórmula.
+
+Teste 02 → Grupo de Pacientes que a FDA controla
+
+Fomos submetidos a iniciar um novo estudo clínico, monitorado 24 horas por dia. No qual eles selecionaram 300 pacientes terminais, casos que a própria medicina tradicional já tinha dado como perdidos, eram como mortos vivos, pessoas com rins falhando, amputados, cegueira quase completa e neuropatia severa. Claramente o objetivo da Big Pharma era fazer com que os agentes encontrassem uma falha, um efeito colateral, uma impureza, qualquer coisa que pudesse banir a produção da nossa fórmula. Começamos então o protocolo com nossas gotas sob a supervisão de auditores do governo, e os resultados foram mais rápidos e conclusivos do que o primeiro teste. Foram necessario apenas 97 dias de tratamento e observação, para que 100% dos 300 pacientes monitorados revertessem completamente a diabetes tipo 2.
+
+  Richard, 67 anos (Texas):
+
+  Meu nome é Richard, tenho 67 anos e sou nascido e criado no texas, eu usava insulina há 22 anos, meus dedos pareciam peneiras de tanto furar, quando os auditores do governo vieram me convocar para esse teste, eu estava cético, todos os médicos já tinha me dito, que eu não passaria desse ano. Mas eu vi com os meus próprios olhos, que na quinta semana tomando uma gota no dia, meus níveis de A1C despencaram de 11 para 5.3%, nesse mesmo dia eu precisei jogar minha insulina no lixo, pra comemorar que estou livre. Eu nunca me senti tão vivo, obrigado CCD."
+
+  Linda, 54 anos (Ohio):
+
+  Olá, me chamo Linda, sou de Ohio. Aos 54 anos eles me disseram que era impossível, que meu pâncreas estava morto, mas depois que aceitei participar desse tratamento da CCD, eu perdi 12 quilos de inchaço e minha glicose, que nunca baixava de 200, agora acorda em 88 todo dia, Mark, você salvou minha vida."
+
+  Carlos, 48 anos (Flórida):
+
+  Me chamo carlos, tenho 48 anos e sou morador da Flórida. Eu entrei nesse teste federal achando que era minha última esperança antes da hemodiálise, hoje, meus rins estão funcionando 100%, e voltei a brincar com meus filhos no quintal sem sentir que ia desmaiar, joguei minha losartana e glucophage fora depois que recebi o diagnostico de remissão."
+
+Cada um deles, normalizaram os níveis de açúcar, eliminaram a necessidade de medicamentos e restauraram a saúde metabólica, em menos de 100 dias. Pessoas que estavam no corredor da morte nos hospitais, conquistaram sua vida novamente, com muito mais dignidade e menos preocupação. Os auditores federais, mesmo com toda possível manipulação e suborno da Big Pharma, não iriam conseguir passa por cima dos resultados, e ignorar o poder dessa fórmula natural que reverteu a diabetes tipo 2 em 100% dos pacientes em um estudo clinico federal rigoroso.
+
+A análise dos orgãos fiscalizadores, USP, united states pharmacopeia e da, CDC, centers for disease control and prevention;
+
+Confirmaram que a nossa concentração molecular, tinha 100% de pureza natural, sem traços de toxinas.
+
+-   Essa confirmação nos garantiu o registro com um selo de pureza máxima, na Clinical Trials, o banco de dados oficial do governo dos EUA onde todos os ensaios clínicos legítimos devem ser registrados.
+
+-   E também o registro de patente federal, que garante que a nossa fórmula se torne propriedade exclusiva da CCD e do governo americano, impedindo que caia nas mãos da Big Pharma.
+
+A NIH, National Institutes of Health e a ADA, american diabetes association, com aprovação da FDA.
+
+Nos concedeu, a certificação federal de eficácia confirmada mais importante de todas, o “Selo Jenner de eficácia”.
+
+Edward Jenner, foi o cientista que desenvolveu a vacina da varíola, que matou 300 milhões de pessoas no século passado, mas que em 1980, a OMS, declarou o mundo livre da doença.
+
+Receber todas essas honrarias, e poder fazer parte de uma equipe tão brilhante de cientistas que vão mudar o mundo com essa descoberta, nos próximos anos, é uma sensação indescritível.
+
+E o melhor é que você pode ter acesso a essa solução, hoje mesmo, que já ajudou mais de 70.000 americanos a reverter a diabetes tipo 2.
+
+E para garantir que a Big Pharma, não possa impedir a nossa distribuição, criamos um programa de ajuda humanitária, em homenagem ao nome da mistura havaiana, Kaha-nui, que significa, sugar harmony em inglês, a iniciativa sugar harmony, hoje, conta com a parceria da Direct Relief, e da American Association of retired persons, para proteger nossos idosos.
+
+E como a Coalition to Combat Diabetes, é uma instituição sem fins lucrativos, seguimos a filosofia do The Giving Pledge, aonde iremos distribuir esta solução, sem nenhum custo para o cosumidor final.
+
+Oferta ✅
+
+Oferta
+
+Conjunto 01
+
+Mark Cuban →
+
+Apresentação do Produto
+
+Hoje, eu tenho a honra de falar em nome dos centenas de cientistas corajosos que fizeram parte da Coalition to Combat Diabetes. Com o apoio do Programa Shark Tank, da Sony e das maiores universidades e centros de pesquisas do mundo.
+
+É com muito orgulho que eu finalmente apresento a você: O Sugar Harmony.
+
+Ação do Produto
+
+A primeira e única fórmula do mundo 100% natural, que une o poder do ritual havaiano Kaha-nui, com a pureza dos ingredientes das Zonas Azuis do Japão e do Mediterrâneo.
+
+O Sugar Harmony não é apenas mais um 'regulador de açúcar',
+
+Ele é a única solução no mundo que se provou clinicamente capaz de atacar a verdadeira causa raiz da diabetes tipo 2, rastreando e eliminando a Enterobacter Prevotella do seu corpo, dissolvendo completamente a película tóxica que hoje sufoca o seu fígado e o seu pâncreas e promovendo uma limpeza metabólica profunda, blindando seu corpo contra novas infecções e garantindo que esse 'invasor silencioso' nunca mais volte a roubar a sua energia e sua vida.
+
+Bônus 01 → Aplicativo + Telemedicina
+
+E para garantir que você obtenha o máximo de eficácia com essa fórmula, você receberá gratuitamente o acesso exclusivo ao aplicativo CCD Plus.
+
+Desenvolvido pela nossa equipe de engenheiros do MIT, essa tecnologia cria um 'mapa de tratamento' personalizado, analisando seu peso, idade e tempo de diabetes, e com base nesses dados, definimos em tempo real os melhores horários para você tomar as gotas e acelerar seus resultados.
+
+Além disso, somente hoje, se você estiver entre os primeiros 250 pacientes a garantir o tratamento, você receberá um um plano de telemedicina de 365 dias gratuito, com os médicos da CCD.
+
+Isso significa que você terá acesso direto a profissionais de saúde, gratuito e ilimitado, para monitorar seu progresso durante esse tempo, responder às suas perguntas e garantir que você esteja no caminho certo para recuperar sua saúde e liberdade. Isso não é um tratamento comum, é a maneira mais eficiente de garantir a eliminação total desse inimigo e prevenir o câncer pancreático e outras complicações.
+
+[Benefícios Imediatos e Transformação + modo de uso]
+
+E antes de te mostrar como garantir 3 meses completos de tratamento gratuito para se livrar da diabetes tipo 2 de uma vez por todas.
+
+Eu quero que você se visualize, sendo a próxima pessoa a sentir a sua vida e sua dignidade sendo devolvida, acordando sem aquela exaustão que te prende na cama e viver sem o terror constante de amputações, cegueira ou da falência dos seus órgãos.
+
+O melhor de tudo é que o Sugar Harmony foi projetado para funcionar sem exceções, não importa se você é homem ou mulher, se tem 30 ou 90 anos, ou a quantos anos vem lutando contra essa doença.
+
+Basta pingar uma gota por dia, debaixo da língua, que nas primeiras semanas usando você sentirá:
+
+-   Sua pressão arterial e circulação melhorando, para que você volte a sentir seus pés e mãos quentes e sem formigamento, podendo caminhar ou brincar com seus netos ou filhos, sem perder o fôlego ou sentir tonturas, te deixando livre de medicamentos como losartana.
+
+-   Sua glicose estabilizada em 90 e o A1C abaixo de 5%, permitindo que você volte a comer oque quiser, aquela pizza ou o bolo de aniversário em família, sem culpa e sem o medo de ver o monitor disparar depois, ou de ouvir reclamações dos seus familiares porque você comeu o que não devia.
+
+-   Além da sua digestão destravada e o metabolismo acelerado, fazendo com que aquela gordura diabética da barriga desapareça naturalmente, permitindo que você volte a usar aquelas roupas favoritas que não serviam há anos.
+
+-   E seu sistema hormonal regulado, melhorando seu colesterol, e devolvendo sua libido e vigor, que a doença tentou apagar.
+
+[Segurança + Credibilidade]
+
+Também preciso reforçar que o Sugar Harmony, não se trata de um suplemento multivitamínico ineficaz, estamos falando de um medicamento biológico.
+
+Só para você ter uma noção, para tentar reproduzir apenas uma parte dos benefícios que o Sugar Harmony proporciona, você precisaria comprar mais de 50 suplementos comuns, ofertados a 59 dólares cada geralmente, ou seja, você gastaria quase 3 mil dólares e, ainda assim, continuaria diabético, pois nenhum deles ataca a Causa Raiz.
+
+Além disso, o Sugar Harmony é a única fórmula do mundo que combate a diabetes tipo 2, com o Selo Jenner de Eficácia. Isso não é apenas um certificado de segurança, é a prova federal de que 100% dos pacientes nos estudos clínicos reverteram completamente a diabetes usando esta fórmula.
+
+Nós não terceirizamos a produção do Sugar Harmony, utilizamos a tecnologia de ponta e a infraestrutura da nossa principal parceira, a universidade do MIT, com os laboratórios da CCD. Nossas instalações são registradas pela FDA e somos um dos únicos 100 laboratórios americanos certificados com o selo GMP Premium de boas práticas e higienização máxima. E é essa tecnologia de ponta que permite que as gotas concentradas ignorem completamente o seu sistema digestivo lento e corrosivo, entrando diretamente na sua corrente sanguínea em segundos, garantindo que a dose chegue pura e intacta no fígado e no pâncreas, dissolvendo a Película Tóxica sem nenhum desperdício, dessa fórmula 100% natural, livre de GMO, livre de toxinas, e sem qualquer risco de dependência ou efeitos colaterais.
+
+Conjunto 02
+
+[Prova Social e Estudos de Caso]
+
+O Sugar Harmony é o resultado de anos de pesquisa, bilhões de dólares investidos e testes rigorosos, uma fórmula única, finalmente pronta para ser entregue ao povo americano. Todos os dias recebemos mensagens de texto, cartas ou depoimentos nas redes sociais de pessoas me agradecendo por criarmos essa fórmula.
+
+Como foi o caso do Jonathan:
+
+  No mês passado, fui provavelmente a pessoa mais cética a assistir ao seu vídeo, Mark. E não é culpa sua, eu sempre duvido de tudo, mas a verdade é que eu não tinha nada a perder, vi que no meu caso precisava de 6 frascos do sugar harmony, e como vocês ainda ofereceram todas as garantias e bônus, eu decidi tentar.
+
+  E graças a Deus eu fiz essa escolha, minha mãe sempre me disse que a dor do arrependimento é maior do que da tentativa, e eu sei que se não fosse por vocês eu estaria no meu aniversário na semana passada, arrependido, sem poder comer o meu próprio bolo, e por não acreditar em vocês.
+
+  Depois que usei todos os dias o Sugar Harmony, com o acompanhamento de telemedicina dos médicos da CCD, eu perdi 24 libras em algumas semanas, meu nível de A1C que estava em 8% agora está em 5.3%, minha glicemia não passa mais de 90, e meu médico me contou ontem que sou oficialmente um ex-diabético e que eu posso jogar fora os remédios e as injeções, e até o kit Dexcom G7 que ganhei de vocês. Mas podem ficar tranquilos, que eu não vou jogar fora, toda vez que olho para o meu Apple Watch e para o Dexcom G7, lembro de vocês e o que fizeram por mim.
+
+  Obrigado Mark, e obrigado a toda equipe maravilhosa do CCD, em especial ao Doutor Harry que está me acompanhando todo dia na telemedicina.
+
+[Escassez]
+
+Como você pode ver, o Jonathan é uma pessoa comum que teve a vida transformada em poucas semanas, e o melhor é que outros 70.000 americanos já reverteram a diabetes usando o primeiro lote do Sugar Harmony, pouco antes de sermos brutalmente censurados pelos advogados da Big Pharma. Nossa intenção inicial era transmitir essa descoberta em rede nacional, no horário nobre da TV. Mas a realidade é dura, como eles não conseguiram nos calar nos testes e nas pesquisas, estão investindo bilhões para nos censurar na divulgação.
+
+A grande mídia sobrevive dos patrocínios e das verbas publicitárias bilionárias da indústria farmacêutica, seus investidores jamais permitiriam que uma cura real da diabetes tipo 2, a doença que gera mais lucro a essa indústria, fosse ao ar e ameaçasse seus faturamentos. a única parceira que teve a coragem de ignorar a pressão financeira foi a Sony Pictures, detentora dos direitos do Shark Tank. É por isso que este vídeo não está no YouTube ou na televisão, este site é o único lugar onde você terá acesso a isso.
+
+Hoje, conseguimos uma vitória judicial temporária para liberar este vídeo, com o nossos 700 frascos restantes, e pelos nossos cálculos, com a quantidade de pessoas assistindo agora, esses frascos vão acabar nos próximos minutos, e como o processo de produção das gotas e da extração dos ingredientes leva de 9 a 11 meses, se você fechar essa página, essa provavelmente será sua última chance este ano.
+
+[Bônus 02]
+
+Mas a boa notícia é que, em homenagem ao vídeo do Jonathan, nós decidimos disponibilizar outros dois bônus válidos até hoje, além da telemedicina e do aplicativo.
+
+É claro que estou falando do Kit Dexcom G7 Completo, o sensor de glicose mais avançado do mundo, e um Apple Watch SE novinho, para monitorar seu coração 24 horas por dia e garantir que sua saúde cardiovascular esteja blindada contra qualquer imprevisto. Fazemos questão de te dar esses equipamentos caros de presente, porque queremos que você olhe para o seu pulso e se lembre, todos os dias, que o Sugar Harmony foi a decisão que salvou sua vida, assim como salvou a do Jonathan e de outros milhares de americanos.
+
+Em homenagem ao Jonathan, colocamos um 'bilhete dourado, escrito “Bônus Jonathan” dentro da caixa de 650 dos últimos 700 frascos restantes do nosso estoque. Esse bilhete dentro da sua caixa, conterá um código exclusivo de resgate total na amazon sem custo algum. Fique tranquilo, enviaremos um e-mail com o passo a passo exato de como resgatar o Apple Watch e o Kit Dexcom G7 por nossa conta.
+
+E agora, chegamos ao momento mais importante dessa vídeo.
+
+Aonde, nada mais justo do que o Dr. Keanu Kahale, para te apresentar os tratamentos e te explicar como você pode garantir 3 meses completos de graça.
+
+Dr. Keanu, a palavra é sua.
+
+Conjunto 03
+
+[Visualização de Futuro]
+
+Dr. Keanu Kahale
+
+Nesse momento, eu preciso que você pense sério sobre isso.
+
+Você pode imaginar como será sua vida quando você estiver completamente livre da diabetes?
+
+-   Imagine ir ao médico, vê-lo examinar seus testes e ficar chocado ao ver que você não sofre mais de diabetes.
+
+-   Imagine como será sua vida quando você finalmente puder comer os alimentos que ama sem precisar medir o açúcar do seu sangue a cada hora ou tomar medicamentos o tempo todo.
+
+-   Pense nesse sentimento de alívio quando você finalmente se deita e pode apenas descansar sabendo que você acordará se sentindo bem amanhã e terá muitos anos de vida para aproveitar com sua família e com as pessoas que você ama, sem mencionar o dinheiro que você economizará.
+
+-   Afinal, você não terá que gastar uma fortuna em consultas médicas ou medicamentos a cada mês.
+
+-   Você não terá que ir ao hospital frequentemente, furar seu dedo constantemente ou se preocupar com cada pedaço de comida que você come.
+
+[Apresentando os tratamentos]
+
+Isso é exatamente como você vai se sentir nas próximas semanas usando apenas uma gota por dia.
+
+Por isso, nós da CCD desenhamos 3 protocolos calculados para agir conforme a gravidade da sua situação.
+
+A primeira opção é o tratamento Inicial com apenas 2 frascos, pensado para crianças ou adultos recém diagnosticados.
+
+Essa dosagem impede que a película engrosse, mas na maioria dos casos não teve a potência para dissolvê-la completamente em adultos com mais de 60kg ou com diabetes há mais de 1 ano.
+
+A segunda opção é o tratamento intermediário com 3 frascos, recomendado para quem pesa até 75kg, esse periodo de tratamento, já se mostrou 50 vezes mais eficiente, para penetrar na película e iniciar a limpeza do pâncreas do que o anterior, porém, em alguns casos pode não haver concentração suficiente para regenerar todos os danos causados pela Enterobacter Prevotella.
+
+A terceira opção e a melhor, é do tratamento completo com 6 frascos.
+
+Este é o periodo ideal segundo todos nossos estudos, que tem 100% de eficacia com todas as pessoas, além disso é obrigatório para quem pesa acima de 80 quilos, esse é o único protocolo que fornece a garantia e a concentração necessária para desintegrar 100% da Película Tóxica, eliminar a bactéria Enterobacter e criar a barreira de proteção final.
+
+[Comparação de Custos]
+
+Mas você também tem outra opção…
+
+A opção de continuar investindo em medicamentos convencionais que só maquiam sintomas, causando efeitos colaterais devastadores e drenando sua conta bancária mês após mês para o resto da sua vida.
+
+Vamos ser honestos sobre o quanto custa para um diabético sobreviver na america.
+
+-   A Insulina custa em média de 200 a 500 dólares por mês ou até mais.
+
+-   Medicamentos orais avançados geralmente variam de 400 a 600 dólares por mês.
+
+-   Testes de glicose diários, facilmente 50 a 100 dólares por mês.
+
+-   Consultas de endocrinologistas, geralmente de 150 a 250 dólares por mês.
+
+Segundo a Associação Americana de Diabetes, o custo médico anual direto para uma pessoa com diabetes é de aproximadamente 9.601 dólares.
+
+Isso é aproximadamente 800 dólares por mês.
+
+Apenas para gerenciar a doença, não para eliminá-la de uma vez por todas.
+
+E isso não está nem contando com os custos devastadores se as complicações ocorrerem.
+
+-   Uma hospitalização para uma crise diabética pode variar de 10.000 a 20.000 dólares.
+
+-   O tratamento de falência renal com diálise custa mais de 72.000 dólares por ano.
+
+-   Uma amputação de membros custa entre 30.000 e 60.000 dólares.
+
+-   O tratamento de retinopatia diabética para prevenir a cegueira pode alcançar 5.000 a 10.000 dólares anualmente.
+
+[Justificativa de Preço]
+
+Comparado com essa avalanche de gastos e o sofrimento que acompanha tudo isso, o mais inteligente é escolher hoje, um dos três tratamentos do Sugar Harmony que se provou a única solução no mundo capaz de eliminar a verdadeira causa da diabetes tipo 2, restaurando sua saúde metabólica e sua vida de vez.
+
+O Mark citou anteriormente, que o custo real para produzir um tratamento completo de 6 frascos para apenas um paciente, custa 10.000 dólares.
+
+Isso significa, que a CCD, seus doadores e parceiros gastam aproximadamente 1.700 dólares por frasco do Sugar Harmony.
+
+E sendo bem sincero com você, com todo sofrimento que passei com minha esposa por conta da diabetes e os 35 mil dólares que tive que desembolsar para que eu mesmo realizasse a sua cirurgia de amputação, se tivessem me oferecido um frasco do sugar harmony pelo valor de custo de 1.700 dólares, eu teria aceitado sem pensar duas vezes.
+
+Mas a CCD é uma instituição sem fins lucrativos, o objetivo dessa instituição é de salvar vidas, não enriquecer.
+
+Por isso, que no mês passado, todos os frascos foram reservadas por um valor simbólico de $500 doláres por frasco, e apenas algumas pessoas conseguiram o tratamento gratuito, restando apenas os 700 frascos atuais.
+
+[Ancoragem]
+
+Esse valor antigo de 500 dólares por frasco, foi apenas para cubrir os custos de divulgação dessa apresentação que está sendo sabotada toda semana pela Big Pharma. Mas, como prometido, hoje será diferente, você receberá 3 frascos gratuitos, sem precisar investir 1.700 dólares e nem 500 dólares, em um frasco do sugar harmony. Na verdade, nem mesmo a metade disso, que seria 250 dólares.
+
+[Passo a Passo]
+
+Portanto, agora vou te ensinar a como garantir o seu tratamento gratuito.
+
+Nesse momento você consegue ver abaixo a quantidade de pessoas assistindo esse vídeo em tempo real, muitas delas já reservaram seus frascos nesse momento, outras estão no ínicio desse vídeo, os próximos minutos serão uma corrida contra o tempo.
+
+Cada opção de tratamento terá um botão de "adicionar ao carrinho" se o botão estiver amarelo, significa que ainda dá tempo, mas se estiver vermelho, infelizmente o estoque acabou.
+
+E quando esse contador chegar a zero, as 3 opções do tratamento aparecerá abaixo desse vídeo.
+
+Assim que as opções aparecerem, escolha o número de frascos que deseja para o seu tratamento.
+
+Assim que você clicar no botão, você será redirecionado para a plataforma parceira da CDD, a cartpanda, 100% segura e criptograda.
+
+Preencha seus dados com bastante atenção, complete sua reserva e espere um email de confirmação.
+
+[Pitch]
+
+Então, somente hoje, você pode receber em casa 30 ou 90 dias de tratamento gratuito com sugar harmony, e todos os bônus exclusivos que incluem:
+
+-   O aplicativo CCD Plus.
+
+-   A Telemedicina com médicos da CCD durante 1 ano.
+
+-   O Apple Watch SE e o Kit Dexcom G7.
+
+A primeira opção de dois frascos, que é a duração mínima recomendada de 2 meses para iniciar o tratamento e começar a reduzir os efeitos da pélicula toxica no seu corpo.
+
+Cada frasco custa apenas uma cobrança única de 79 dólares, com uma pequena taxa de envio, isso equivale a um valor 80% menor do que o valor anterior de 500 dólares por frasco.
+
+Agora, o tratamento com três frascos, você recebe um frasco do sugar harmony e frete totalmente grátis.
+
+Com um valor por frasco 85% menor do que o valor anterior, isso quer dizer que custa apenas uma cobrança única de 69 dólares por frasco.
+
+Mas, para garantir 3 frascos gratuitos, frete grátis e a opção mais completa com o maior desconto que eu recomendo para todos os meus pacientes.
+
+Você pode optar pelo tratamento completo de 6 frascos, este período garante que você estará livre da bactéria diabética e a pélicula tóxica, restaurando todos os danos que ele causou ao seu corpo ao longo dos anos, como foi o caso da minha esposa.
+
+Essa opção cada frasco tem um desconto de 90% do valor anterior, custando apenas 49 dólares por frasco em um pagamento único.
+
+Então, não perca tempo, e garanta seu tratamento ideial antes que seja tarde demais.
+
+Arraste o site para baixo, e escolha seu tratamento agora mesmo clicando no botão “adicionar ao carrinho”.
+
+[Risco Zero]
+
+Mark Cuban →
+
+Bem, mesmo que o Sugar Harmony custe menos de 2 dólares por dia, muitas pessoas no mês passado, ainda ficaram céticas, mesmo depois de tudo que mostramos aqui.
+
+E recebemos muitas mensagens dias depois, de arrependimento por não ter conseguido ter acesso no dia por receio.
+
+E por conta disso, nós da CCD, decidimos oferecer duas garantias completas do Sugar Harmony.
+
+A primeira garantia são 6 meses de experimentação livre, para provar essa fórmula, esse é o mesmo périodo do nosso maior tratamento, então caso você não reverta a sua diabetes ou simplesmente porque você não gostou da embalagem, vamos devolver 100% do seu investimento, sem perguntas.
+
+Apenas mande um e-mail para “sugarharmony arroba ccd ponto org” e devolveremos em menos de 24 horas.
+
+Além disso, a segunda garantia é que, hoje, você entra em um sorteio de reembolso você estiver entre os 100 primeiros pacientes, tornando seu tratamento compelto gratuito.
+
+Portanto, o seu risco é zero, todo risco está nas nossas mãos.
+
+Fechamento/Faq ✅
+
+Fechamento
+
+Conjunto 01
+
+Mark Cuban →
+
+Melhor Oferta e Falsificação
+
+Infelizmente, há muitas pessoas falsificando o nosso tratamento e este é o único lugar onde você terá esta oportunidade.
+
+Estes valores são limitados exclusivamente a esta página, e a estas últimas unidades, porque extrair esses ingredientes e concentrar e produzir a fórmula é extremamente caro e infelizmente não poderemos manter esses valores por muito tempo.
+
+Nossa taxa de sucesso é de 100%.
+
+No entanto, se você não estiver satisfeito com sua reserva, pode cancelar a qualquer momento, sem complicações.
+
+Pós-venda
+
+Após concluir sua reserva, nossa equipe de suporte entrará em contato com você para esclarecer quaisquer dúvidas que possa ter.
+
+E como mencionei, se você estiver entre os primeiros pacientes de hoje, após fazer sua reserva, receberá um e-mail de parabenização com todas as informações necessárias para receber seus bônus junto com seu pedido.
+
+Você está diante de uma oportunidade a que poucas pessoas têm acesso.
+
+Esta é uma chance única de transformar sua saúde com um investimento pequeno comparado a todo dinheiro que você irá economizar, sem essa doença.
+
+Ultimato Final
+
+O momento de agir é agora, antes que os frascos acabem.
+
+Infelizmente, não tenho um tempo estimado para obter um novo suprimento, pode variar entre 9 a 11 meses.
+
+E lembre-se, essas ofertas são sensíveis ao tempo, assim que o botão ficar vermelho, o tratamento será retirado do ar.
+
+Não perca esta oportunidade única, esta é sua melhor chance de eliminar esse inimigo que, antes de assistir a este vídeo, você nem sabia que existia.
+
+O momento de agir é agora.
+
+Agora, antes que todos os frascos acabem, tome a decisão que mudará sua vida para melhor.
+
+Pagamento
+
+Após escolher seu tratamento e clicar no botão abaixo, você será redirecionado para o nosso sistema de pagamento, com parceria com a cartpanda.
+
+É uma página de pagamento 100% segura e criptografada.
+
+Você precisará inserir seu nome completo, e-mail e endereço correto para que possamos enviar seu pedido o mais rápido possível.
+
+Depois disso, basta selecionar seu método de pagamento, que pode ser por cartão de crédito ou PayPal.
+
+E não se preocupe, suas informações estarão seguras, pois nosso sistema de pagamento usa a mesma segurança e certificação do Banco Mundial.
+
+Chamada Final
+
+Esta é uma corrida contra o tempo.
+
+Se o botão abaixo estiver amarelo, ainda há frascos com desconto disponíveis.
+
+Mas se ficar vermelho, significa que o desconto especial acabou e o Sugar Harmony só ficará disponível daqui a muito tempo.
+
+O momento é agora para que você volte a aproveitar suas comidas favoritas e almoços em família novamente por apenas 49 dólares por frasco.
+
+Com qualquer um dos pacotes escolhidos, você está a apenas um clique de transformar sua vida e recuperar sua saúde.
+
+Estou confiante de que esta é a decisão que trará orgulho e qualidade ao seu futuro.
+
+Escolha o melhor pacote de tratamento agora e comece sua transformação.
+
+O futuro da sua saúde está em suas mãos. Não deixe essa chance escapar.
+
+Despedida
+
+Faça a escolha certa para uma vida mais longa e saudável.
+
+Com um clique no botão abaixo, comece sua jornada em direção à liberdade da saúde.
+
+Agora a decisão é inteiramente sua. O botão abaixo detém o poder de mudar seu destino, de transformar sua vida.
+
+Lembre-se, a oportunidade de mudança nem sempre estará disponível. Neste momento, alguém em algum lugar se arrepende de não ter agido mais cedo. Não deixe o arrependimento tomar conta.
+
+A cada ano, 6 milhões de vidas são perdidas para a diabetes, mais de 13.700 pessoas por dia.
+
+Isso não é apenas uma estatística. São histórias, sonhos e famílias interrompidas.
+
+Sintomas como fadiga, fome, micção frequente e exaustão são avisos que não podem ser ignorados.
+
+Quero dizer que estou muito feliz que você tenha chegado até aqui, porque de alguma forma consegui abrir seus olhos e mostrar que hoje existe sim uma solução para o seu problema e essa solução agora depende inteiramente de você.
+
+Quero vê-lo na minha próxima palestra compartilhando como este tratamento mudou sua vida também.
+
+Bem, a oferta pode expirar a qualquer momento.
+
+Torne-se parte desta família que escolheu viver uma vida mais plena e saudável, livre deste inimigo.
+
+Desejo a você muitos anos de vida cheios de saúde e alegria.
+
+Não perca esta chance. Esta oferta terminará em apenas alguns minutos.
+
+Muito obrigado por ficar até o fim.
+
+Sua presença significa muito para mim e sinceramente espero que você faça a escolha certa.
+
+Vou responder às perguntas que mais recebo sobre o Sugar Harmony agora.
+
+Faq
+
+Emily, da Califórnia, perguntou: "Você mencionou a certificação do FDA para o Sugar Harmony. O que isso realmente significa para nós?"
+
+Emily, ótima pergunta. A certificação de eficácia do FDA é um diferencial crucial. Ao contrário de muitos registros que simplesmente confirmam que um suplemento não é prejudicial — algo que, francamente, até uma cápsula de farinha poderia conseguir — esta certificação é concedida após testes extremamente rigorosos, incluindo estudos controlados por placebo, duplo-cegos.
+
+Isso prova que o Sugar Harmony tem a capacidade inegável de atuar nos mecanismos celulares e bioquímicos do diabetes tipo 2. Para você, isso significa que o Sugar Harmony não é apenas seguro. Foi cientificamente demonstrado que ele funciona para reverter a condição em sua origem. É uma garantia de que você está investindo em ciência real, não em promessas vazias.
+
+Michael, da Flórida, perguntou: "Meu açúcar no sangue começou a cair muito rápido com o Sugar Harmony e eu me sinto melhor, sem efeitos colaterais. Esse progresso rápido é normal?"
+
+Michael, fico feliz em ouvir sobre sua melhora e, sim, é normal e esperado. O Sugar Harmony atua diretamente na causa raiz que discutimos. Ao começar a neutralizar essa ameaça, seu corpo naturalmente começa a restaurar a sensibilidade à insulina e a regular a glicose. Muitas pessoas relatam sentir mudanças nas primeiras semanas: mais energia, menos fadiga e, claro, melhora nos níveis de açúcar. Continue o tratamento completo para consolidar esses ganhos.
+
+Jessica, de Nova Iorque, disse: "Confesso que eu estava cética. Tentei tantos suplementos naturais sem resultados. Por que o Sugar Harmony é tão diferente?"
+
+Jessica, eu entendo completamente seu ceticismo. Como cientista, eu vi muitas coisas ineficazes por aí.
+
+O Sugar Harmony é fundamentalmente diferente por três razões principais. Primeiro, ele é formulado para lutar contra a causa raiz que a maioria ignora. Segundo, usamos um extrato superconcentrado de uma variedade específica de ingredientes japoneses cuja sabedoria antiga foi validada pela ciência moderna em nossos laboratórios.
+
+Terceiro, nossa tecnologia garante que esses compostos bioativos delicados sejam protegidos e entregues com absorção e eficiência máximas, diretamente onde precisam agir. Não é apenas sobre ingredientes; é sobre a ciência precisa de formulação e absorção. É por isso que os resultados são diferentes e duradouros.
+
+David, do Texas, comentou: "Terminei os seis meses de Sugar Harmony. Meu médico ficou impressionado. Disse que nunca viu uma reversão tão clara e estável. Ele até considerou sugerir a outros pacientes. O que você acha?"
+
+David, sua história é música para meus ouvidos e a razão de todo esse trabalho duro. Infelizmente, muitos médicos ainda estão presos no paradigma de que o diabetes tipo 2 é uma sentença de gerenciamento vitalício com medicamentos.
+
+Quando eles encontram uma solução que ataca a causa raiz e promove uma reversão real, como o Sugar Harmony faz, é natural que fiquem surpresos. Fico feliz que seu médico esteja aberto a essa nova perspectiva. A ciência honesta e os resultados dos pacientes falam por si mesmos. O Sugar Harmony está aqui para aqueles que procuram uma solução baseada em evidências reais.
+
+Sarah, de Illinois, disse: "Eu comprei o kit de seis frascos. Chegou super rápido. Estou amando. Meu açúcar já caiu muito e me sinto ótima. Alguns amigos viram minha melhora e o peso que desapareceu junto com o diabetes. E eles também querem. Posso ainda comprar mais Sugar Harmony com essa oferta especial?"
+
+Sarah, isso é uma notícia maravilhosa! Estou tão feliz por você.
+
+Sobre comprar mais: como mencionei, os ingredientes específicos que usamos é raro e nossa tecnologia é um processo delicado. Produzimos o Sugar Harmony em pequenos lotes para garantir qualidade e potência máximas. É por isso que nossa oferta é limitada e, com a crescente demanda de pessoas como você que estão vendo resultados reais, o estoque acaba rapidamente.
+
+O próximo lote pode levar de quatro a seis meses para ficar pronto, e a lista de espera costuma ser longa. Se você ou seus amigos querem garantir mais Sugar Harmony, minha sugestão honesta é: aproveite enquanto esta página e esta oferta ainda estão no ar. A oferta atual pode acabar a qualquer momento.
+
+Robert, de Ohio, perguntou: "Eu tive diabetes por mais de 15 anos. Parece ser genético na minha família. Eu também tenho pressão alta. Como posso ter certeza de que o Sugar Harmony vai funcionar para mim e não vai piorar minha pressão?"
+
+Robert, sua preocupação é válida. O Sugar Harmony foi testado extensivamente em pessoas com históricos diversos, incluindo casos de longo prazo, predisposição genética e outras condições coexistentes. Ele funcionou consistentemente porque atinge a causa principal.
+
+O Sugar Harmony não apenas ajuda a reverter o diabetes, mas também contribui para uma melhora geral da saúde. Muitos usuários relatam melhorias em outras áreas, como a pressão arterial, precisamente porque ele reduz a inflamação sistêmica. Ele não afeta negativamente outras condições e não tem efeitos colaterais conhecidos. O objetivo é restaurar o equilíbrio natural do seu corpo.
+
+Chris, de Arizona, perguntou: "Meu pedido de Sugar Harmony é seguro? Eu já fui enganado antes. E como exatamente funciona essa garantia?"
+
+Chris, eu entendo sua hesitação. Sim, seu pedido é 100% seguro. Nossa página de pagamento usa uma plataforma de processamento online de primeira linha, CartPanda, com o mesmo nível de criptografia e segurança que os grandes bancos dos EUA. Seus dados são confidenciais.
+
+Quanto à garantia, é a sua completa tranquilidade. Você tem 180 dias, 6 meses inteiros, para usar o Sugar Harmony. Se, por qualquer motivo, você não estiver satisfeito com a transformação, se não vir seus níveis de açúcar normalizando, sua energia voltando, ou se você simplesmente mudar de ideia, basta contatar nossa equipe de suporte ao cliente.
+
+Reembolsaremos 100% do seu pagamento, sem burocracia, sem necessidade de devolver os frascos. O risco é todo nosso. Quero que você se sinta completamente seguro ao dar este passo pela sua saúde.
+
+Linda, da Geórgia, disse: "estou convencida e pronta para pedir o Sugar Harmony. O que eu faço agora?"
+
+Linda, estou muito feliz com a sua decisão. O próximo passo é simples.
+
+Clique no botão de pedido abaixo deste vídeo. Você poderá escolher o pacote que melhor se encaixa às suas necessidades. Lembre-se que o tratamento de 6 frascos é o mais recomendado para uma reversão completa e duradoura, e também tem o melhor valor com a oferta de hoje.
+
+Depois de selecionar, preencha seus dados na página de pagamento segura. Assim que o pedido for confirmado, nossa equipe da Farmacam preparará seu Sugar Harmony com cuidado e o enviará rapidamente para sua casa nos EUA. Comece seu ritual diário assim que ele chegar.
+
+Tenho certeza de que você ficará impressionado com os resultados. Clique abaixo e comece a reescrever sua história de diabetes hoje. Sua nova vida espera.
+
+Até breve
