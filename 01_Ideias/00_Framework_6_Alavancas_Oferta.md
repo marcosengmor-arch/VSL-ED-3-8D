@@ -37,3 +37,12 @@ Alavancas trocadas: 3, 4 (só o vilão) e 6. Alavancas mantidas: 1, 2, 5.
 
 ## Dado de mercado sobre avatar (Marcos, 05/11)
 Uma oferta testou **avatar mulher** (rosto de autoridade) e parou em ~1 mil anúncios. Todas as que validaram usam **avatar homem**. No ranking, mulher aparece só como lead (Steel Power, Alpha Boost, Vigor Long, Red Horse), todas no fim da lista. **Conclusão para a VSL 3 (segurança): avatar homem.** Uróloga/expert feminina fica como hipótese de inovação para uma VSL futura, não para esta.
+
+## Regra das 2 alavancas-chave (Marcos, 05/11)
+Das 6 alavancas, **duas são chave: o mecanismo do problema (MUP, #4) e o mecanismo da solução (MUS, #5).** Elas são o par inovação + validação de toda oferta: **troca-se uma e mantém-se a outra, nunca as duas.**
+- Brecka deu certo porque manteve o MUS (gelatina de cavalo) e trocou o MUP (glifosato → PFAS).
+- Se a VSL 3 mantém a gelatina de cavalo (MUS), troca o MUP.
+- Se a VSL 3 usa outro MUS (ex.: pó do touro), mantém o MUP (cimento/glifosato).
+- Avatar (#3) e história emocional (#6) trocam livremente; gimmick (#1) e formato (#2) ficam.
+
+Leitura das nossas: a VSL 1 manteve o MUP e trocou o MUS (touro + bicarbonato preparado) = movimento permitido. A VSL 2 manteve o MUP e trocou o MUS (bode + mel + bicarbonato) = permitido, mas trocou também gimmick, avatar e emocional, por isso 0 segurança.
