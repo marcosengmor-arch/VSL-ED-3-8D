@@ -20,3 +20,17 @@ Em cima da JellyFil, a Horse Jelly trocou **o avatar** (Attia → Gary Brecka), 
 | 1 Bull Soda Rise | baking soda (Texas Bull Trick) | podcast | Huberman | cimento/glifosato | touro Longhorn, Texas | Mike Tyson | 3, 5, 6 (gimmick = Soda Horse) |
 | 2 IronPulseX | mel + baking soda (Goat Honey Ritual) | podcast + entrevista na casa | Hyman | cimento/glifosato | bode espanhol, Hill Country, colmeia | Al Pacino | 1, 3, 5, 6 (muito mexido = inovação, 0 segurança) |
 | 3 | **objetivo: trazer segurança** | | | | | | mexer o mínimo |
+
+## Decisão de direção da VSL 3 (Marcos, 05/11)
+**Fazer com o bicarbonato o mesmo movimento que a Horse Jelly fez com a gelatina.** A Horse Jelly manteve a gelatina de cavalo (gimmick), trocou o avatar (Attia → Brecka), trocou a história emocional (Stallone → Mel Gibson) e trocou o mecanismo do problema (glifosato → PFAS), mas escreveu o PFAS com a mesma estrutura do glifosato. O resto ficou igual.
+
+| Alavanca | VSL 3 | Referência |
+|---|---|---|
+| 1 Gimmick | **mantém: baking soda** (Baking Soda Trick) | Soda Horse = a nossa "JellyFil" |
+| 2 Formato | mantém: podcast com expert + famoso | |
+| 3 Avatar | **troca** | como Attia → Brecka |
+| 4 Problema | **troca o vilão, mantém a estrutura** (novo veneno escrito como o glifosato: entra pela comida/água, gruda na esponja, vira cimento, memo interno, cientistas demitidos, $47 mi) | como glifosato → PFAS |
+| 5 Solução | mantém: animal + geografia + o pó preparado no cocho | touro/garanhão/bode + Texas/Lexington/Hill Country |
+| 6 Emocional | **troca o famoso** | como Stallone → Mel Gibson |
+
+Alavancas trocadas: 3, 4 (só o vilão) e 6. Alavancas mantidas: 1, 2, 5.
