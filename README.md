@@ -21,3 +21,15 @@ Terceira VSL de disfunção erétil (mercado EUA). Repositório de trabalho: ide
 ## Regras herdadas
 - Registro BLACK com fluidez (`00_base/referencias/Regra_de_Escrita_BLACK.md`).
 - Tradução pelo prompt v2.1 (`00_base/PROMPT_Traducao_VSL_ED_EN-US.md`), com a regra fixa dick x cock (seção 4.3).
+
+## VSLs de referência transcritas (`00_base/vsls_referencia/`)
+
+| VSL | Produto / ângulo | O que tem |
+|---|---|---|
+| Soda Horse | bicarbonato, cavalo | transcrição EN + PT |
+| Horse Jelly | gelatina, cavalo | transcrição EN + PT |
+| Alpha Erec | expert sozinho, régua e ressonância | transcrição EN + PT |
+| HoneyFil Male | mel, Elon Musk + Dr. Carter, 52 min | transcrição EN + PT, docx com prints, 281 frames, dissecação Atlas |
+| Red Horse | lead de atriz na cozinha (0:00–5:13) | lead transcrita (MD/docx), JSON completo, 26 frames |
+
+As nossas duas VSLs ficam em `00_base/vsl1_bull_soda_rise/` (análises, briefing, tese de controle, copy EN) e `00_base/vsl2_ironpulsex/` (copy EN completa, pontos da HoneyFil aplicados, mapa de redundâncias).
