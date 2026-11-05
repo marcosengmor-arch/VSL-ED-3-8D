@@ -31,3 +31,8 @@ Fonte: transcrições PT enviadas pelo Marcos (`00_base/vsls_referencia/horse_fi
 ## Blocos reaproveitáveis (frase a frase, se for o caso)
 - Horse Fill: a cena de abertura em diálogo (Denise/John) como cold open; "mecanismo de defesa dela era sexo"; a arma que cai e dispara; "quando um fisiculturista para de malhar o músculo atrofia, o pênis é igual"; "a pia entupida"; o ralo desentupindo no dia 2; a ligação "vem pra casa, você confia em mim?"; velas + Marvin Gaye + "a cena corta aqui"; "ela chegou no trabalho radiante: fiz um bom treino".
 - Horse Boost: "ele é mais homem que você, não preciso fingir nada na cama" na frente das amigas; "50% das mulheres traem por tamanho"; "nos anos 60 o homem comia a maçã da árvore, hoje come veneno em forma de fruta"; "declínio androgênico geracional: menos queixo, menos ombro, menos pelo"; o pneu de bicicleta ressecado; "um homem de verdade faz o que for preciso, mesmo que envolva dinheiro"; reembolso 100% pros 10 primeiros; garantia de 365 dias.
+
+## Decisão do Marcos (05/11)
+- **Horse Fill: fora.** É VSL gringa que opera com prejuízo no front e lucra no longo prazo (backend). Não é o nosso modelo de negócio, então o fato de ser a nº 1 em anúncios não serve de referência.
+- **Horse Boost: fora.** É oferta de aumento peniano. Não consideramos.
+- O que fica desta dissecação: só os ingredientes que o público já aceita (citrulina, pinheiro, vitamina C, horny goat weed, tongkat, beterraba, nattokinase) e os blocos reaproveitáveis listados acima, como swipe.
