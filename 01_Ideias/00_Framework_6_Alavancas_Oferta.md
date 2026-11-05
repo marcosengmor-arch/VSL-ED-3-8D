@@ -34,3 +34,6 @@ Em cima da JellyFil, a Horse Jelly trocou **o avatar** (Attia → Gary Brecka), 
 | 6 Emocional | **troca o famoso** | como Stallone → Mel Gibson |
 
 Alavancas trocadas: 3, 4 (só o vilão) e 6. Alavancas mantidas: 1, 2, 5.
+
+## Dado de mercado sobre avatar (Marcos, 05/11)
+Uma oferta testou **avatar mulher** (rosto de autoridade) e parou em ~1 mil anúncios. Todas as que validaram usam **avatar homem**. No ranking, mulher aparece só como lead (Steel Power, Alpha Boost, Vigor Long, Red Horse), todas no fim da lista. **Conclusão para a VSL 3 (segurança): avatar homem.** Uróloga/expert feminina fica como hipótese de inovação para uma VSL futura, não para esta.
