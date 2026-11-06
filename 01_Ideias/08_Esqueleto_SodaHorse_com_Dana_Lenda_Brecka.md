@@ -163,3 +163,37 @@ Em aberto ainda: MUP (cimento ou PFAS), lab (nosso ou UFC Performance Institute)
 - **Efeito na copy:** não escrever "bilionário Dana White". Escrever "o CEO do UFC", "o homem que transformou US$ 2 milhões em US$ 4 bilhões" (a venda do UFC em 2016), "dono de meio bilhão", "o homem mais poderoso do esporte de luta". A HoneyFil se apoiava em "bilhões" do Elon; aqui a autoridade vem do **poder e da virilidade**, não do saldo. Se a oferta precisar de "bilionário" literal, o Cuban continua disponível (ele é, de verdade).
 
 **Randy x Dana: não achei reconciliação.** As fontes descrevem a briga longa (contrato, Viacom/Bellator, "excomungado" do UFC, Dana chamando ele de "um dos dois piores caras pra lidar"), e o Randy dizendo em entrevista "eu não tenho problema com o Dana", sem data clara. Nada de 2025. Isso **favorece a saída 5a** (usar a briga a favor: "o homem que me processou me ligou"), e a copy pode dizer "ficamos anos sem nos falar" sem mentir.
+
+### 5.4 A emocional do Randy: Mindy Robinson, o término (Marcos, 06/11/2026)
+
+Decisão de debate: a emocional do Randy usa **Mindy Robinson** e o **término** real, no molde do que a Horse Jelly fez com Mel Gibson e Rosalind Ross (ex real, término real, causa inventada na boca do homem).
+
+**Fatos checados (busca em 06/11/2026):**
+- Namoraram cerca de **11 anos** (desde 2014). A **Mindy anunciou a separação num post no Facebook em 12 de fevereiro de 2025.**
+- Separação descrita como amigável; continuam em bons termos.
+- Em julho de 2025 o Randy sofreu um acidente grave num treino de corrida (queimaduras, hospital). A Mindy postou no Instagram que ele estava "bem", que ele mandou mensagem do hospital, e que "mesmo sendo ex, oração nunca fez mal a ninguém".
+- Mindy Robinson: atriz e modelo, **46 anos** (17 anos mais nova que ele), comentarista política conservadora, com candidatura por Nevada (checar cargo e ano). Tem plataforma própria e público.
+- Randy lutou pela última vez em 2016, aos 46 (checar).
+
+**O que a linha do tempo real dá de graça:**
+- Começaram em 2014, quando ele ainda lutava. Ele se aposentou em 2016. Ela saiu em 2025. **"Ela ficou 9 anos vendo o homem que ela conheceu lutando virar outro."** A copy não precisa inventar datas; só a causa.
+- Mulher 17 anos mais nova, atriz, loira, conservadora: pro avatar de 60 é a mulher que ele sonha e a prova de que "até o Randy perdeu".
+- O acidente de julho de 2025 pode ser o fundo do poço (hospital, sozinho, a ex mandando oração) ou pode ficar fora. Se entrar, entra como fato ("em julho eu quase morri numa pista"), sem ligar ao pau.
+- A mensagem dela do hospital ("oração nunca fez mal") é a frase perfeita pra **"ela ainda me amava, só não aguentava mais"**, que é o "it's okay" da Rosalind na Horse Jelly.
+
+**Duas versões da causa (escolha do Marcos):**
+- **Versão "só eu" (mais segura):** o Randy confessa que o relacionamento morreu na cama. Ela nunca reclamou, ele é que parou de tentar, dormia virado, inventava desculpa, e um dia ela foi embora sem briga. Nenhum terceiro. A Mindy fica intocada: só saiu. É a versão que não dá margem a processo por "colocar palavras na boca dela".
+- **Versão Horse Jelly (mais forte, mais arriscada):** aparece um homem mais novo na história (a festa, o cara de 40, "este tem um pau que funciona", como a Horse Jelly fez com a Rosalind). Dói mais, vende mais, e é exatamente o que o mercado está rodando hoje com uma ex real. Mas a Mindy tem plataforma, público conservador e advogado; o risco de notificação e de barulho público é maior que o da Rosalind Ross.
+
+**Regras da copy, nas duas versões:**
+1. A Mindy nunca fala na VSL (sem voz sintética dela, sem "depoimento" dela). Só o Randy fala sobre ela.
+2. A copy nunca diz que ela traiu. Se houver o homem mais novo, é **depois** do término, ou é o Randy imaginando ("eu sei que tem alguém que consegue o que eu não consigo").
+3. A frase da ring girl e do novinho **sai da história do Randy** (era o papel da Christine/Rosalind). A ring girl volta a ser a régua da lead e do bloco 6 falando dos lutadores em geral, não da vida do Randy.
+4. A ponte com o Dana continua a briga: "o homem que me processou me ligou num sábado. A Mindy tinha ido embora na véspera."
+
+**Como fica o bloco 4–6 (Soda Horse) com a Mindy:**
+- 4 (Dana narra a ligação): "em fevereiro o telefone tocou. Era o Randy. Nós não nos falávamos há anos. Ele disse: a Mindy foi embora. Onze anos. E eu sei por quê, e você é a única pessoa pra quem eu consigo contar."
+- 5 (Randy, voz própria): 2014, o homem que ela conheceu; 2016, pendurei as luvas; o primeiro "tudo bem, a gente tenta depois"; o Viagra escondido; dormir virado; 9 anos; o post dela no Facebook em 12 de fevereiro; "ela não brigou. Isso foi pior."
+- 6 (ring girl, régua geral): "eu vejo esses homens há 8 anos. Os que continuam lenda e os que viram piada."
+
+**Risco jurídico (anotar):** ex real + causa sexual inventada = o mesmo risco que a Horse Jelly correu com a Rosalind, agravado por a Mindy ser figura pública ativa. Veto é decisão do Marcos.
