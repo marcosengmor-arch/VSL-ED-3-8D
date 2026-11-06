@@ -1,0 +1,71 @@
+# Emocional do Randy + Mindy, modelada beat a beat na Horse Jelly (Mel + Rosalind) — debate, 06/11/2026
+
+Decisão de debate do Marcos: **versão Horse Jelly** ("modelando o que já funciona"). Fonte: `00_base/vsls_referencia/horse_jelly_atual/`, blocos 5–7 (6:37 → 12:48, 6 min 11 s, 3 blocos, 10 mini-blocos). Abaixo, cada beat do Mel com o equivalente do Randy. Fatos reais da Mindy (11 anos, post de 12/02/2025, 17 anos mais nova, acidente de julho de 2025) entram onde o Mel usa fatos reais da Rosalind (58 x 24, 10 anos, a festa de um projeto dela).
+
+**Regra de voz:** o Randy fala em primeira pessoa, como o Mel. A Mindy nunca fala. O Dana faz o papel do Gary (recebe a ligação, não narra a história).
+
+---
+
+## BLOCO 5 — Randy I: Mindy, as desculpas e a dependência do Viagra (molde 6:37 → 8:23)
+
+| # | Beat do Mel (Horse Jelly) | Randy (VSL 3) |
+|---|---|---|
+| 5.1a | **Abre pela vergonha já gasta:** "fui cancelado pelo mundo inteiro, perdi contratos, cuspiram no meu nome; já gastei toda a vergonha que tinha, então vou ser direto." | **Abre pela pancada já levada:** "Eu levei soco de Chuck Liddell, de Fedor, de Lesnar. Fui nocauteado em rede nacional. Dor eu conheço. Vergonha é outra coisa. E eu já passei por tanta que vou ser direto." |
+| 5.1b | **A diferença de idade como troféu:** "conheci a Rosalind, eu tinha 58, ela 24. No começo não era problema. Eu dava conta." | "Conheci a Mindy em 2014. Eu tinha 50, ela 34, atriz, loira, 17 anos mais nova. E no começo não era problema. Eu ainda lutava. Eu dava conta." |
+| 5.1c | **"Por anos achei que tinha tudo."** | "Por 11 anos eu achei que tinha tudo que um homem americano podia querer. Cinturão, Hollywood, ela." |
+| 5.1d | **A ligação de sábado:** "numa tarde de sábado liguei pro Gary pra dizer que meu pau não levantava mais." | "E mesmo assim, num sábado de fevereiro, eu liguei pro homem que eu tinha processado. Liguei pro Dana White pra dizer que o meu pau não levantava mais." (a briga real vira a prova do desespero) |
+| 5.1e | **Começou devagar, as desculpas dele:** vinho, jet lag, estresse; depois virou toda noite. | "Começou depois que eu pendurei as luvas, em 2016. Uma noite aqui, outra ali. Eu culpava o treino, a viagem, a idade. Depois virou toda noite." |
+| 5.1f | **Ela se afasta pelo olhar:** sai do chuveiro, ela no celular; puxa o lençol até o ombro "ensaiando uma desculpa". | igual, palavra por palavra adaptada: "eu saía do chuveiro e ela não tirava os olhos do celular. Deitava e ela puxava o lençol até o ombro com aquela calma de quem está ensaiando uma desculpa." |
+| 5.2a | **As três desculpas dela:** "Mel, estou morta. Mel, acordo cedo. Mel, dor de cabeça." | "Randy, estou morta. Randy, gravo cedo amanhã. Randy, dor de cabeça." (a Mindy grava, faz live, viaja pra evento: as desculpas dela são de atriz e comentarista, checáveis como rotina) |
+| 5.2b | **O pau mediano escapa nas posições básicas; ela finge orgasmo pra acabar.** | igual. Aqui entra o "pau mediano" do Randy: "eu era campeão peso-pesado com um pau mediano. Ninguém sabia. Ela sabia." |
+| 5.2c | **Compensar com presentes, viagens, grife; "nada substitui um pau duro e grosso".** | "Eu tentei compensar com o que eu tinha: viagem, carro, eu bancando a campanha dela, a casa. E a verdade dura é que nada, absolutamente nada, substitui um pau duro e grosso pra uma mulher." |
+| 5.2d | **"Fiz o que qualquer homem faria: marquei um urologista."** | igual |
+| 5.3 | **2023, Viagra; "achei que estava resolvido"; pílula no carro, 45 min; "ir pra cama sem pílula era ir pra guerra desarmado".** | "Em 2022 comecei com o Viagra. Tomava no carro, olhava o relógio, esperava 45 minutos. Eu, que subi no octógono 30 vezes sem medo, ir pra cama sem pílula azul era como entrar na jaula de mãos amarradas." |
+
+## BLOCO 6 — Randy II: a noite que quebrou, "tudo bem", TRT e as bombas (molde 8:24 → 10:28)
+
+| # | Beat do Mel | Randy |
+|---|---|---|
+| 6.1a | **"No 4º mês veio a noite que me quebrou. Ela ainda estava tentando."** Terça, jantar, "surpresa pra hoje"; ele toma o Viagra antes de sentar. | igual: "Ela ainda estava tentando. Uma terça ela fez jantar, disse que tinha uma surpresa. Eu já sabia. Tomei a pílula antes de sentar." |
+| 6.1b | **A cena:** lingerie, de quatro, ele puxa a calcinha, ela está molhada, "ela queria"; encosta e **entorta "feito macarrão cozido"**; tenta empurrar; escapa. | igual, literal. Não suavizar. (É o ponto mais alto de retenção do bloco na Horse Jelly.) |
+| 6.2a | **Segura na mão, esfrega, não sobe. Ela espera 5 segundos, suspira, senta na beira da cama, olha.** "Não era raiva, não era nojo. Era o olhar de quem não via mais um homem ali." | igual, literal. Acrescentar a camada do lutador: "eu já tinha visto esse olhar. É o olhar que o árbitro dá antes de parar a luta." |
+| 6.2b | **"Tudo bem, Mel, a gente tenta outro dia. Tudo bem. A frase mais castradora que já ouvi."** | "Tudo bem, Randy, a gente tenta outro dia." + "Eu ouvi 'para a luta' de árbitro 6 vezes na vida. Nenhuma doeu como esse 'tudo bem'." |
+| 6.2c | **2024, TRT.** | **Aqui a VSL 3 ganha um fato próprio:** "Em 2023 eu fui atrás de TRT. Eu. O cara que passou a carreira inteira sendo testado, que viu o Dana proibir isso em 2014 e concordou. Eu fui atrás escondido." (o lutador limpo recorrendo à testosterona é mais vergonhoso que o Mel) |
+| 6.3a | **3 meses, fígado no exame, médico manda parar, volta pior.** | igual |
+| 6.3b | **Bombas a vácuo: 20 min, roxo, "uma batata". "Um ganhador do Oscar trancado no banheiro bombeando o próprio pau."** | "Um campeão do UFC, Hall da Fama, trancado no banheiro de Las Vegas bombeando o próprio pau feito uma batata roxa." |
+| 6.3c | **"Se alguém dissesse que a resposta era uma gelatina feita na cozinha, eu mandava pro inferno. Mas eu ainda estava longe."** | "Se alguém dissesse que a resposta estava num cocho de cavalo, eu mandava pro inferno. Mas eu ainda estava longe de chegar lá." (teaser do cavalo, sem ingrediente, exatamente como o Mel faz com a gelatina) |
+
+## BLOCO 7 — Randy III: a festa, o cara de 40, "este tem um pau que funciona" e o fim (molde 10:28 → 12:48)
+
+| # | Beat do Mel | Randy |
+|---|---|---|
+| 7.1a | **"A sexta mais humilhante da minha vida": festa de encerramento de um projeto dela, gente da indústria, todo mundo jovem.** | "A sexta mais humilhante da minha vida foi num evento dela. Mindy tem o público dela, os eventos dela, gente de política, de TV, todo mundo mais novo. Eu num canto com uma cerveja, deixando ela circular." (evento dela = atriz/comentarista; não precisa nomear) |
+| 7.1b | **O cara de 38, 40; braço na cintura, mão desce, aperta a bunda "de um jeito que eu não fazia há anos"; 2, 3 segundos; ela ri olhando pra ele.** | igual, literal. Opcional (mais forte, mais arriscado): o cara é "um lutador que eu mesmo vi estrear". Mais seguro: homem sem profissão, 40 anos. |
+| 7.1c | **"Quando você viveu 10 anos com uma mulher, você conhece o sorriso dela. O sorriso de quando ela está excitada."** | "Onze anos. Você conhece o sorriso." |
+| 7.2a | **Ela percebe, o sorriso morre, a bebida dá coragem: "Esse cara aqui tem um pau que funciona. Ele é muito mais homem do que você." Alto, pros outros ouvirem.** | **O beat mais arriscado com uma ex real.** Duas opções: (i) literal, igual Horse Jelly (ela diz em voz alta); (ii) a frase vem de **outra pessoa** ("uma amiga dela disse alto, rindo: 'esse aqui tem um pau que funciona'") e a Mindy só não corrige. A opção (ii) mantém a frase, a humilhação pública e o novinho, e tira a frase da boca dela. |
+| 7.2b | **Sai sem dizer uma palavra, todo mundo olhando, "encolhido 2 polegadas dentro da cueca". "Há quanto tempo? Aquela viagem de 3 dias em março, era trabalho?"** | "Saí sem dizer nada. Eu, que nunca saí de uma luta. Andei até o carro me sentindo 2 polegadas menor dentro da cueca. E aí a cabeça: há quanto tempo? Aquela semana de evento em Washington, era trabalho mesmo?" |
+| 7.3a | **"Naquela noite, a relação de uma década foi pro lixo. Ela foi embora. Sábado de manhã já tinha pegado as coisas."** | **Fato real entra aqui:** "Naquela noite, 11 anos foram pro lixo. Dia 12 de fevereiro ela postou no Facebook que tinha acabado. Eu fiquei sabendo que acabou pelo mesmo post que todo mundo." |
+| 7.3b | **"Dizem que eu só tinha uma mulher daquela idade pelo dinheiro. Talvez. Mas no segundo em que a calça abaixa, não existe Oscar, não existe bilheteria, não existe nome. Existe só um velho com um pau mediano."** | "Dizem que eu só tinha uma mulher 17 anos mais nova por causa do nome. Talvez. Mas no segundo em que a calça abaixa, não existe cinturão, não existe Hall da Fama, não existe Mercenários. Existe só um velho de 61 anos com um pau mediano. E é isso que ela vê." |
+| 7.3c | **"Seu pau pode fazer uma mulher se apaixonar loucamente ou fazer ela te deixar no segundo em que aparecer algo melhor."** | igual, literal |
+| 7.3d | **Um ano sozinho na casa, bebendo; as 2 maldições: nasci com pau medíocre + agora velho parou de funcionar.** | **Fato real entra (opcional):** "Fiquei sozinho. Em julho eu quase morri numa pista de corrida, queimado, no hospital. Ela mandou mensagem. Oração. Ex que manda oração é a prova de que ela ainda me amava e mesmo assim não ficou." + as 2 maldições iguais. |
+| 7.4 | **"2 maldições diferentes. O Gary me mostrou que eram a mesma coisa. E quando ele te mostrar, talvez você fique tão puto quanto eu."** | "2 maldições. O Dana e o Brecka me mostraram que eram a mesma coisa. E quando eles te mostrarem o que estava acontecendo, você vai ficar tão puto quanto eu." (passa a bola pro Dana → Brecka, conforme a sequência do arquivo 10, seção 7) |
+
+---
+
+## O que a modelagem preserva da Horse Jelly (não mexer)
+1. Ordem: desculpas dele → afastamento dela pelo olhar → 3 desculpas dela → fingir orgasmo → compensar com dinheiro → urologista → Viagra e dependência → **a noite** (lingerie, macarrão, o olhar, "tudo bem") → TRT → bombas → teaser da solução → a festa → o cara de 40 → a frase → sair sem falar → "há quanto tempo?" → ela vai embora → "quando a calça abaixa não existe nome" → as 2 maldições → passa a bola.
+2. Duração: 6 min em 3 blocos. Na Soda Horse o Kevin tem 2 blocos (5 e 6) + a ligação no 4; a Horse Jelly estica pra 3. Manter os 3.
+3. Registro: explícito, sem suavizar (macarrão cozido, bunda, "pau que funciona").
+4. O teaser da solução no meio da dor ("se alguém dissesse que era uma gelatina / um cocho").
+
+## O que a VSL 3 adiciona por ser Randy
+- A briga com o Dana como prova de desespero (5.1d).
+- O lutador limpo buscando TRT escondido (6.2c): mais vergonha que o Mel.
+- O olhar do árbitro e o "para a luta" (6.2a/b).
+- A linha do tempo real (2014, 2016, 12/02/2025, julho de 2025).
+- "Não existe cinturão, não existe Mercenários" (7.3b).
+
+## Decisões que ficam com o Marcos
+- 7.2a: a frase "pau que funciona" na boca da Mindy (literal Horse Jelly) ou na boca de uma amiga (mesma cena, menos risco).
+- 7.1b: o cara de 40 é anônimo ou "um lutador".
+- 7.3d: usar ou não o acidente de julho de 2025.
