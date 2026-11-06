@@ -179,3 +179,39 @@ Não é "Dana dando pó no vestiário antes da luta". É "Dana foi filmado dando
 | Prova social | Stallone, Schwarzenegger etc. em clipe | 70+ |
 
 O único jovem da VSL é o rival. E ele perde.
+
+---
+
+## 11. Linha mestra: "feito pras lendas do UFC" (Marcos, 06/11/2026)
+
+Decisão de debate do Marcos: focar em **dois grupos de homem**, os dois do lado certo da régua, e posicionar a solução como **feita pras lendas do UFC**. E a regra do universo: **quem pega as ring girls são as lendas, não os novinhos.**
+
+### Os dois grupos
+
+| Grupo | Quem | O que prova | Função na VSL |
+|---|---|---|---|
+| **Veteranos 40+ ainda no octógono** | lutadores que seguem competindo depois dos 40 (Glover Teixeira campeão aos 42 em 2021, Jim Miller 42, Arlovski 46, Yoel Romero 48, Henderson disputou cinturão aos 46; checar) | **virilidade**: o corpo de 40+ que ainda aguenta 5 rounds e ainda pega ring girl | prova viva do pó; a ring girl compara eles com os de 25 |
+| **Lendas 50+ fora do octógono** | os que penduraram as luvas: Coleman 61, Henderson 55, Liddell 55, Couture 62, Frye 60 (checar relação com Dana) | **reputação**: o nome que o mundo inteiro conhece não pode broxar; "a lenda continua lenda na cama" | emocional + depoimento; o homem que quebrou e voltou |
+
+O avatar de 50–70 se vê nos dois: no de 40+ ele vê o que ainda pode ser; no de 50+ ele vê o que ele é. Nenhum dos dois é garoto. O garoto só aparece pra perder a ring girl.
+
+### A regra do universo (a frase que organiza tudo)
+"No UFC, ring girl não sai com novinho. Ring girl sai com lenda." A ring girl diz isso na lead, o Dana confirma na coletiva ("sempre foi assim, pergunta pra qualquer uma"), e a VSL explica por quê: o novinho tem testosterona e não tem o pó; a lenda tem o pó. Virilidade deixa de ser idade e vira "quem toma o que o Dana dá pras lendas".
+
+### O que isso muda no esqueleto
+1. **Gimmick:** continua baking soda do cavalo (alavanca 1 intacta). Mas o **nome chiclete por lead** (como o doc da SH4 faz) ganha a variante "o truque das lendas do UFC" / "o pó das lendas" ao lado de "baking soda do cavalo". Teste de lead, não troca de gimmick.
+2. **Promessa:** não é "ficar jovem". É "manter a reputação": o pau da lenda sobe porque o nome dela não pode cair. Isso bate direto na ferida do avatar 50+ (identidade, não desempenho), que o deep-psychology do nicho já mapeou.
+3. **Lead (ring girl):** "Eu seguro a placa há 8 anos. Novinho de 25 me chama toda semana. Eu nunca saí com nenhum. Eu saio com os caras do Hall da Fama. E eu vou te contar o que eles tomam."
+4. **Background (Dana):** 2014, proibi TRT, quem reclamou foram os veteranos de 40; o Brecka me mostrou o que dar no lugar; hoje os meus veteranos de 40 lutam e as minhas lendas de 60 não precisam de pílula azul.
+5. **Emocional (lenda 50+):** perdeu a ring girl pro novinho na luta de despedida; voltou com o pó; a ring girl voltou. O novinho perde duas vezes (na cama e na história).
+6. **Prova (veterano 40+):** 1 lutador ativo de 40+ em depoimento: "eu luto 5 rounds aos 43 e a Comissão me testa toda luta. Não tem hormônio. Tem isso."
+7. **Brinde (produtor de Vegas):** o cutman conta que o pó veio do set pornô de Vegas, onde os atores de 45+ são os que mais faturam (os velhos aguentam mais, igual no octógono).
+8. **Oferta:** "o protocolo que o Dana montou pras lendas, agora pra você" (molde Cost Plus/Al: preço de fabricação porque o Dana entrou com o dinheiro).
+
+### Por que isso é seguro pelo framework
+Mexe só na alavanca 3 (avatar) e 6 (emocional), que são livres, e aperta o posicionamento sem tocar em gimmick nem MUS. O MUP (cimento ou PFAS) e o formato (clássico ou podcast) continuam sendo a única escolha de alavanca-chave em aberto.
+
+### Riscos novos desta linha
+- "Lendas do UFC" como nome de posicionamento usa a marca UFC. Na copy, "lendas do octógono" ou "lendas da luta" protege; o Dana e as lendas fazem o reconhecimento.
+- Lutador ativo de 40+ em depoimento é pessoa real sob contrato do UFC e teste antidoping: usar nome real pede mais cuidado que uma lenda aposentada. Alternativa: "um veterano de 43 anos do peso-médio", sem nome.
+- Ring girl real: mesma regra da seção 9 (atriz UGC com visual de ring girl, sem nome).
