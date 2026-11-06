@@ -139,3 +139,43 @@ Ideia do Marcos: colocar as "octagon girls" (as garotas da placa do UFC) na VSL;
 **Risco:** ring girls reais são pessoas reais com nome e rosto (Arianny, Brittney, Red Dela Cruz). Usar nome e rosto delas é o mesmo risco de notificação de qualquer celebridade, e elas têm advogado da UFC por trás. O caminho seguro é o mesmo das atrizes nas VSLs 1 e 2: **atriz UGC com visual de ring girl** (placa, biquíni, logo genérico, vestiário) sem nome real, ou nome fictício. A placa e o octógono fazem o reconhecimento; o nome não precisa.
 
 **Como fica a cadeia de prova completa da Viagem B:** criador de cavalo (o pó existe há 100 anos) → produtor pornô de Vegas (quem não pode falhar testou primeiro) → ring girl (a régua que compara os homens) → lenda do UFC (o homem que quebrou e voltou) → Dana (quem põe o nome) → Brecka (por quê funciona) → você.
+
+---
+
+## 10. O problema da idade: lutador é jovem, o público tem 50–70 (06/11/2026)
+
+O avatar que compra tem 50+. O lutador ativo tem 25–35. Se o pó é "o que o Dana dá pros lutadores", o público pensa "isso é pra garoto". Seis formas de resolver, que se somam:
+
+**1. O pó nunca foi pros lutadores ativos. Foi pros de 40+.**
+A proibição de TRT no UFC em 2014 não atingiu garoto: as isenções de TRT eram dos lutadores velhos (Vitor Belfort aos 36, Dan Henderson aos 43, Chael Sonnen aos 36, Frank Mir; checar). Ou seja, a história real do UFC é exatamente a história do avatar: homem de 40+ com "testosterona baixa", pendurado em TRT, que perdeu a muleta. O Dana conta: "em 2014 eu proibi a testosterona. Quem reclamou não foi nenhum garoto. Foram os meus veteranos de 40 anos. E eu tive que achar o que dar pra eles no lugar." A descoberta do pó nasce do problema dos velhos, não dos jovens.
+
+**2. O protagonista é o Dana, 56 anos, não um lutador.**
+Ele é a régua. "Eu não sou lutador. Eu tenho 56 anos, 3 filhos, durmo 4 horas e viajo 300 dias por ano. O Brecka me deu 10 anos de vida e eu te garanto: não foi com testosterona." O primeiro usuário do pó na VSL é o próprio Dana, com o Brecka (a relação real dos dois é essa: exame de sangue, protocolo, idade). O avatar olha pra ele e vê um homem da idade dele com vigor.
+
+**3. A emocional é a lenda aposentada (55–61), e o jovem é só o contraste.**
+Coleman (61) ou Henderson (55). O garoto de 28 existe na VSL pra uma coisa: pegar a ring girl da lenda e perder pra ela depois, quando a lenda volta com o pó. O jovem é "o que você era"; a lenda é "o que você é". Isso é o papel do cara de 40 na Horse Jelly (o Mel perde pra ele e depois vence).
+
+**4. O vestiário tem mais velho do que jovem.**
+Quem cerca o lutador são homens de 50–65: cutman (Stitch Duran, 60+), treinadores (Javier Mendez, Greg Jackson, Mark Henry), árbitros (Big John McCarthy, 63; Herb Dean, 56), os cornermen. "Os caras que seguram o balde." É o avatar exato: homem velho cercado de virilidade jovem todo dia, humilhado pelo contraste. O pó circula no corner, não no octógono. O cutman é quem traz a ponte com o produtor de Vegas e quem dá o depoimento de homem comum (molde Andrew/Vicks).
+
+**5. A régua pública que já existe: lenda de 50+ voltando a lutar.**
+Tyson aos 58 contra Jake Paul (2024), o Marcos já usou o Tyson na VSL 1. Eventos de lendas, bare knuckle com veteranos, o fim de semana do Hall da Fama do UFC em Vegas (julho, checar). "Quem aguenta um round aos 58 aguenta uma noite aos 58." A ring girl faz a mesma régua na cama: o de 55 ganhou do de 28.
+
+**6. O Brecka não trata lutador. Trata homem de 50.**
+Os clientes dele na vida real são executivos de 50+ e o próprio Dana. Ele diz isso na VSL: "o lutador de 25 não precisa de mim. O meu paciente é o cara de 50 que o UFC esqueceu."
+
+**Como fica a cena de abertura com isso resolvido:**
+Não é "Dana dando pó no vestiário antes da luta". É "Dana foi filmado dando um pó pros veteranos no jantar do Hall da Fama" (ou "pros caras do corner"). Todo mundo na cena tem 50+. A Comissão investiga porque achou que era TRT. O laboratório diz: é alimento de cavalo.
+
+**Elenco com idade (tudo 50+ menos o contraste):**
+| Papel | Quem | Idade |
+|---|---|---|
+| Avatar / sócio | Dana White | 56 |
+| 2º expert | Gary Brecka | 50+ (checar) |
+| Emocional | Coleman / Henderson | 61 / 55 |
+| Homem comum / ponte com Vegas | cutman ou cornerman | 60 |
+| Régua | ring girl | 30 |
+| Contraste (o rival) | lutador jovem | 28 |
+| Prova social | Stallone, Schwarzenegger etc. em clipe | 70+ |
+
+O único jovem da VSL é o rival. E ele perde.
