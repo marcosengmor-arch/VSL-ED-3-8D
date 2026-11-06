@@ -54,3 +54,35 @@ Recomendação: **StallionRock** ou **IronStallion** (se o Marcos quiser manter 
 1. Nome principal: "The Weigh-In Trick" (recomendado) ou outro da tabela.
 2. Variante com animal pras ads de cavalo: "The Stallion Weigh-In Trick" sim/não.
 3. Nome do produto: StallionRock, IronStallion, ou outro.
+
+---
+
+## 6. Correção (Marcos, 06/11/2026): o gimmick é INGREDIENTE + algo, como "gelatina de cavalo"
+
+Regra: o nome conecta o ingrediente a um animal/lugar/momento, como o mercado faz ("horse jelly", "baking soda do cavalo", "mel do bode"). O momento ("weigh-in") vira contexto na copy, não o nome.
+
+Nosso ingrediente-herói visual é o **extrato âmbar do tendão do garanhão Percheron**, que parece mel ("o mel do garanhão"), misturado ao **baking soda**. Então o gimmick nasce do "mel" + animal, ou do "soda" + animal.
+
+| # | Nome (EN) | Ingrediente + | Por que | Contra |
+|---|---|---|---|---|
+| 1 | **The Stallion Honey Trick** ("o truque do mel do garanhão") | mel (extrato) + animal | Espelha exatamente a família: Bull Soda (VSL 1) → Goat Honey (VSL 2) → **Stallion Honey** (VSL 3). "Stallion" carrega virilidade e evita o "horse trick" queimado. O mercado tem "horse jelly" (gelatina); a gente tem "stallion honey" (extrato de tendão): mesmo animal, forma diferente, o que permite dizer "a deles é a gelatina crua, a nossa é o extrato do tendão". | "Honey" puxa pro visual da VSL 2; a copy precisa deixar claro cedo que não é mel de abelha ("parece mel, é colágeno de tendão") |
+| 2 | **The Horse Honey Trick** | mel + animal (genérico) | Mais simples, lado a lado com "horse jelly" na mesma prateleira mental; ótimo pra ad ("não é horse jelly, é horse honey") | "Horse" é o termo mais queimado das ads; menos viril que "stallion" |
+| 3 | **The Kentucky Stallion Honey** | mel + animal + lugar | Conservador, Kentucky Derby, Lexington; soa a produto artesanal | Longo; zero UFC |
+| 4 | **The Stallion Soda Trick** | soda + animal | Liga ao bicarbonato (o 1º verbo) e à família da VSL 1 | "Soda" + "trick" está a uma palavra de "baking soda trick" (queimado); e esconde o ingrediente-herói visual |
+| 5 | **The Weigh-In Honey** | mel + momento | Único que junta o ingrediente ao UFC ("o mel que os lutadores tomam depois da balança") | Sem animal perde a ponte com o mercado do cavalo |
+| 6 | **The Stallion Tendon Jelly** | colágeno + animal | O mais fiel ao que é | Clínico; "jelly" é a cópia (Horse Jelly) |
+| 7 | **The Octagon Honey** | mel + universo | Diz UFC sem a marca | Sem animal; "octagon honey" não desenha nada |
+| 8 | **The Stallion Honey & Soda** | os 2 ingredientes + animal | Completo | Longo demais pra ad |
+
+### Leitura
+- **Nome principal: "The Stallion Honey Trick."** Ingrediente + animal, na linhagem exata das nossas duas ofertas, diferente do "horse jelly" do mercado pela forma (extrato de tendão em vez de gelatina) e protegido do "horse trick" queimado pelo "stallion". Na copy, o momento entra como frase: *"the stallion honey UFC legends take after the weigh-in."*
+- **Variante pra ad de cavalo: "The Horse Honey Trick"** ("não é horse jelly, é horse honey").
+- **Variante pra ad de UFC: "The Weigh-In Honey."**
+- **Variante conservadora: "The Kentucky Stallion Honey."**
+- O "soda" fica como **o pó** dentro da copy (o 1º verbo), sem entrar no nome, pela regra do "baking soda trick".
+
+### Como a copy explica o nome em 1 frase (pra não confundir com mel de abelha)
+"Eles chamam de mel do garanhão porque parece mel: âmbar, grosso, doce. Não é. É o colágeno do tendão do Percheron reduzido a xarope, misturado ao pó." (voz do cutman, de apelido; o Brecka corrige na tese.)
+
+### Produto (mantido)
+StallionRock ou IronStallion. "Stallion Honey" fica como gimmick, não como marca.
