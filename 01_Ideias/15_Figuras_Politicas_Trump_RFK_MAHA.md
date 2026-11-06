@@ -86,3 +86,5 @@ O Dr. Phil precisou **dizer** "sou amigo íntimo". O Dana **é**, e tem vídeo: 
 **Elenco atualizado com os dois novos:**
 - **Dr. Mehmet Oz:** validador externo (bloco 22), "o homem que o presidente colocou pra cuidar da saúde dos americanos mais velhos testou num voluntário de 79 anos". Clipe antigo real; sem voz sintética enquanto tiver cargo (regra mantida, salvo decisão do Marcos).
 - **Dra. Annika Ackerman:** 2ª voz médica (blocos 12 e 20), recap do mecanismo + "100% safe" + cobre o fato de o Brecka não ser médico. Fictícia (como na HoneyFil), então risco baixo e já validada em estrutura.
+
+**Decisão do Marcos (06/11/2026) sobre a checagem 2:** o D4 **diz sim** que o Exército americano estudou o tamponamento com bicarbonato nos soldados. É narrativa, como o arquivo de 1991 do Vicks: o Dana/Brecka contam que o estudo existe e que a velha guarda de cutmen veio do Exército com o protocolo. A copy não cita número de documento, base ou pesquisador real; o lastro visual são os estudos militares reais que existem (sem país) e a literatura de bicarbonate loading. Risco anotado e aceito.
