@@ -167,3 +167,29 @@ Isso só é "seguro" se **a VSL 2 validou o mel + baking soda**. Se a VSL 2 aind
 
 ### Decisão
 Proposta aceita em debate, **condicionada à performance da VSL 2**. Se a VSL 2 validou: mel + baking soda do cavalo, preparado, pós-pesagem. Se não: voltar a "só baking soda" (VSL 1) com o mesmo esqueleto, que também é zero alavanca nova no MUS.
+
+---
+
+## 9. Correção do MUS (Marcos, 06/11/2026): o "mel" é o extrato de colágeno do tendão do garanhão Percheron
+
+O "mel" da seção 8 não é mel de abelha: é **o extrato de colágeno do tendão do garanhão Percheron**, que reduzido vira uma substância âmbar, espessa, parecida com mel. Os 4 ingredientes ficam **exatamente os 4 verbos da Soda Horse** (blocos 15–17), que é a versão de cavalo mais validada do mercado, e os mesmos 4 da nossa tese controle da VSL 1 (Bull Soda Trick, versão touro):
+
+| # | Ingrediente | Verbo (Soda Horse) | Papel na tese | Visual no ritual da pesagem |
+|---|---|---|---|---|
+| 1 | **Baking soda preparado** | DISSOLVER | amolece o cimento (glifosato) na esponja | o pó branco que o cutman tira do pote |
+| 2 | **Extrato de colágeno do tendão do garanhão Percheron** ("o mel do garanhão") | RECONSTRUIR | repõe o colágeno tipo III da esponja; o tecido que o cimento ocupou volta a ser esponja viva | a "cola" âmbar, grossa, cor de mel, que ele mistura no pó |
+| 3 | **Pycnogenol** | PROTEGER | blinda o tecido novo contra o glifosato que continua entrando (você não para de comer) | — |
+| 4 | **Tongkat Ali** | REATIVAR | religa o eixo hormonal/desejo sem TRT (encaixa no "o UFC proibiu testosterona") | — |
+
+### O que isso muda (pra melhor)
+- **Alavanca 5 = Soda Horse literal.** Não é mais "o MUS da VSL 2" (mel de abelha + pó); é o MUS que o mercado validou no cavalo. A condição da seção 8 (performance da VSL 2) **deixa de decidir o ingrediente**: o risco do MUS agora é o menor possível. A performance da VSL 2 continua útil só pra saber se o visual "mel" ajuda ou atrapalha na ad.
+- **Junta as três linhagens do mercado num só visual:** o pó (Soda Horse, bicarbonato), a gelatina/colágeno de cavalo (Horse Jelly, tier dominante das ads) e a aparência de mel (HoneyFil). O espectador que viu qualquer uma das três reconhece "a mesma coisa", e a gente diz "é a original, completa".
+- **O "pela metade" fica exato:** a cópia dos atores pornôs usa **1 ou 2 dos 4** (só o pó, ou só a gelatina, ou os dois crus, sem preparo e sem momento). A versão das lendas é os 4, preparados, pós-pesagem. O Brecka mostra o que faltava: sem o 2 o pó só dissolve e não reconstrói; sem o 3 o glifosato de amanhã cimenta de novo; sem o 4 o desejo não volta. É a demonstração dos 4 verbos da Soda Horse (régua, ressonância, linha do tempo) sem mudar nada.
+- **A pesagem ganha os dois gestos reais:** o pó (bicarbonate loading) e o "mel" (reidratação com carboidrato/colágeno); o cutman mistura os dois e dá ao veterano. No cocho, o tratador faz o mesmo com o garanhão (milkshake de bicarbonato + o extrato do próprio tendão de garanhão, a lógica "cavalo come cavalo" que a Soda Horse já usa: o colágeno de garanhão é o que reconstrói).
+- **Produto:** goma âmbar ("a goma do garanhão"), 1 por dia em jejum, igual ao padrão do mercado.
+
+### Nome do "mel" na copy (não é mel)
+"O mel do garanhão", "a cola do tendão", "o extrato âmbar", "a seiva do Percheron". Nunca "mel" sozinho (pra não cruzar com a VSL 2 e com as VSLs de mel do mercado). O cutman chama de "o mel" por apelido de vestiário, e o Brecka corrige: "não é mel, é colágeno de tendão de garanhão reduzido a xarope".
+
+### Decisão
+MUS da VSL 3 fechado em debate: **baking soda (1) + extrato de colágeno do tendão do garanhão Percheron (2) + Pycnogenol (3) + Tongkat Ali (4)**, os 4 verbos da Soda Horse, preparados, no ritual pós-pesagem.
