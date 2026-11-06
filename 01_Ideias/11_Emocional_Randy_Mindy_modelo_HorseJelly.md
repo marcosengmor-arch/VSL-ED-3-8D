@@ -1,4 +1,24 @@
-# Emocional do Randy + Mindy, modelada beat a beat na Horse Jelly (Mel + Rosalind) — debate, 06/11/2026
+# Emocional do Randy + Mindy — modelo: VSL 2 controle (que descende da Horse Jelly) — debate, 06/11/2026
+
+> **ATUALIZAÇÃO (Marcos, 06/11/2026): o modelo da emocional é a nossa versão controle da VSL 2 (Hyman / Pacino / Noor), não a Horse Jelly direto.** A VSL 2 já descende da Horse Jelly (mesma espinha: desculpas, olhar, "tudo bem", macarrão, TRT, rato de laboratório), então o mapa abaixo continua válido como referência de beats, mas a base de modelagem é `00_base/vsl2_ironpulsex/` (PT: `/home/user/vsl-8d-ed-2/copy/enxugada/04_Background_Story_enxuta.md`). **Ainda não é pra escrever copy.** Estamos definindo o passo a passo.
+
+## O que a VSL 2 tem a mais que a Horse Jelly (peças estruturais a decidir pra VSL 3)
+
+| Peça da VSL 2 (controle) | Como é na VSL 2 | O que precisa ser decidido pra VSL 3 |
+|---|---|---|
+| 1. Formato de entrevista | Hyman pergunta, Pacino responde ("Al. Você me ligou." / "E o que você fez?" / "Me mostra.") | Dana pergunta, Randy responde. Mantém o formato (a briga real dá tensão à entrevista). |
+| 2. A confissão em 1ª pessoa | Pacino: 86, Noor 28, Viagra escondido, o filho Roman, olhar, desculpas, macarrão, "tudo bem", TRT, ondas de choque, gel | Randy: 63, Mindy 46, 11 anos, Viagra, TRT escondido (o lutador limpo), bombas. Fatos reais entram nos mesmos lugares. |
+| 3. O homem que tem o segredo | O personal de 40, "do interior", que cresceu no curral do tio (fazenda de bode); 3x por semana na casa; "sentava à minha mesa" | Quem é o homem de 40 na vida do Randy e **de onde ele tirou o segredo**. Atenção: pela sequência do arquivo 10 (seção 7), o cavalo só se revela depois do Brecka. Então o homem de 40 pode **ter** o segredo (a VSL 2 faz isso, "guarda esse detalhe"), mas a copy só nomeia o que é lá na frente. Decidir: ele é lutador, treinador, ou homem comum. |
+| 4. A câmera | Al abre o app das câmeras e vê o personal misturando mel e pó na bancada, depois os gemidos por 2 horas | Equivalente pro Randy: câmera da casa, da academia (Xtreme Couture tem câmeras), do evento. Decidir se a cena da bancada entra (ela planta o MUS sem nomear). |
+| 5. O lado dela, gravado | Hyman vai atrás da Noor, grava: "amor não faz uma mulher gozar", "cada polegada", "ele riu e disse que era uma receita da fazenda do tio" | **Conflito com a regra "a Mindy nunca fala".** Três saídas: (a) sem o lado dela; (b) o lado dela na voz de uma amiga/terceira; (c) atriz UGC sem nome fazendo "a mulher". A VSL 2 tira do lado dela a frase-chave ("é como se algo dentro dele tivesse parado") e a pista do MUS. Se cortar, essas duas funções precisam ir pra outro lugar (o próprio Randy ou o Dana). |
+| 6. Kinsey + "o próximo pode ser o seu" | Estatística + ameaça direta ao avatar, na voz do Hyman | Mantém, na voz do Dana. |
+| 7. "Guarda esse detalhe" + as 2 perguntas | Hyman: o tio, a fazenda de bode; "cada polegada"; sai com 2 perguntas (o que mata o tecido / o que o personal tirou dos bodes) | Dana sai com as 2 perguntas e vai atrás (arquivo 10, 7.2, passos 4–6). O "detalhe" do cavalo pode ser plantado aqui sem nomear. |
+| 8. Os 2 blocos do Pacino + o bloco da Noor | ≈ 1.800 palavras PT na versão enxuta (Background 580 + Emocional 1.828 na final ajustada) | Mesma medida de referência. |
+
+**Decisões abertas desta peça (pro Marcos):** 3 (quem é o homem de 40 e se ele "tem o segredo"), 4 (câmera sim/não), 5 (o lado dela: sem, amiga, ou UGC sem nome).
+
+---
+
 
 Decisão de debate do Marcos: **versão Horse Jelly** ("modelando o que já funciona"). Fonte: `00_base/vsls_referencia/horse_jelly_atual/`, blocos 5–7 (6:37 → 12:48, 6 min 11 s, 3 blocos, 10 mini-blocos). Abaixo, cada beat do Mel com o equivalente do Randy. Fatos reais da Mindy (11 anos, post de 12/02/2025, 17 anos mais nova, acidente de julho de 2025) entram onde o Mel usa fatos reais da Rosalind (58 x 24, 10 anos, a festa de um projeto dela).
 
