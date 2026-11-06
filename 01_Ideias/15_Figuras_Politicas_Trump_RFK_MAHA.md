@@ -98,3 +98,7 @@ O Dr. Phil precisou **dizer** "sou amigo íntimo". O Dana **é**, e tem vídeo: 
 - **A mesa das lendas (8): a noite do Freedom 250** (14/06/2026, gramado da Casa Branca). É onde o Dana vê o padrão ("metade daquela mesa tinha me ligado") e é o palco do "evento que comprovou entre as lendas" no pós-truque (opção 2 das ring girls). A semana do Hall da Fama sai.
 
 **Ainda em aberto (1–4 e 9 da lista anterior):** cutman (fictício x Stitch), veterano ativo (sem nome x Jim Miller), clipes novos (Buffer, McCarthy, Norris, Statham, Glover, Rogan), bloco do Brecka (tese controle da VSL 1 x versão Horse Jelly do "quem paga"), performance da VSL 2.
+
+**Ajuste do Marcos (06/11/2026) sobre a entrada do Brecka:** o Brecka é **mencionado antes, na Discovery**, como o cara que ajudou o Dana a buscar tudo: a Discovery é **os dois juntos** (o Dana narra, o Brecka aparece ao lado dele, em cena e em b-roll, "eu e o Brecka fomos atrás"; a ida a Kentucky e a volta com os ingredientes são dos dois, com o Brecka indo ao cocho e o Dana recebendo). **O Brecka entra de força na Marketing Thesis** (MUP/MUF/MUS): é ali que ele assume a voz e carrega mecanismo, solução, produto e oferta. Até a tese, a voz é do Dana; o Brecka é presença, não narrador.
+
+Isso ajusta o arquivo 10, seção 7.2: o passo 5 ("encontra o Brecka") e o passo 6 (discovery-teaser) são narrados pelo Dana **com o Brecka em cena**; o passo 7 ("Brecka entra: mecanismo") é a Marketing Thesis, onde ele toma a palavra ("Obrigado, Dana").
