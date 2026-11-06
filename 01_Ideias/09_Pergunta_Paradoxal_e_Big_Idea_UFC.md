@@ -89,3 +89,30 @@ Candidatos, na lógica de "momento + gesto" que os anteriores usam (pré-banho d
 ## 6. Nota lacrada (não revelar agora; só pra garantir que a ponte com o ingrediente existe)
 
 A pergunta "o que o lutador faz entre a balança e o octógono" tem uma resposta real no mundo do esporte, e ela casa com o nosso MUS sem forçar: existe um protocolo de **reidratação e tamponamento** usado em esportes de combate e ciclismo, legal, e a versão dele em cavalos de corrida é tão conhecida que tem apelido e é **proibida pelas comissões de turfe** (que testam os cavalos por isso). Ou seja: a mesma "coisa" que o lutador faz depois da pesagem é a que o tratador dá ao cavalo antes da corrida, e as duas comissões (atlética e de turfe) já investigaram. Isso é a ponte do bloco 10 (mundo dos garanhões) com o bloco 15 (MUS I), e dá a cena de abertura ("a Comissão abriu investigação") um fundo verdadeiro. Fica pra quando entrarmos no mecanismo.
+
+---
+
+## 7. O gancho de origem: "o truque que os atores pornôs estão usando veio daqui" (Marcos, 06/11/2026)
+
+Ideia do Marcos: o gancho de curiosidade da lead é o **background do mundo das lutas com velhos comendo ring girls**, e a afirmação de que **o truque atual que os atores pornôs estão usando veio daí também.**
+
+### Por que isso é a jogada certa no mercado de hoje
+- O ângulo dominante das ads em novembro de 2026 é "o truque do cavalo dos atores pornôs" (8 de 20 ads, top 5 com ~120 mil ads; arquivo `01_Leitura_do_Mercado_nov2026.md`). O público **já conhece** o truque dos atores pornôs. Brigar com isso é caro; **reivindicar a origem** é de graça.
+- Resolve o "truque queimado" (o problema que a Soda Horse teve de gastar um bloco inteiro desqualificando o TikTok): a gente não diz "o truque viral está errado". A gente diz "**o truque viral é a cópia. A versão original é a das lendas do UFC, e ela é mais completa.**" A curiosidade muda de "que truque é esse" (queimada) pra "de onde veio e o que a cópia deixou de fora" (nova).
+- Encaixa no que já definimos: o produtor de Vegas (opção 5) **filma lutadores**, então ele aprendeu com os lutadores e levou pro set; os atores viralizaram; os lutadores nunca falaram. O cutman aprendeu no rancho. A cadeia vira: **rancho → cutman/vestiário do UFC → produtor de Vegas → atores pornôs → os vídeos que você viu.** (Inverte a ordem que eu tinha no arquivo 06: o set não vem antes do vestiário, vem depois.)
+
+### A frase-gancho (ideia, não copy final)
+"Você já viu o truque que os atores pornôs usam pra transar 4 horas. O que ninguém te contou é de onde eles roubaram isso: do vestiário do UFC. De homens de 60 anos que saem da arena e levam pra suíte a mesma ring girl que os garotos de 25 não conseguem nem olhar. Eu seguro a placa há 8 anos. Eu sei quem inventou o truque, e eu sei o que a versão dos atores deixou de fora."
+
+### Como a lead se monta com isso (opções 1 + 2 do arquivo 12)
+1. **Abertura (ring girl, UGC):** o mundo: a suíte 48 h (opção 1) e a mesa das lendas (opção 2). Velhos comendo ring girls, na frente dos novinhos. Choque + paradoxo de idade (o beat 01 da lead da HoneyFil, "70 anos, 8 polegadas").
+2. **A origem:** "o truque dos atores pornôs que você viu no TikTok veio daqui. Eles pegaram de um produtor de Vegas que filma lutadores. E pegaram pela metade."
+3. **Autoridade sem falar:** o Dana (CEO do UFC) "gastou milhões pra descobrir o que as lendas tomam"; a Comissão abriu investigação; a Pfizer quis o octógono.
+4. **Qualificação + promessa:** homem hétero, 40+, que não aguenta 5 minutos; o nome do truque (a pesagem / as lendas); o loop pro fim do vídeo.
+5. **Transição:** "o Dana vai te contar como descobriu. E o Brecka vai te mostrar o que a cópia dos atores pornôs não faz."
+
+### O que a "cópia" deixou de fora (a vantagem competitiva que a copy promete e o Brecka entrega)
+Isso é o que torna a reivindicação de origem útil, não só curiosa: a versão viral (atores) é **só o ingrediente**, tomado de qualquer jeito; a versão das lendas (cutman) é **o ingrediente preparado + o momento (pós-pesagem) + o protocolo**. Na tese, o Brecka explica por que a cópia funciona um pouco e a original funciona de verdade (é o "pó puro só arrota" da Soda Horse, mas sem desqualificar o truque: só completando). E o produtor de Vegas, no pró pós-validação (opção 5), fecha o círculo: "quando eu levei a versão completa pros meus atores de 50+, foi 14 vezes melhor que com Viagra".
+
+### Efeito nas alavancas
+Nenhuma mexe. O gimmick continua baking soda do cavalo (o "truque do cavalo" é o mesmo do mercado; a gente só diz de onde veio). Formato, MUP, MUS iguais. Avatar e emocional já definidos. O gancho de origem é posicionamento de lead, e é o que vai nos deixar usar nas ads o ângulo mais validado do mercado ("o truque dos atores pornôs") com uma camada nova ("veio do UFC").
