@@ -156,3 +156,10 @@ Resposta à pergunta "o melhor de todos seria o Randy?": **sim**, pelos 6 motivo
 **Elenco final do debate:** Dana White (background, investigação, presente, FAQ) · Randy Couture (emocional, primeiro homem, dois caminhos) · Gary Brecka (do mecanismo à oferta) · ring girl UGC (lead e bloco 6) · cutman veterano de combate + produtor de Vegas (brinde no bloco 10) · Stallone/Schwarzenegger/Lundgren em clipe (blocos 2 e 21).
 
 Em aberto ainda: MUP (cimento ou PFAS), lab (nosso ou UFC Performance Institute), vetos jurídicos.
+
+### 5.3 Checagens feitas em 06/11/2026 (busca na web)
+
+**Dana White não é bilionário pelas fontes que publicam estimativa.** O número mais citado é cerca de US$ 500 milhões (Celebrity Net Worth); um perfil atualizado em fevereiro de 2026 dá US$ 500–600 milhões. A única página que o chama de bilionário é SEO sem fonte. Os donos majoritários do UFC (irmãos Fertitta) é que são bilionários (US$ 2 bi cada). Forbes/Bloomberg não o listam.
+- **Efeito na copy:** não escrever "bilionário Dana White". Escrever "o CEO do UFC", "o homem que transformou US$ 2 milhões em US$ 4 bilhões" (a venda do UFC em 2016), "dono de meio bilhão", "o homem mais poderoso do esporte de luta". A HoneyFil se apoiava em "bilhões" do Elon; aqui a autoridade vem do **poder e da virilidade**, não do saldo. Se a oferta precisar de "bilionário" literal, o Cuban continua disponível (ele é, de verdade).
+
+**Randy x Dana: não achei reconciliação.** As fontes descrevem a briga longa (contrato, Viacom/Bellator, "excomungado" do UFC, Dana chamando ele de "um dos dois piores caras pra lidar"), e o Randy dizendo em entrevista "eu não tenho problema com o Dana", sem data clara. Nada de 2025. Isso **favorece a saída 5a** (usar a briga a favor: "o homem que me processou me ligou"), e a copy pode dizer "ficamos anos sem nos falar" sem mentir.
