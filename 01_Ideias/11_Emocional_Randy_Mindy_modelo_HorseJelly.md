@@ -172,3 +172,27 @@ Alternativas se o Marcos preferir outro encaixe:
 - **Tito Ortiz, 51:** famosíssimo e conservador declarado (Trump, política local), mas briga pública com o Dana e histórico de polêmica; dois rivais do Dana ligando quebra a lógica.
 
 **Ordem das ligações no bloco do Dana:** Randy (sábado, a história inteira) → Chuck (segunda, o rival, 30 s) → Coleman (na semana, 30 s) → "e depois mais 3, mais 5, mais 10. Eu parei de contar. Era a velha guarda inteira ligando pra mim pra dizer a mesma coisa." → "Eu não podia deixar as lendas do UFC amolecer."
+
+---
+
+## O Brecka no Background do Dana: relação real + a história do exame, juntos (Marcos, 06/11/2026)
+
+Decisão: **usar as duas coisas**. O Dana apresenta o Brecka como "o homem que me deu 10 anos de vida" **e** conta a história do exame como prova de que o Brecka acerta antes de pedir que você confie nele sobre o seu pau.
+
+**Fatos checados (busca em 06/11/2026):**
+- Setembro de 2022, podcast Action Junkeez: o Dana, 53, contou que o Gary Brecka (10X Health System) analisou o sangue dele e **"me deu 10,4 anos de vida"** se ele não mudasse nada. Isso tinha sido 16 semanas antes.
+- O que o exame mostrou (pela cobertura): sobrepeso, apneia do sono, **pressão alta** (o próprio Brecka, em 2025, disse que a pressão foi o achado-chave), "blood work in the gutter".
+- O que o Dana fez: perdeu mais de 30 libras, mudou dieta e treino, virou "viciado em banho de gelo"; fotos sem camisa viralizaram; disse que o Brecka "mudou minha vida".
+- Nuance que a copy pode ignorar mas eu anoto: o Brecka disse em 2025 que o "10,4 anos" veio de um **modelo probabilístico** (registros médicos + estilo de vida), não de uma medição direta do sangue, e que o modelo "não era tão preciso quanto os que eu usava antes". Críticos dizem que esse tipo de previsão não dá meses ou anos. Pra VSL isso não muda nada: a história pública é "exame de sangue → 10,4 anos → mudou tudo → está vivo e sarado". E ela se encaixa literalmente no bloco 4.1 da Horse Jelly, onde o Brecka diz "a gente dizia pra seguradora até o mês em que você ia morrer".
+
+**Como entra no Background do Dana (eventos, não copy):**
+1. O Dana termina as ligações (Randy, Chuck, Coleman, "a velha guarda inteira") com "eu não podia deixar as lendas amolecer".
+2. Ele pesquisa como leigo e bate na parede (urologistas: idade, testosterona, Viagra).
+3. Ele lembra de quem já acertou com ele uma vez: "em 2022 um homem olhou pro meu sangue e me disse que eu tinha 10,4 anos de vida. Eu tinha 53. Pressão alta, apneia, 30 libras a mais. Eu fiz tudo que ele mandou. Estou aqui, 56, mais forte do que aos 40. Esse homem é o Gary Brecka."
+4. Prova em imagem: a foto sem camisa do Dana (viralizou, real), o antes e depois. Lettering "10.4 YEARS".
+5. Transição: "se ele acertou quanto tempo eu tinha de vida olhando pro meu sangue, ele ia acertar por que o pau das minhas lendas parou. Eu levei o Randy e os exames dos meus 300 aposentados pra ele."
+6. Daí a discovery-teaser (arquivo 10, 7.2, passo 6) e a entrada do Brecka no mecanismo.
+
+**Por que juntar as duas funciona melhor que uma só:** a relação real dá credibilidade (é checável em 10 segundos que são amigos e sócios); a história do exame dá **o método** (ele olha pro sangue, prevê, acerta), que é exatamente o que o Brecka vai fazer com os 300 aposentados. O espectador já viu o Brecka acertar uma vez antes de ouvir a tese dele.
+
+**Risco específico:** o Dana é sócio da 10X Health, empresa de suplemento do Brecka. Usar os dois juntos num produto de ED concorrente é notificação quase certa dos dois lados. Anotado nos vetos.
