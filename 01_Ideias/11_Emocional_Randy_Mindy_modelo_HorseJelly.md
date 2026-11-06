@@ -89,3 +89,54 @@ Decisão de debate do Marcos: **versão Horse Jelly** ("modelando o que já func
 - 7.2a: a frase "pau que funciona" na boca da Mindy (literal Horse Jelly) ou na boca de uma amiga (mesma cena, menos risco).
 - 7.1b: o cara de 40 é anônimo ou "um lutador".
 - 7.3d: usar ou não o acidente de julho de 2025.
+
+---
+
+## Roteiro personalizado da emocional (eventos, não copy) — Marcos, 06/11/2026
+
+Decisões do Marcos: **(1) a Mindy fala** (o lado dela entra gravado, como a Noor). **(2) A história é personalizada pra eles**, não a nossa transplantada. **(3) O homem que entra na vida deles é um lutador jovem do UFC, 30 anos.**
+
+### O que a vida real deles oferece pra personalizar (fatos a checar, mas públicos)
+- O Randy é dono da **Xtreme Couture**, academia de MMA em Las Vegas, onde lutadores do UFC treinam e onde ele dá corner. → O lutador de 30 **treina na academia dele**, o Randy **dá corner pra ele**. Não é um personal pago, é um aluno. "Eu ensinei tudo pra esse moleque."
+- O Randy teve **infarto em outubro de 2019** (checar). → Cardiologista, remédio pro coração, e o aviso de que Viagra com remédio de coração é risco. Personaliza o "por que ele não resolvia com a pílula": ele tomava escondido com medo de morrer. (O Pacino não tinha isso.)
+- O Randy se aposentou em **2011, aos 47** (último combate contra Machida; checar). Conheceu a Mindy em **2014**, já aposentado.
+- A Mindy é **atriz, modelo e comentarista política**, com público e evento próprios, grava conteúdo, viaja, posta tudo. → O lado dela é de uma mulher pública que fala pra câmera por profissão; faz sentido ela "dar o depoimento". E ela posta: o fim foi anunciado por ela, no Facebook, em **12/02/2025**.
+- **Julho de 2025:** o Randy quase morre numa pista (queimaduras, hospital). A Mindy posta que ele está bem e manda oração. → Fundo do poço real, depois do término.
+- A **briga Randy x Dana** (processo, anos sem falar). → A ligação de sábado é pro inimigo.
+- O mundo deles é **Las Vegas**: a academia, a arena, a pesagem, a festa pós-luta, as ring girls. → A cena da festa não é "festa da indústria": é a **festa pós-luta em Vegas**, com todo mundo de 25 e as ring girls na mesa.
+
+### A sequência de eventos (o que acontece, na ordem; sem copy)
+1. **2014.** Randy, 51, aposentado há 3 anos, Hall da Fama, Mercenários. Conhece a Mindy, 34, atriz. No começo ele dá conta. Os dois moram em Vegas; ela começa a frequentar a Xtreme Couture, grava conteúdo com os lutadores.
+2. **Começa devagar, depois do infarto (2019).** Remédio de coração. Uma noite aqui, outra ali. Ele culpa o coração, a idade, o remédio. O olhar dela, o celular, o lençol. As desculpas dela são de quem tem agenda pública (gravação cedo, evento, viagem a Washington).
+3. **Viagra escondido, com medo.** O cardiologista avisou. Ele toma assim mesmo, no banheiro, olhando o relógio e contando o próprio batimento. Dependência + medo de morrer em cima dela.
+4. **O lutador de 30 entra.** Um aluno da Xtreme Couture, promessa do UFC, que o Randy pega pra dar corner. Treina todo dia na academia dele; o Randy o leva pra casa pra jantar; a Mindy grava conteúdo com ele ("o aluno do Randy"). O Randy orgulhoso: "eu ensinei tudo pra ele". O moleque senta à mesa dele, ri com a Mindy, treina com ela.
+5. **A pesagem (o detalhe que o espectador guarda).** Na véspera de uma luta, o Randy no corner vê o moleque, destruído depois da balança, tomar uma coisa que o cutman velho prepara. Vinte e quatro horas depois, o moleque faz 3 rounds e sai da arena pra festa como se não tivesse lutado. O Randy registra, não entende, segue. (Planta o MUS sem nomear. É o "guarda esse detalhe" da VSL 2: a fazenda do tio.)
+6. **A noite que quebrou.** A noite anterior à luta do moleque ou outra: a Mindy ainda tentando, jantar, surpresa, ele toma a pílula, o coração acelera, a cena da cama, entorta, o olhar, "tudo bem, Randy". O "para a luta" do árbitro.
+7. **TRT escondido (2023).** O lutador limpo, que viu o Dana proibir em 2014, indo atrás de testosterona. Fígado, parar, piorar. Bombas no banheiro de Vegas.
+8. **A festa pós-luta.** O moleque vence; festa em Vegas, ring girls, todo mundo de 25. O Randy num canto, o moleque abraça a Mindy pela cintura na frente de todo mundo, a mão, o sorriso. A frase "esse aqui tem um pau que funciona" (decidir: boca dela, boca de uma ring girl, ou boca do moleque). O Randy sai sem dizer nada, atravessa o cassino.
+9. **A câmera.** A Xtreme Couture tem câmera em todo canto (academia dele, ele tem acesso). Ou a casa. Ele abre pela primeira vez atrás de prova de traição e vê: o moleque misturando o que o cutman dá na bancada da academia (ou da casa dele), tranquilo, e depois os dois. Duas horas. Ele conta.
+10. **12 de fevereiro de 2025.** Ela posta no Facebook que acabou. Ele fica sabendo pelo post, junto com todo mundo.
+11. **O lado da Mindy (gravado, voz dela).** Ela é pública, fala pra câmera por profissão: ainda amava o Randy; "amor não faz uma mulher gozar"; o volume do moleque no shorts de treino; a primeira vez; "cada polegada"; ela perguntou o que ele tomava e ele disse que era "o que o cutman velho dá depois da pesagem, uma coisa de rancho" (a pista do MUS, sem nome); a frase-chave: "é como se alguma coisa dentro do Randy tivesse parado de funcionar, e ele era o homem mais forte que eu conheci".
+12. **Julho de 2025, a pista.** Ele quase morre queimado. No hospital, sozinho, a mensagem dela: oração. "Ela ainda me amava. E mesmo assim não ficou."
+13. **A ligação de sábado.** Pro Dana, o homem que ele processou. "Eu não tinha mais pra quem ligar."
+14. **Dana fecha o bloco** com as 2 perguntas (o que mata o tecido por dentro / o que o cutman dá ao moleque depois da pesagem), o Kinsey, "o próximo pode ser o seu", e o "guarda esse detalhe": a pesagem, o cutman, o rancho. E a partir daí a sequência do arquivo 10, seção 7: outras lendas ligam, ele pesquisa, encontra o Brecka, discovery-teaser, Brecka explica o mecanismo, e só então o cavalo.
+
+### O que é diferente da nossa VSL 2 (a personalização)
+| Nossa VSL 2 (Pacino) | VSL 3 (Randy) |
+|---|---|
+| personal trainer pago, estranho na casa | **aluno da academia dele**, que ele mesmo treinou e levou pra casa |
+| o segredo vem da fazenda do tio (bode) | o segredo vem do **cutman velho depois da pesagem** (rancho, sem nome) |
+| Viagra escondido por vergonha | Viagra escondido **com medo de morrer** (infarto de 2019) |
+| TRT como mais uma tentativa | TRT como **traição aos próprios princípios** (o lutador limpo, a proibição do Dana) |
+| festa de projeto dela, "gente da indústria" | **festa pós-luta em Vegas**, ring girls, o aluno vencedor |
+| câmera da casa | câmera **da academia dele** (ou da casa) |
+| a Noor vai embora com o personal e pede a guarda | a Mindy **posta no Facebook** e ele descobre pelo post; depois a **pista** e a oração |
+| o Hyman era amigo de 15 anos | o Dana era **o inimigo** |
+| a Noor, 28, "ninfeta" | a Mindy, 46, **mulher pública**, que fala pra câmera como quem já falou de tudo |
+
+### Decisões que ainda ficam com o Marcos
+- A frase "esse aqui tem um pau que funciona": boca da Mindy, de uma ring girl ou do moleque.
+- Câmera da academia ou da casa.
+- Infarto de 2019 entra como personalização do Viagra (recomendo: é o que torna a história só dele).
+- Acidente de julho de 2025 entra como fundo do poço (recomendo: a oração dela é a prova de que ela ainda o amava).
+- O moleque tem nome fictício ou "um aluno meu".
