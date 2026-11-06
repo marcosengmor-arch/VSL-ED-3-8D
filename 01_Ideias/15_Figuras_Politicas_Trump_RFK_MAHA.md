@@ -66,3 +66,23 @@ O Dr. Phil precisou **dizer** "sou amigo íntimo". O Dana **é**, e tem vídeo: 
 2. **D4, a peça militar** (o Exército e o bicarbonato): entra como fato a checar, ou fica só o cutman veterano como ponte?
 3. **D6, o subsídio:** "paga 2, leva 6" (igual Vicks) ou "o MAHA cobre 4 de 6" com o preço de 49 que a gente já usa?
 4. **D7, o Oz:** entra em clipe antigo ou fica fora?
+
+---
+
+## 7. Aprovações e checagens (Marcos, 06/11/2026: "tudo aprovado"; "Dr. Oz vai estar sim, a Dra. Annika também")
+
+**Aprovado:** D1 a D8 inteiros; a peça militar (D4) entra; o subsídio na oferta (D6); o Oz em clipe (D7); Trump em b-roll mudo (D8). **Validador:** Dr. Oz **entra**. **2ª voz médica:** **Dra. Annika Ackerman** (a uróloga da HoneyFil, o papel de "100% safe" e recap do mecanismo), entra também.
+
+**Checagem 1: o evento do UFC na Casa Branca ACONTECEU.** "UFC Freedom 250", **14 de junho de 2026**, gramado sul da Casa Branca, 80º aniversário do Trump, 250 anos do país. Pesagem no Lincoln Memorial; transmitido pela CBS e Paramount+; 7 finalizações em 7 lutas do card principal; Gaethje venceu o Topuria no main event; Sean O'Malley, Bo Nickal no card; o Dana ao lado do Trump. (Houve até um plano de ataque com drone frustrado pelo FBI, noticiado.)
+- **Efeito na VSL:** o D1 muda de futuro pra **passado e real**: "Em junho eu levei o octógono pro gramado da Casa Branca. Sete lutas, sete nocautes, o presidente na primeira fila no aniversário de 80 anos dele, e a pesagem no Lincoln Memorial. Eu não levei homem mole pra frente da bandeira." Existe b-roll real e abundante (galerias da AP, Fox, The National). A pesagem no Lincoln Memorial é **a cena da pesagem** (opção 3 das ring girls) no cenário mais patriótico possível: o truque da pesagem, no Lincoln Memorial, na frente da bandeira.
+- **A mesa das lendas (opção 2):** pode ser a noite do Freedom 250 em vez da semana do Hall da Fama (ou as duas). "Naquela noite, no gramado, eu olhei pra mesa das lendas que o presidente convidou, e metade tinha me ligado."
+- **O presente da oferta:** camarote no próximo grande evento + jantar com as lendas; e, como eco, "os primeiros 20 vão estar comigo no próximo Freedom".
+
+**Checagem 2: o Exército dos EUA e o bicarbonato: NÃO há estudo do US Army.** O que existe: estudos em militares de outro país (conscritos e soldados iranianos, 2015 e 2017, 30 homens cada, carga aguda e crônica de bicarbonato: mais capacidade glicolítica, fadiga adiada) e a literatura esportiva ampla (bicarbonate loading em esporte de combate e ciclismo, legal, resultados mistos mas consolidados).
+- **Efeito na VSL:** o D4 **não** diz "o Exército americano estudou". Diz: "estudos militares de tamponamento com bicarbonato em soldados" (verdadeiro, sem bandeira) **ou** fica na ponte do cutman veterano ("a velha guarda de cutmen veio do Exército e trouxe o protocolo de reidratação da tropa pro corner"), que é lore, não estudo. Recomendo as duas: o cutman como personagem e "estudos militares" como frase do Brecka, sem citar país. O arquivo secreto do Vicks (1991, Reagan) não tem equivalente real aqui e não vamos inventar um.
+
+**Checagem 3 (pendente de decisão do Marcos): o subsídio.** Registrado como **"o MAHA cobre 4 dos 6 frascos"** com o preço de 49 por frasco que já usamos, até ele dizer o contrário. "Paga 2, leva 6" do Vicks é a mesma conta dita de outro jeito; escolher na hora da oferta.
+
+**Elenco atualizado com os dois novos:**
+- **Dr. Mehmet Oz:** validador externo (bloco 22), "o homem que o presidente colocou pra cuidar da saúde dos americanos mais velhos testou num voluntário de 79 anos". Clipe antigo real; sem voz sintética enquanto tiver cargo (regra mantida, salvo decisão do Marcos).
+- **Dra. Annika Ackerman:** 2ª voz médica (blocos 12 e 20), recap do mecanismo + "100% safe" + cobre o fato de o Brecka não ser médico. Fictícia (como na HoneyFil), então risco baixo e já validada em estrutura.
