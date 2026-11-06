@@ -196,3 +196,16 @@ Decisão: **usar as duas coisas**. O Dana apresenta o Brecka como "o homem que m
 **Por que juntar as duas funciona melhor que uma só:** a relação real dá credibilidade (é checável em 10 segundos que são amigos e sócios); a história do exame dá **o método** (ele olha pro sangue, prevê, acerta), que é exatamente o que o Brecka vai fazer com os 300 aposentados. O espectador já viu o Brecka acertar uma vez antes de ouvir a tese dele.
 
 **Risco específico:** o Dana é sócio da 10X Health, empresa de suplemento do Brecka. Usar os dois juntos num produto de ED concorrente é notificação quase certa dos dois lados. Anotado nos vetos.
+
+---
+
+## Fechamentos de 06/11/2026 (Background do Dana)
+
+**Lendas que ligam:** fechado **Chuck Liddell** (o rival, segunda-feira, sem mulher, dor de reputação e vestiário) e **Mark Coleman** (a lenda de encaixe com o público, na semana, o homem do incêndio que não levanta o próprio pau; com cuidado de gosto).
+
+**A recusa da Pfizer, na boca do Dana: as duas, em sequência (dois "I REFUSED").**
+1. **Primeiro, o patrocínio (só o Dana tem essa):** a Pfizer oferece o Viagra como patrocinador do UFC, logo no chão do octógono, milhões por ano pra empresa, com uma condição: ele para de falar do assunto. "Eles queriam o Viagra pintado no chão do octógono. E queriam a minha boca fechada." Recusa. Lettering "I REFUSED".
+2. **Depois, a fórmula (o beat das três referências):** quando o patrocínio não compra o silêncio, oferecem comprar a fórmula pra engavetar sob NDA (47 milhões, o número que a Horse Jelly e a nossa VSL 2 já usam, ou outro). Recusa de novo, com palavrão, na voz dele. Lettering "I REFUSED" de novo, maior.
+3. Ordem no bloco: as duas recusas vêm **depois** da discovery-teaser e antes de passar a bola pro Brecka, como consequência de ele ter achado a resposta ("e aí a Pfizer ligou"); ou, alternativa, a recusa 1 (patrocínio) no Background inicial (ele já era inimigo da Pfizer antes do Randy) e a recusa 2 (fórmula) depois da discovery. Decidir na hora de montar a ordem fina do Background.
+
+**Estado do passo a passo:** Emocional definida. Background do Dana definido (quem é sem "bilionário"; a dívida com as lendas; Randy → Chuck → Coleman → "a velha guarda inteira"; pesquisa batendo na parede; o Brecka dos 10,4 anos; discovery-teaser; dois "I REFUSED"; passa a bola). **Próximo:** o bloco do Brecka (mecanismo: glifosato, quem paga, memo, esponja, cimento, relógio, por que nada funcionou) e, depois dele, a revelação do cavalo e a solução.
