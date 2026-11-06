@@ -41,35 +41,35 @@ Homem americano, 50 a 70 anos (compra mais forte 55–68), branco, Sul e Meio-Oe
 ## Três Ideias de Ângulo Principal (Top 3 Big Ideas)
 *Cada uma deve ser clara, única e com potencial de escalabilidade.*
 
-### Ideia 1
+### Ideia 1 (a big idea, única e definida)
 
 **Descrição**
 
-"The Stallion Soda Ritual": o truque que os atores pornôs estão usando nos sets pra transar 4 horas veio do vestiário do UFC, de homens de 60 anos que saem da arena e levam pra suíte a mesma ring girl que os garotos de 25 não conseguem nem olhar. A ring girl (UGC) abre: "ring girl não sai com novinho, sai com lenda", a suíte 48 horas depois da luta, a mesa das lendas, e a origem: "o produtor de Vegas filmou os lutadores e levou pros atores, pela metade". A ereção não depende de hormônio nem idade: depende de uma coisa que os lutadores fazem toda semana de luta e param de fazer quando se aposentam.
+**"A ereção não depende de hormônio, idade ou saúde. Depende de uma coisa que as lendas do UFC fazem na véspera de toda luta e param de fazer quando penduram as luvas. Quem continua fazendo, continua lenda aos 63. Quem para, broxa em 2 anos. E quem nunca fez, como você, broxou aos 50 sem nunca ter subido num ringue."** É o Stallion Soda Ritual: o que o cutman da velha guarda prepara depois da pesagem (a versão de vestiário do que o tratador dá ao garanhão no cocho em Kentucky), feito pras lendas de 50+ manterem a reputação na cama; os veteranos de 40+ que tomaram ganharam luta por tabela. O truque que os atores pornôs estão usando nos sets veio daqui, pela metade: um produtor de Vegas filmou os lutadores e levou pros atores. O Dana White, que proibiu testosterona no UFC em 2014 e viu as lendas amolecerem do mesmo jeito, está processando quem vende a cópia e gravou este vídeo puto pra dar a receita certa e de onde ela vem. Três personagens, uma variável: o veterano de 43 que faz o ritual (funciona), o Randy Couture que parou (broxou, perdeu a Mindy pra um aluno de 30, voltou ao ritual, voltou a ser lenda), o Dana e você que nunca fizeram (broxaram sem saber por quê).
 
 **Por que Pode Funcionar**
 
-Rouba o ângulo mais validado das ads (o truque dos atores pornôs / truque do cavalo) sem brigar com ele: reivindica a origem e promete a versão completa. Resolve o "truque queimado" (a Soda Horse gastou um bloco desqualificando o TikTok) trocando a curiosidade de "que truque é esse" por "de onde veio e o que a cópia deixou de fora". Velho comendo ring girl é a inversão de idade da HoneyFil ("70 anos, 8 polegadas") num universo que o avatar respeita. Zero alavanca-chave nova.
+Mesma lógica do havaiano que "come açúcar e não tem diabetes porque come abacaxi todo dia" (SH4) e do ator pornô que "fode 4 por noite aos 55 porque faz o truque do mel antes do banho" (HoneyFil): o grupo de exceção não é exceção por quem ele é, é por uma coisa que ele faz; e o que ele faz é simples, caseiro e proibido de contar. O UFC tem isso em dose maior que todos os truques anteriores e com dois fatos reais que nenhum tinha: a proibição de testosterona (2014) e o antidoping mais duro do esporte, que derrubam a crença nº 1 do avatar (testosterona) com uma lei. Rouba o ângulo mais validado das ads (o truque dos atores pornôs) sem brigar com ele: reivindica a origem e promete a versão completa, resolvendo o "truque queimado". Zero alavanca-chave nova (gimmick, formato, MUP e MUS mantidos; só avatar e emocional mudam). As três leads (Stallion Soda / Kentucky Stallion / American Stallion Ritual) são entradas diferentes pra esta única big idea, não big ideas diferentes.
 
 ### Ideia 2
 
 **Descrição**
 
-"O homem que proibiu testosterona no UFC está processando quem vende o truque dele." Lead telejornal/off: a Comissão Atlética abriu investigação sobre o pó que o Dana dá às lendas; a Pfizer quis o Viagra pintado no chão do octógono e a boca dele fechada; ele recusou duas vezes e gravou o vídeo puto, pra dar a receita certa e de onde vem. Pergunta paradoxal do lutador: como um homem de 43 que corta 10 kg de água, dorme 3 horas, apanha 25 minutos e está proibido por lei de tocar em testosterona come a ring girl na mesma noite, e o mesmo homem, 2 anos aposentado, com tudo, não fica duro? Em 2014 o UFC proibiu TRT e os veteranos de 40 ficaram mais fortes.
+Não se aplica: a big idea desta oferta é única (Ideia 1). O que varia são as leads (ver "Nome Chiclete").
 
 **Por que Pode Funcionar**
 
-Dá o "por que agora / por que este vídeo" (o Elon vazando no X, o Cuban derrubado 16 vezes) na voz mais crível possível: o Dana é litigioso de verdade. A proibição de TRT em 2014 é fato público e derruba a crença número 1 do avatar (testosterona) com uma lei. A denúncia (Pfizer, Bayer, Comissão) casa com o avatar anti-Pharma e com a tese de glifosato. Autoridade por poder e virilidade, sem precisar de "bilionário" (o Dana não é).
+—
 
 ### Ideia 3
 
 **Descrição**
 
-"The American Stallion Ritual": em 14 de junho de 2026 o Dana levou o octógono pro gramado da Casa Branca (Freedom 250, 7 lutas, 7 finalizações, pesagem no Lincoln Memorial, o presidente na primeira fila nos 80 anos). Ele não levou homem mole pra frente da bandeira: as lendas na mesa daquela noite já faziam o ritual. O presidente e o Secretário de Saúde incluíram o ritual no MAHA como programa de saúde do homem americano; o Exército estudou o pó nos soldados; o trial foi numa base militar com veteranos de 50+; parte de cada frasco vai pros veteranos feridos. "Eles querem você mole. Mole na TV, mole no trabalho, mole na cama. No meu octógono não entra homem mole."
+Não se aplica (ver Ideia 1).
 
 **Por que Pode Funcionar**
 
-É a camada que o Vicks construiu com 5 clipes (Oz, RFK, Trump, veteranos, Normandia), aqui em biografia e em evento real com b-roll abundante. Puxa o avatar conservador 60+ pela bandeira, pela tropa e pelo governo a favor (RFK/MAHA contra Pfizer/Bayer), sem fala política explícita (Trump mudo, RFK só em clipe). Transforma a tese em causa ("a castração química do homem americano") e o desconto em subsídio ("o MAHA cobre 4 de 6").
+—
 
 ---
 
