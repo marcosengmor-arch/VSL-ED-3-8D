@@ -140,3 +140,15 @@ Decisões do Marcos: **(1) a Mindy fala** (o lado dela entra gravado, como a Noo
 - Infarto de 2019 entra como personalização do Viagra (recomendo: é o que torna a história só dele).
 - Acidente de julho de 2025 entra como fundo do poço (recomendo: a oração dela é a prova de que ela ainda o amava).
 - O moleque tem nome fictício ou "um aluno meu".
+
+### Decisões do Marcos (06/11/2026) sobre as 5 pendências
+1. **Câmera:** da academia, na sala dele (a sala do Randy na Xtreme Couture). A bancada onde o moleque mistura e o sofá/sala onde acontece são do Randy, dentro do lugar que ele construiu.
+2. **A frase "esse aqui tem um pau que funciona":** mantém, na boca da Mindy (molde Horse Jelly).
+3. **Infarto de 2019 = colateral do Viagra.** Ordem corrigida: ele já estava mole **antes** de 2019; se matava de Viagra pra dar conta da Mindy; o infarto de outubro de 2019 entra na conta da pílula (liga direto na prova que a tese já usa: Viagra x infarto, os 37.000 mortos/ano da Nature). Depois do infarto, o cardiologista proíbe a pílula, e ele fica sem pílula e sem pau: a Mindy sem sexo dali em diante. Isso explica os anos de seca (2019 → 2025) sem inventar nada além da causa.
+4. **Acidente de julho de 2025 na conta de um método de DE frustrado:** dá, de duas formas, com risco diferente.
+   - **4a. Causal (mais forte, mais arriscada):** o Randy estava no 3º mês de um "último tratamento" (injeção peniana / ciclo de TRT / clínica de ondas de choque com coquetel), que dá tontura, queda de pressão ou apagão, e ele apagou ao volante na pista. A copy coloca o acidente real como consequência de um método de DE. Risco: atribuir causa médica inventada a um acidente público e recente de uma pessoa real, com laudo e noticiário contra. Mesmo nível de risco de dizer que o infarto foi o Viagra, só que mais checável (o acidente foi noticiado em detalhe).
+   - **4b. Consequência, não causa (recomendada):** depois do post dela, o Randy se joga na pista porque "era a única coisa que eu ainda conseguia fazer ir rápido". Um homem que não sobe mais o pau tentando se sentir homem a 300 por hora, sem cabeça, e quase morre queimado. O acidente vira o retrato do estado dele (o fundo do poço do Mel: um ano bebendo sozinho), e a mensagem de oração da Mindy do hospital fecha a cena. Não contradiz nenhum fato público, e dói igual.
+   - Híbrido possível: 4b como narrativa + uma frase que planta o método ("eu tinha saído da clínica de ondas de choque naquela semana, 20 mil dólares, e nada"), sem dizer que foi a causa.
+5. **O moleque:** tem nome (fictício), é aluno dele na Xtreme Couture, **28 anos**. O Randy deu corner pra ele.
+
+**Linha do tempo final da emocional (eventos):** 2014 conhece a Mindy → ~2017–2018 começa a amolecer, Viagra pesado → **out/2019 infarto (colateral da pílula)** → pílula proibida, seca → TRT escondido (2023), fígado, bombas → 2024 o aluno de 28 entra na academia e na casa → a pesagem (o cutman, o detalhe) → a noite que quebrou → a festa pós-luta, a mão, a frase dela → a câmera da sala dele → **12/02/2025 o post** → o lado da Mindy (voz dela) → **jul/2025 a pista** (4b, ou 4a se o Marcos decidir) → a ligação de sábado pro Dana.
