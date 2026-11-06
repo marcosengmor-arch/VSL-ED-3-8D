@@ -95,3 +95,38 @@ Pedido do Marcos: encaixar as ring girls num ambiente frenético de sexo, por tr
 | 5 Set de Vegas | livre | produtor + ponte rancho → set → octógono | bloco 14 / 21 | média | médio |
 
 **Combinação que eu testaria:** 3 na lead (a pesagem, com o nome do truque), 4 na emocional (a festa do Randy), 2 no Background do Dana (a mesa das lendas), 1 como depoimento do veterano de 43 no bloco 19, e 5 como brinde na revelação do cavalo. Cada ambiente aparece uma vez, a ring girl atravessa a VSL inteira como a mesma testemunha, e os cinco juntos desenham a semana da luta inteira: pesagem → octógono → vestiário → after → suíte.
+
+---
+
+## Encaixe definido pelo Marcos (06/11/2026)
+
+| Onde | Opção | Função |
+|---|---|---|
+| **Lead** | 1 (suíte 48 h) + 2 (mesa das lendas) | a ring girl abre com os dois extremos: o veterano de 43 que não cai depois da luta e a mesa de 60 anos onde as meninas sentam |
+| **Background (Dana)** | 2 | o jantar/festa do Hall da Fama é onde o Dana vê o padrão: "naquela mesa, metade tinha me ligado" |
+| **Emocional (Randy)** | 4 (o after em Vegas) | a cena da festa do Randy, da Mindy e do moleque acontece no after pós-luta; a ring girl é testemunha (explicado abaixo) |
+| **Depoimento (voluntários / prova)** | 1 | o veterano de 43 e a ring girl da suíte como depoimento pós-truque |
+| **Pós-truque / produto** | 2 | **o evento que comprovou entre as lendas:** a semana do Hall da Fama como o "trial" das lendas (o equivalente dos 37 voluntários, mas com evento real como moldura: as lendas tomaram antes da Fight Week, e a mesa das lendas daquele ano foi outra) |
+| **Pró, depois de validado** | 5 | o cara da indústria pornô de Vegas pega pra testar com os atores 50+: **performance 14x melhor que com Viagra**, sem os colaterais (coração, tontura, dependência); entra como prova extra, depois do produto, não como descoberta |
+
+---
+
+## Opção 4 na emocional, explicada (eventos, não copy)
+
+**Por que o after e não a "festa de projeto dela" da VSL 2:** na VSL 2 a cena da humilhação é numa festa da Noor, "gente da indústria". Aqui a festa é do mundo do Randy, e isso muda três coisas: (a) o Randy não está de visita, está em casa, e perde em casa; (b) o moleque não é um estranho, é o aluno que o Randy acabou de colocar no octógono e que acabou de vencer; (c) o ambiente é o mais sexual do esporte (rosto cortado, adrenalina, champanhe, ring girls, modelos, todo mundo de 25), então a frase "esse aqui tem um pau que funciona" soa natural, não forçada.
+
+**A sequência dentro da emocional (encaixa entre o evento 7, TRT/bombas, e o evento 9, a câmera, do arquivo 11):**
+
+1. **A noite da luta do moleque.** O Randy dá corner. A Mindy está na arena, na cadeira dele, gravando conteúdo. A ring girl do evento (a mesma da lead) segura a placa nos rounds do moleque.
+2. **A vitória.** O moleque vence por nocaute (ou decisão) com o Randy no corner. O Randy entra no octógono pra abraçar ele: a foto que todo mundo tira. Ele ainda é "o mestre".
+3. **O after.** O UFC leva o card pra boate da Strip. Camarote. O Randy senta num canto com uma cerveja, 63 anos, deixa a Mindy circular (é o beat do Mel "num canto com uma cerveja"). A mesa está cheia de lutadores de 25 com o rosto costurado e ring girls. O cutman passa e solta a frase do ambiente: "fecho o corte às 11 e às 2 ele está abrindo de novo em cima de alguém".
+4. **A régua, em cena.** A ring girl (testemunha) está na mesa. Ela nota o que o Randy ainda não notou: o moleque vencedor não está olhando pra nenhuma das meninas de 25. Está olhando pra Mindy. (Ela conta isso depois, no bloco 6, no papel da Christine: "eu vi antes dele".)
+5. **A mão, o sorriso, a frase.** O moleque chega por trás da Mindy, braço na cintura, a mão desce, 2 ou 3 segundos. Ela ri olhando pra ele, o sorriso que o Randy não via há anos. Ela percebe que ele está olhando. A bebida dá a coragem. **A frase, na boca da Mindy**, alto, na mesa cheia: "esse aqui tem um pau que funciona". Na frente dos lutadores que o Randy treinou, das ring girls que o viram campeão, do cutman.
+6. **A saída.** O Randy atravessa o camarote, a boate e o cassino sem dizer uma palavra, "encolhido 2 polegadas dentro da cueca", com todo mundo olhando. "Eu, que nunca saí de uma luta." Os pensamentos: há quanto tempo? Os treinos em casa? A semana que ela "gravou em Washington"?
+7. **A câmera da sala dele (evento 9).** Naquela madrugada, sozinho, ele abre pela primeira vez o app das câmeras da Xtreme Couture atrás de prova. E vê, na sala dele: o moleque na bancada misturando "a coisa da pesagem" com calma, e depois os dois. Duas horas. Ele conta.
+
+**O que a ring girl faz com isso (bloco 6, o papel da Christine da Soda Horse / da Noor na VSL 2):** ela dá a régua que a Mindy não pode dar sozinha. Ela viu o Randy campeão aos 43 e viu o Randy aos 63 naquela mesa; viu o moleque recusar as meninas de 25 pela mulher de 46 do mestre; e sabe o que o moleque tem que o Randy não tem mais: "não é idade, eu já saí com homem de 55 que me deixou sem andar. É que esse de 55 fazia a coisa da pesagem. O Randy parou." Ela planta, pela segunda vez, o detalhe (a pesagem, o cutman, o rancho) sem nomear.
+
+**O que a Mindy faz com isso (o lado dela, evento 11):** ela conta o after do ponto de vista dela: ainda amava o Randy; o volume do moleque no shorts no treino da academia; a primeira vez na sala do Randy; "cada polegada"; perguntou o que ele tomava e ele disse "o que o cutman velho dá depois da pesagem, coisa de rancho"; "é como se alguma coisa dentro do Randy tivesse parado de funcionar".
+
+**Resumo da função do after:** é o único cenário em que a emocional (a perda), a régua (a ring girl), a pista do MUS (o moleque e a pesagem) e a humilhação pública (na frente do mundo dele) acontecem na mesma noite, em 3 minutos de VSL.
