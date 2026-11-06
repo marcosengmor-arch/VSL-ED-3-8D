@@ -88,3 +88,34 @@ Ponto de atenção pro Liddell: a emocional dele deve ser com a **ring girl**, n
 2. **MUP:** cimento/glifosato (mantido, zero alavanca nova) ou PFAS (molde Horse Jelly, 1 alavanca-chave nova; o Brecka já faz esse bloco).
 3. **Lab:** o nosso ou o UFC Performance Institute como "onde testamos".
 4. Vetos jurídicos: Dana, Brecka, a lenda, a ring girl com nome.
+
+---
+
+## 5. Revisão da lenda: Randy Couture x Chuck Liddell (pergunta do Marcos, 06/11/2026)
+
+O Marcos questionou: "o Randy não é mais forte que o Chuck? Mais velho, ator, mais popular e famoso?" Reavaliando com os critérios do avatar (homem 50–70, conservador, que consome Stallone), **o Randy ganha em quase tudo.** Correção: Randy Couture nasceu em junho de 1963, tem **63** (eu tinha escrito 62).
+
+| Critério | Randy Couture (63) | Chuck Liddell (56) | Quem ganha |
+|---|---|---|---|
+| Idade x avatar | 63: **dentro** da faixa do público. "Se ele sobe aos 63, eu subo aos 58." | 56: na borda | **Randy** |
+| Fama fora do UFC | **Os Mercenários 1, 2 e 3** (Toll Road) ao lado de Stallone, Schwarzenegger, Lundgren, Willis, Statham; Rei Escorpião 2; séries de TV | Entourage, Dancing with the Stars, capa da ESPN (auge 2005–2008) | **Randy**, e de longe pro 60+: ele está literalmente no mesmo quadro dos clipes que a gente já usa (Stallone e Lundgren no Vicks, Stallone na Soda Horse) |
+| Ponte com a prova que já usamos | Stallone pode "depor" sobre o colega de filme: a cena dos dois juntos existe em dezenas de entrevistas | nenhuma | **Randy** |
+| Lado conservador (alavanca do Vicks) | **Sargento do Exército, 6 anos, 101ª Aerotransportada**; apelido "Captain America"; trabalha com veteranos (fundação, checar) | nenhum | **Randy** (resolve de graça o que o Vicks construiu com Andrew e a Normandia) |
+| "Lenda 50+" e "veterano 40+" no mesmo homem | **Campeão peso-pesado aos 43** (2007, o mais velho da história); lutou até os 47 | aposentou aos 40 | **Randy** (é a prova da seção 11 num só corpo) |
+| Imagem com mulher | 5 casamentos (público, mas sem escândalo de agressão) | prisão por incidente doméstico em 2021 | **Randy** |
+| Relação com o Dana | **briga pública de anos** (contrato, processo, "banido" de eventos; checar status atual) | o mais próximo do Dana (foi empresário dele) | **Chuck** |
+| Saúde recente | infarto em 2019; acidente grave com queimaduras em 2025 (carro de arrancada, checar) | | empate: pode ser usado ("voltou de um infarto") ou evitado |
+
+**Veredito:** Randy é a lenda mais forte pra esta oferta. O Chuck só ganha no ponto "amigo do Dana", que era a cola da história ("o Dana jurou por ele").
+
+### Como resolver a briga Randy x Dana (3 saídas)
+
+**5a. Usar a briga a favor (a mais forte).** "Eu e o Randy ficamos 10 anos sem nos falar. Processo, advogado, eu falei merda dele na TV. E num sábado o telefone tocou e era ele. Um homem não liga pro inimigo pra pedir ajuda. A não ser que seja isso." A briga real vira prova de que o problema é grave. E a reconciliação vira a emocional do próprio Dana sem mulher nenhuma na cena. Checável: todo fã sabe da briga.
+
+**5b. Randy chega pelo Brecka, não pelo Dana.** O Brecka é independente; o Randy procura o Brecka (ou o Stallone indica); o Dana entra depois como quem financia e põe o nome. A amizade não é necessária. Perde a "ligação de sábado" na voz do Dana (vai pra voz do Brecka, molde Horse Jelly/Mel).
+
+**5c. Randy chega pelo Stallone.** O Stallone, que já é prova nossa, liga pro Dana: "o Randy está mal". Dois famosos numa frase, zero amizade exigida, e a ponte Mercenários rende b-roll de graça. Risco: mais um nome real na cadeia.
+
+**Leitura:** 5a. É a única das três que transforma o problema em loop, e deixa o Dana com uma dor própria (o orgulho, a briga) sem precisar de esposa. "O homem que me processou me ligou pedindo ajuda" é o melhor abre de Background que essa VSL pode ter.
+
+**Pontos a checar antes de escrever:** idade e anos de Exército do Randy; filmes exatos com Stallone; o estado atual da relação com o Dana (se houve reconciliação pública, a saída 5a muda de "ainda brigados" pra "fizeram as pazes por causa disso"); a saúde em 2025 (se a copy for citar, citar certo).
