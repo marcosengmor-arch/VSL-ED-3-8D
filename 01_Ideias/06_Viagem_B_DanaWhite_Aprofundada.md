@@ -113,3 +113,29 @@ Brecka: "Dana, antes de falar do pó, deixa eu mostrar pra esses caras o que eu 
 2. Veto ou não de Dana, Brecka, Rogan por risco jurídico.
 3. Lenda do UFC: Coleman, Henderson, ou homem comum do staff.
 4. Planilha das VSLs escaladas e performance das VSLs 1 e 2 (pra ver se o formato clássico ainda segura ou se o formato é mesmo a alavanca a mexer).
+
+---
+
+## 9. Ring girls (adendo, 06/11/2026)
+
+Ideia do Marcos: colocar as "octagon girls" (as garotas da placa do UFC) na VSL; os lutadores pegam elas, etc. Onde elas cabem e o que resolvem:
+
+**O que elas são pra oferta:** a versão UFC da atriz pornô das VSLs 1 e 2. Mesma função (mulher gostosa que viu de perto quem aguenta e quem não aguenta), mas dentro do universo do avatar. A atriz dizia "eu transo com os caras que tomam isso"; a ring girl diz "eu sei quem sobe no octógono e quem sobe na cama". E o universo UFC + Vegas já carrega isso: lutador pega ring girl é lenda de vestiário que o público masculino acredita sem prova.
+
+**Onde entram (5 posições, não todas ao mesmo tempo):**
+
+1. **Lead (UGC, molde Abella/Kendra).** Uma ring girl falando pro celular no vestiário, placa na mão: "eu seguro a placa do round 1 há 8 anos. Eu sei quem aguenta 5 rounds em cima do octógono e quem aguenta 5 rounds em cima de mim. E os que aguentam não são os de 25." Troca a atriz da cozinha pela garota da placa; mantém o truque de "mulher que compara homens".
+
+2. **Prova de comparação (a régua viva).** Ela dormiu com o lutador de 28 e com o aposentado de 55 que toma o pó. O de 55 ganhou. Essa comparação é o que a Kendra fez na VSL 2 (casei com um homem normal de 6 polegadas) e o que o cara de 40 fez com o Mel na Horse Jelly ("este tem um pau que funciona"), só que invertida a nosso favor.
+
+3. **Emocional (a ferida da lenda).** A lenda do UFC perde a mulher pra um lutador de 30; ou pior: a ring girl que ele namorava. "Ela segurava a placa na minha luta de despedida. Seis meses depois estava com o garoto que lutou depois de mim." Dói mais porque é pública: todo mundo no UFC viu.
+
+4. **Ponte pro produtor pornô de Vegas.** Várias ring girls têm OnlyFans e fazem conteúdo adulto em Vegas (fato de mercado, checar nomes: Arianny Celeste, Brittney Palmer). A cadeia rancho → set pornô → octógono ganha um elo natural: a ring girl que também grava em Vegas é quem leva o pó do set pro vestiário, ou quem conta que "os atores lá tomam a mesma coisa que os lutadores".
+
+5. **Depoimento pós-produto (prova social).** Lugar das atrizes nas VSLs 1 e 2: ring girl + esposa comum + lenda. Sem mudar a estrutura.
+
+**Uma frase do Dana que vira gancho (checar):** em 2021 ele disse que as ring girls ganham mais que muitos lutadores e virou polêmica. Dá loop: "o Dana paga as ring girls melhor que os lutadores. Agora você vai entender por que elas valem tanto pra ele" (elas são a prova de quem funciona).
+
+**Risco:** ring girls reais são pessoas reais com nome e rosto (Arianny, Brittney, Red Dela Cruz). Usar nome e rosto delas é o mesmo risco de notificação de qualquer celebridade, e elas têm advogado da UFC por trás. O caminho seguro é o mesmo das atrizes nas VSLs 1 e 2: **atriz UGC com visual de ring girl** (placa, biquíni, logo genérico, vestiário) sem nome real, ou nome fictício. A placa e o octógono fazem o reconhecimento; o nome não precisa.
+
+**Como fica a cadeia de prova completa da Viagem B:** criador de cavalo (o pó existe há 100 anos) → produtor pornô de Vegas (quem não pode falhar testou primeiro) → ring girl (a régua que compara os homens) → lenda do UFC (o homem que quebrou e voltou) → Dana (quem põe o nome) → Brecka (por quê funciona) → você.
