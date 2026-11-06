@@ -85,3 +85,51 @@ A ordem causal continua a do arquivo 06, seção 12: feito pras lendas; os de 40
 ## 6. O que isso fecha e o que continua aberto
 - **Fecha:** MUP = cimento/glifosato (o paradoxo exige). Grupo de exceção primário = cavalo. Ponte humana = meninos de fazenda + cutman rancheiro + pesagem.
 - **Aberto:** confirmar as biografias de fazenda (Couture, Coleman, Henderson, Hughes, Lesnar); escolher o cutman (real sem nome ou fictício); como a copy nomeia o ritual ("truque da pesagem") sem entregar o ingrediente antes do Brecka.
+
+---
+
+## 7. CORREÇÃO (Marcos, 06/11/2026): sem "blindagem da roça"; a sequência é Dana → ligações → pesquisa → Brecka → mecanismo → só então o cavalo
+
+O Marcos derrubou a camada 2 (os lutadores "se blindavam do glifosato por serem da roça"): **não bate.** Eles comiam de tudo fora de casa, toxina em todo canto, como qualquer americano. A camada 2 e a V2 ("meninos de fazenda") **saem**. O que fica e o que muda:
+
+### 7.1 O que fica
+- **O cavalo é o paradoxo** (camada 1), exatamente como nas ofertas recentes: come mais glifosato que você e não cimenta.
+- **A lenda 50+ sofre como todo mundo** (camada 3, só a metade negativa): o Randy cimentou pelo mesmo motivo que o avatar, 30 anos de glifosato. Nada o protegia enquanto lutava além de ser mais novo. Sem "cocho" na vida dele antes da descoberta.
+- **O colateral positivo nos 40+ fracos** (seção 4): feito pras lendas, os veteranos que estavam fracos tomaram e ganharam luta.
+- **MUP = cimento/glifosato.**
+
+### 7.2 O que muda: a narrativa do Dana (a sequência que o Marcos definiu)
+1. **Dana vê um atleta veterano com problema.** O Randy liga num sábado (ou o Dana vê no jantar do Hall da Fama). História triste, a ring girl, o novinho.
+2. **Outros começam a ligar.** Depois do Randy, mais lendas ligam ou mandam mensagem: histórias tristes, uma atrás da outra (Coleman, Henderson, o cutman de 60, o árbitro). Isso é o "não é um caso, é um padrão" da Horse Jelly ("ele tinha feito tudo que mandaram e estava pior") multiplicado por 5 vozes. Dá o bloco de depoimentos de dor (os 3 depoimentos da SH4 em versão negativa).
+3. **"Eu não podia deixar as lendas do UFC amolecer."** A motivação do Dana é reputação e dívida: "esses homens encheram minha arena por 20 anos. Eu devia isso a eles." Juramento (molde Elon/Brecka).
+4. **Dana vai pesquisar.** Como leigo com dinheiro e acesso: liga pros melhores urologistas, paga exames pros 300 aposentados, lê o que consegue, e bate na parede (todo mundo diz "idade, testosterona, Viagra"). É o Elon dos blocos 3–4 da HoneyFil sem a ciência.
+5. **Encontra o Brecka.** "O homem que me deu 10 anos de vida" (relação real). Leva o Randy e os exames dos aposentados pra ele.
+6. **Discovery na voz do Dana, como teaser.** "Nos 6 meses seguintes eu descobri com o Brecka coisas que eu não acreditava. Descobri que o que os meus lutadores tinham não tinha nada a ver com testosterona, e eu era a prova: eu proibi testosterona em 2014 e os velhos ficaram mais fortes. Descobri quem paga os estudos. Descobri um memo de 1998 que vai te deixar com raiva. E descobri a resposta num lugar que eu nunca ia procurar... mas antes de te mostrar onde, eu preciso que o Brecka te explique o que está acontecendo dentro do seu pau. Porque sem isso, o que eu vou te mostrar não faz sentido." Loop aberto; o cavalo não é citado, só "um lugar que eu nunca ia procurar".
+7. **Brecka entra: mecanismo.** Glifosato, quem financia, memo da Bayer, esponja de colágeno III, cimento, tamanho travado, por que nada funcionou, o relógio. (Soda Horse blocos 8–13 na voz dele, com o Dana reagindo em 1 ou 2 cortes.)
+8. **Só agora, o cavalo.** Brecka (ou Dana + Brecka no haras): "o garanhão come mais glifosato que qualquer homem e nunca cimenta. Por quê?" A pergunta paradoxal V1 entra **aqui**, como abertura da solução (Soda Horse bloco 14, "a resposta no cavalo"), não como abertura da VSL. Daí os 4 verbos.
+9. **Primeiro homem:** o Randy. Depois o Dana. Depois os veteranos 40+ fracos (colateral positivo).
+
+### 7.3 Onde fica a pergunta paradoxal, então
+- **Na lead e no Background, a pergunta é sobre o lutador, não sobre o cavalo:** "por que o homem mais duro do planeta broxou 2 anos depois de pendurar as luvas, e os de 40 que ainda lutam estavam começando a cair também?" É a dor, não a resposta. (A ring girl pode fazer a versão "vi ele aos 43 e aos 55".)
+- **A pergunta do cavalo (V1) fica guardada pro fim do mecanismo**, como a Soda Horse faz: o cavalo aparece de leve antes (um "hold on to that detail": o Dana notou cavalos no rancho de alguém ou o Brecka mencionou um estudo em animais) e vira a pergunta paradoxal completa só quando o Brecka abre a solução.
+- Isso respeita a regra do Marcos: **antes de revelar o truque dos cavalos, o Brecka explica o mecanismo.** A revelação do cavalo é a recompensa de ter aguentado a tese.
+
+### 7.4 Esqueleto revisado (Soda Horse, só os blocos que mudam em relação ao arquivo 08)
+
+| Bloco Soda Horse | Antes (arquivo 08) | Agora |
+|---|---|---|
+| 3 Background | Dana: quem sou + vergonha dele + "I REFUSED" | igual, **sem a vergonha dele** (fica só a dívida com as lendas; a primeira cobaia continua no 18) |
+| 4 História | a ligação do Randy | a ligação do Randy **+ as outras ligações** (padrão) + "eu não podia deixar as lendas amolecer" + juramento |
+| 5–6 Depoimentos | Randy; ring girl | Randy; ring girl; **+ 2–3 lendas/staff em depoimento curto de dor** |
+| 7 O rancho | cutman rancheiro + "hold on" | **Dana pesquisando e batendo na parede** (urologistas, exames dos 300, "idade, testosterona"); o "hold on to that detail" pode ser um detalhe do rancho de alguém, sem explicar |
+| 8–9 Investigação | Dana como leigo: glifosato, memo | **Dana encontra o Brecka + discovery como teaser** ("descobri com ele que..."), loop fechado em "antes de te mostrar onde, o Brecka explica" |
+| 10 Garanhões | Dana + cutman + produtor de Vegas | **sai daqui**; o produtor de Vegas vai pro bloco 14/18 como segundo grupo de prova |
+| 11–13 MUP | Brecka | Brecka: **inclui agora glifosato, quem paga e o memo** (o que estava nos blocos 8–9) + esponja + cimento + relógio |
+| 14 A resposta no cavalo | Brecka | **A pergunta paradoxal V1 completa** + o haras + o que o tratador dá; o Dana reage ("eu nunca ia procurar num cocho") |
+| 15–17 MUS | Brecka | igual |
+| 18 Primeiro homem | Randy + Dana | Randy → Dana → **veteranos 40+ fracos ganham luta** (colateral) |
+
+### 7.5 O que isso resolve
+- Tira a mentira fácil ("lutador é blindado") e mantém a verdade fácil ("cavalo não cimenta").
+- O Dana fica com o papel exato do Elon (viveu/viu, pesquisou, bateu na parede, achou o cientista, descobriu junto, passou a bola) sem precisar de ciência na boca dele.
+- A revelação do cavalo ganha força porque vem depois do mecanismo: o espectador já entende "cimento" quando ouve "o cavalo não cimenta".
