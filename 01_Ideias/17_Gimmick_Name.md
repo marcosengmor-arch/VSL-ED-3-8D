@@ -122,3 +122,12 @@ StallionRock ou IronStallion. Se quiser ecoar o core no produto como a VSL 1 fez
 - **Produto:** a definir (StallionRock / IronStallion / Stallion Soda Rise).
 
 Atualizar os arquivos 09 (seção 4, nome do truque) e 16 (pontos lógicos) com o nome: onde estava "truque da pesagem" / "Weigh-In Trick", lê-se **Stallion Soda Ritual**, e "a pesagem" passa a ser o momento do ritual.
+
+### 8.1 Os 3 nomes por lead (Marcos pediu o terceiro, 06/11/2026)
+1. **The Stallion Soda Ritual** (principal; lead cavalo/sexo).
+2. **The Kentucky Stallion Ritual** (lead conservadora/lugar).
+3. **Terceiro, o da lead UFC (ingrediente + momento/universo):**
+   - **The Weigh-In Soda Ritual** (recomendado): soda + o momento. "O ritual que os lutadores fazem depois de descer da balança." Específico, sem marca, e é a cena que a ring girl testemunha.
+   - The Octagon Soda Ritual: soda + universo em 1 palavra que o avatar reconhece. Risco: "The Octagon" é marca registrada do UFC (checar); "cage" é a alternativa feia.
+   - The Legends' Soda Ritual: soda + posicionamento ("feito pras lendas"). Sem marca, sem cena.
+   **Escolha recomendada: The Weigh-In Soda Ritual.** Na ad: "the weigh-in soda ritual UFC legends use to stay hard at 63".
