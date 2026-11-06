@@ -131,3 +131,12 @@ Atualizar os arquivos 09 (seção 4, nome do truque) e 16 (pontos lógicos) com 
    - The Octagon Soda Ritual: soda + universo em 1 palavra que o avatar reconhece. Risco: "The Octagon" é marca registrada do UFC (checar); "cage" é a alternativa feia.
    - The Legends' Soda Ritual: soda + posicionamento ("feito pras lendas"). Sem marca, sem cena.
    **Escolha recomendada: The Weigh-In Soda Ritual.** Na ad: "the weigh-in soda ritual UFC legends use to stay hard at 63".
+
+### 8.2 Terceiro nome, no mesmo molde dos dois primeiros ("[qualificador] + Stallion + Ritual"), 06/11/2026
+O Marcos não gostou do "Weigh-In Soda Ritual"; quer o terceiro no molde "Stallion Soda" / "Kentucky Stallion". Opções no molde, com o qualificador vindo do UFC ou do patriótico:
+- **The Fight Night Stallion Ritual** (recomendado pra lead UFC): "fight night" é a noite da luta, todo americano entende, sem marca; junta universo + animal: "o ritual do garanhão da noite da luta".
+- **The Octagon Stallion Ritual**: mais UFC em 1 palavra; "The Octagon" é marca registrada do UFC (checar).
+- **The American Stallion Ritual**: o patriótico (Freedom 250, Casa Branca, Lincoln Memorial); serve se a lead 3 for a lead política em vez da lead UFC.
+- **The Percheron Stallion Ritual** / **The Bluegrass Stallion Ritual**: variantes de raça/lugar, parecidas demais com a Kentucky.
+
+**Os 3 nomes:** 1. The Stallion Soda Ritual · 2. The Kentucky Stallion Ritual · 3. **The Fight Night Stallion Ritual** (ou The American Stallion Ritual, se a lead 3 for a patriótica).
