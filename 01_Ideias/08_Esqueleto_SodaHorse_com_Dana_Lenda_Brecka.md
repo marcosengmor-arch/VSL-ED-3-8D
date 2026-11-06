@@ -119,3 +119,20 @@ O Marcos questionou: "o Randy não é mais forte que o Chuck? Mais velho, ator, 
 **Leitura:** 5a. É a única das três que transforma o problema em loop, e deixa o Dana com uma dor própria (o orgulho, a briga) sem precisar de esposa. "O homem que me processou me ligou pedindo ajuda" é o melhor abre de Background que essa VSL pode ter.
 
 **Pontos a checar antes de escrever:** idade e anos de Exército do Randy; filmes exatos com Stallone; o estado atual da relação com o Dana (se houve reconciliação pública, a saída 5a muda de "ainda brigados" pra "fizeram as pazes por causa disso"); a saúde em 2025 (se a copy for citar, citar certo).
+
+### 5.1 Randy e o lado conservador: o que é fato e o que a copy não pode dizer (06/11/2026)
+
+Pergunta do Marcos: "ele é o mais conservador, conecta com nosso público, serviu a guerra também?"
+
+**Fatos (checar antes de escrever, mas é o que consta):**
+- Serviu no **Exército dos EUA de 1982 a 1988**, sargento, **101ª Divisão Aerotransportada**. Foi atleta de luta greco-romana do Exército (programa de atletas militares), com passagem pela Alemanha.
+- **Não combateu em guerra.** Serviu em tempo de paz: saiu em 1988, antes da Guerra do Golfo (1990–91). Não há registro de deployment em combate.
+- Fundou a **Xtreme Couture GI Foundation** (2009) pra veteranos feridos; faz eventos e visitas a bases; é figura ligada à causa dos veteranos.
+- Apelido "Captain America" (dado pela imagem de lutador americano limpo e militar, não por política).
+- Politicamente, **não é um porta-voz conservador** como o Dana (que é abertamente ligado ao Trump). O Randy é "conservador por código" (militar, lutador, caipira de Oregon, sem polêmica), não por discurso.
+
+**O que a copy pode dizer:** "veterano do Exército", "sargento da 101ª Aerotransportada", "6 anos servindo o país", "o homem que a tropa chama de Captain America", "dedica a vida aos veteranos feridos". Isso basta pra conectar com o avatar conservador de 60.
+
+**O que a copy não pode dizer:** "serviu na guerra", "combateu", "voltou do Iraque/Golfo". É falso e checável em 10 segundos; o fã de UFC sabe. Se a VSL quiser a cena de guerra (molde Andrew/Normandia do Vicks), ela entra por outro personagem: o cutman veterano de combate, ou os veteranos da fundação do Randy, que são reais e combateram.
+
+**Leitura:** sim, o Randy conecta com o público conservador melhor que qualquer outra lenda, pelo trio militar + Mercenários + "Captain America". Mas a conexão é por imagem, não por discurso; o discurso político fica no Dana. E "veterano" sim, "guerra" não.
