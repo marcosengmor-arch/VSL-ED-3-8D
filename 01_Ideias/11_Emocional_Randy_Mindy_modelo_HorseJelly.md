@@ -156,3 +156,19 @@ Decisões do Marcos: **(1) a Mindy fala** (o lado dela entra gravado, como a Noo
 **Fechado em 06/11/2026:** acidente de julho de 2025 = **híbrido** (consequência do estado dele + a frase da clínica de ondas de choque, sem dizer que foi a causa). Moleque = **30 anos**, com nome, aluno da Xtreme Couture.
 
 **Emocional definida.** Próximo passo do passo a passo: o Background do Dana (quem é, a dívida com as lendas, a recusa da Pfizer) e a discovery-teaser até a entrada do Brecka (arquivo 10, seção 7.2, passos 1–6).
+
+---
+
+## As lendas que ligam depois do Randy (Marcos, 06/11/2026)
+
+Regra do Marcos: **o rival mais famoso do Randy + 1 lenda super famosa de encaixe com o público.** Depoimentos curtos de dor (molde dos 3 depoimentos da SH4, em negativo), depois da ligação do Randy, pra provar que é padrão e não caso.
+
+**Lenda 2 — Chuck Liddell, 56 ("The Iceman").** O rival: a trilogia Couture x Liddell (2003–2005) é a rivalidade mais famosa da história do UFC. E o Chuck é o amigo mais próximo do Dana (o Dana foi empresário dele), então a ligação dele é natural e dá a ironia que o Dana usa: "o Randy me ligou no sábado. Na segunda, ligou o homem que nocauteou o Randy duas vezes." Depoimento de dor **sem mulher** (regra do histórico de 2021): a dor do Chuck é reputação e vestiário: o Iceman, o moicano, o cara que ninguém encarava, virando piada no vestiário da própria academia. Nocauteado por dentro.
+
+**Lenda 3 — Mark Coleman, 61 ("The Hammer")** (recomendação; checar). Primeiro campeão peso-pesado do UFC, Ohio, Hall da Fama, o arquétipo do homem bruto do Meio-Oeste que o avatar de 60 reconhece. Em 2024 tirou os pais de um incêndio e quase morreu; depois, infarto (checar). É a lenda mais querida e mais "homem comum" da velha guarda. Depoimento de dor: o homem que carregou os pais pra fora de uma casa em chamas aos 59 e não consegue levantar o próprio pau. (Cuidado de gosto: o incêndio é trauma real e recente; usar como prova de força, não como piada.) Encaixe com público: Ohio, 61 anos, família, igreja, zero polêmica.
+
+Alternativas se o Marcos preferir outro encaixe:
+- **Ken Shamrock, 62** ("o homem mais perigoso do mundo"): o mais famoso pro público de 55+ por causa da WWE (era Attitude, 1997–99). Mais fama nacional que o Coleman; menos ligado ao UFC atual; teste positivo pra esteroide em 2015 (pode virar prova de que "hormônio não resolve", ou pode virar risco).
+- **Tito Ortiz, 51:** famosíssimo e conservador declarado (Trump, política local), mas briga pública com o Dana e histórico de polêmica; dois rivais do Dana ligando quebra a lógica.
+
+**Ordem das ligações no bloco do Dana:** Randy (sábado, a história inteira) → Chuck (segunda, o rival, 30 s) → Coleman (na semana, 30 s) → "e depois mais 3, mais 5, mais 10. Eu parei de contar. Era a velha guarda inteira ligando pra mim pra dizer a mesma coisa." → "Eu não podia deixar as lendas do UFC amolecer."
