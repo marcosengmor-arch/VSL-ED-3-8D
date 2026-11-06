@@ -136,3 +136,23 @@ Pergunta do Marcos: "ele é o mais conservador, conecta com nosso público, serv
 **O que a copy não pode dizer:** "serviu na guerra", "combateu", "voltou do Iraque/Golfo". É falso e checável em 10 segundos; o fã de UFC sabe. Se a VSL quiser a cena de guerra (molde Andrew/Normandia do Vicks), ela entra por outro personagem: o cutman veterano de combate, ou os veteranos da fundação do Randy, que são reais e combateram.
 
 **Leitura:** sim, o Randy conecta com o público conservador melhor que qualquer outra lenda, pelo trio militar + Mercenários + "Captain America". Mas a conexão é por imagem, não por discurso; o discurso político fica no Dana. E "veterano" sim, "guerra" não.
+
+### 5.2 Veredito de debate: a lenda preferida é Randy Couture (06/11/2026)
+
+Resposta à pergunta "o melhor de todos seria o Randy?": **sim**, pelos 6 motivos abaixo, com 2 condições.
+
+**Por quê:**
+1. 63 anos: está dentro da idade do comprador. Nenhuma outra lenda famosa está.
+2. Mercenários com Stallone, Schwarzenegger e Lundgren: a prova de celebridade que já usamos vira b-roll do próprio personagem.
+3. Veterano do Exército (101ª Aerotransportada) + fundação pra veteranos feridos: a alavanca conservadora do Vicks num só homem, sem clipe de RFK.
+4. Campeão aos 43: "lenda 50+" e "veterano 40+ no ringue" no mesmo corpo, a tese da seção 11 pronta.
+5. Imagem limpa com mulher: 5 casamentos, zero escândalo de agressão.
+6. A briga com o Dana vira o melhor abre de Background possível: "o homem que me processou me ligou num sábado pedindo ajuda".
+
+**Condições:**
+- A emocional é dele com uma mulher **sem nome real** (ring girl UGC ou "a mulher que você nunca ouviu falar"), nunca com uma das ex-esposas reais.
+- A copy diz "veterano", nunca "guerra".
+
+**Elenco final do debate:** Dana White (background, investigação, presente, FAQ) · Randy Couture (emocional, primeiro homem, dois caminhos) · Gary Brecka (do mecanismo à oferta) · ring girl UGC (lead e bloco 6) · cutman veterano de combate + produtor de Vegas (brinde no bloco 10) · Stallone/Schwarzenegger/Lundgren em clipe (blocos 2 e 21).
+
+Em aberto ainda: MUP (cimento ou PFAS), lab (nosso ou UFC Performance Institute), vetos jurídicos.
