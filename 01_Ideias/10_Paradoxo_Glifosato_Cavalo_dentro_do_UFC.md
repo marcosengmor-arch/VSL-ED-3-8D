@@ -133,3 +133,37 @@ O Marcos derrubou a camada 2 (os lutadores "se blindavam do glifosato por serem 
 - Tira a mentira fácil ("lutador é blindado") e mantém a verdade fácil ("cavalo não cimenta").
 - O Dana fica com o papel exato do Elon (viveu/viu, pesquisou, bateu na parede, achou o cientista, descobriu junto, passou a bola) sem precisar de ciência na boca dele.
 - A revelação do cavalo ganha força porque vem depois do mecanismo: o espectador já entende "cimento" quando ouve "o cavalo não cimenta".
+
+---
+
+## 8. MUS da VSL 3: baking soda + mel (mistura comestível) — proposta do Marcos, 06/11/2026
+
+### Leitura pelo framework
+| Alavanca | VSL 2 (IronPulseX) | VSL 3 | Muda? |
+|---|---|---|---|
+| 1 gimmick | mel + baking soda (bode) | mel + baking soda (cavalo) | **não** (animal muda, mistura não) |
+| 2 formato | Soda Horse | Soda Horse | não |
+| 3 avatar | Hyman | Dana + Brecka | sim |
+| 4 MUP | cimento/glifosato | cimento/glifosato | não |
+| 5 MUS | mel + pó preparado | mel + pó preparado | **não** |
+| 6 emocional | Pacino/Noor | Randy/Mindy | sim |
+
+Só 3 e 6 mudam. É o movimento mais conservador possível: **a VSL 3 vira o teste limpo de "avatar + emocional + universo" sobre a mesma oferta.** Se validar, a gente sabe que foi o UFC; se não validar, sabe que não foi o ingrediente.
+
+### A condição
+Isso só é "seguro" se **a VSL 2 validou o mel + baking soda**. Se a VSL 2 ainda não rodou ou rodou fraco, repetir o MUS dela carrega o risco dela, e o mel é hoje o tier mais novo e menor do mercado de ads (arquivo `01_Leitura_do_Mercado_nov2026.md`). Pergunta pro Marcos: **performance da VSL 2** (retenção até a tese, CPA, se escalou). Essa resposta decide.
+
+### Por que mel + baking soda encaixa melhor nesta VSL do que na VSL 2
+1. **A pesagem tem fundo real pros dois ingredientes.** Reidratação pós-balança com mel (carboidrato rápido, "honey water" é clássico de corner) e tamponamento com bicarbonato (bicarbonate loading, protocolo legal em esportes de combate e ciclismo) **existem**. O cutman velho misturando os dois depois da pesagem não é invenção, é lore de vestiário. E no cavalo de corrida, o "milkshake" de bicarbonato (proibido pelas comissões de turfe) com melaço/mel também existe. Os dois lados da ponte (vestiário e cocho) são reais.
+2. **Resolve o "pela metade" da cópia dos atores pornôs sem esforço:** a cópia é **um** dos dois (só o mel, como as VSLs de mel; só o pó, como as de bicarbonato), tomado cru, a qualquer hora. A original das lendas é **os dois, preparados, depois da pesagem**. O Brecka explica por que um sem o outro funciona pouco (o pó dissolve, o mel carrega/protege, ou o que a tese controle já diz dos 4 verbos). Não precisa desqualificar nenhum ingrediente.
+3. **Produto:** mel + pó pede goma/gelatina (o formato que o mercado inteiro usa: gummy). "A goma que o cutman prepara" fica natural.
+4. **Edibilidade:** "mistura comestível" tira a objeção de aplicação tópica e deixa a cena da bancada (o moleque misturando na sala do Randy) idêntica à da VSL 2 (o personal na tigela), que já está escrita e validada em estrutura.
+
+### Cuidados pra não virar "a VSL 2 com outro ator"
+- **Nome do ritual pelo momento e pelo animal, nunca "ritual do mel":** "truque da pesagem", "a mistura do cocho", "o que o cutman dá". "Mel" aparece como ingrediente, não como nome.
+- **Cavalo, não bode:** o rancho é de Quarter Horse no Texas (ou o haras que o Marcos escolher), o garanhão cobre 60 éguas; o mel é do rancho (apiário do criador), o pó é o do cocho.
+- **O preparo é a diferença:** o que a VSL 2 chamou de "pó preparado" aqui ganha o momento (pós-pesagem) como parte do método. É isso que a cópia não tem.
+- Se as duas VSLs rodarem ao mesmo tempo, o avatar, o universo e o nome do truque precisam ser tão diferentes que ninguém reconheça a mesma mistura. UFC x Hill Country resolve.
+
+### Decisão
+Proposta aceita em debate, **condicionada à performance da VSL 2**. Se a VSL 2 validou: mel + baking soda do cavalo, preparado, pós-pesagem. Se não: voltar a "só baking soda" (VSL 1) com o mesmo esqueleto, que também é zero alavanca nova no MUS.
