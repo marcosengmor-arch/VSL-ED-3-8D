@@ -140,3 +140,10 @@ O Marcos não gostou do "Weigh-In Soda Ritual"; quer o terceiro no molde "Stalli
 - **The Percheron Stallion Ritual** / **The Bluegrass Stallion Ritual**: variantes de raça/lugar, parecidas demais com a Kentucky.
 
 **Os 3 nomes:** 1. The Stallion Soda Ritual · 2. The Kentucky Stallion Ritual · 3. **The Fight Night Stallion Ritual** (ou The American Stallion Ritual, se a lead 3 for a patriótica).
+
+### 8.3 DECISÃO FINAL dos 3 nomes (Marcos, 06/11/2026)
+1. **The Stallion Soda Ritual** (principal; lead cavalo/sexo: ring girl, suíte, mesa das lendas, origem do truque dos atores pornôs)
+2. **The Kentucky Stallion Ritual** (lead conservadora/lugar: Lexington, o haras, o criador, a bandeira)
+3. **The American Stallion Ritual** (lead patriótica: Freedom 250, a pesagem no Lincoln Memorial, o Dana e as lendas na frente da Casa Branca, MAHA)
+
+"Fight Night" sai. A lead UFC pura fica absorvida pela 1 (o universo entra pela ring girl) e pela 3 (o universo entra pela Casa Branca).
