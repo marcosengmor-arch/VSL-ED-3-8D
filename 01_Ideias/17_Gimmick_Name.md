@@ -86,3 +86,27 @@ Nosso ingrediente-herói visual é o **extrato âmbar do tendão do garanhão Pe
 
 ### Produto (mantido)
 StallionRock ou IronStallion. "Stallion Honey" fica como gimmick, não como marca.
+
+---
+
+## 7. Correção 2 (Marcos, 06/11/2026): o core é a mistura de baking soda; o mel é coadjuvante
+
+Então o nome conecta **soda + animal** (como "baking soda do cavalo" / Bull Soda), e o "mel do garanhão" fica dentro da copy como o 2º ingrediente. Restrição mantida: nunca escrever "baking soda trick" junto (queimado); "soda" sozinho é seguro (a Soda Horse foi produto, não termo queimado).
+
+| # | Nome (EN) | Lógica | Prós | Contras |
+|---|---|---|---|---|
+| 1 | **The Stallion Soda Trick** | soda + animal + "trick" (a linhagem Texas Bull Trick) | Diz o core (soda), o animal (stallion, viril, sem "horse" queimado) e o formato que o mercado reconhece (trick). A família fica Bull Soda → Goat Honey → **Stallion Soda**. Ad: "the stallion soda trick UFC legends use to stay hard at 63" | "soda trick" está a 1 palavra de "baking soda trick"; a ad **nunca** escreve "baking" e nunca mostra a caixa de Arm & Hammer (regra da análise da Soda Horse) |
+| 2 | **The Stallion Soda Ritual** | soda + animal + "ritual" (a linhagem Goat Honey Ritual) | Mesma coisa com mais distância do termo queimado; "ritual" casa com a pesagem (é um ritual de véspera) | "Ritual" é a VSL 2; menos "curiosidade de truque" |
+| 3 | **The Stallion Soda Mix** | soda + animal + "mix" (a mistura, literal) | É exatamente o que o Marcos descreveu: a mistura; distância máxima do "trick" queimado; dá a cena da bancada (o cutman misturando) | "Mix" vende menos curiosidade que "trick"; soa a bebida |
+| 4 | **The Kentucky Stallion Soda** | soda + animal + lugar | Conservador, Lexington, som de marca artesanal | Longo; sem "trick/ritual" perde o gancho de "o que eles fazem" |
+| 5 | **The Weigh-In Soda** | soda + momento | O único que diz UFC pelo momento; "o soda que eles tomam depois da balança" | Sem animal perde a ponte do cavalo |
+| 6 | **The Octagon Soda** | soda + universo | Curto, sem marca UFC | Não desenha animal nem momento |
+
+### Leitura
+- **Nome principal: "The Stallion Soda Trick."** Core (soda) + animal (stallion) + o formato de gancho (trick), fechando a família das três ofertas. O "mel do garanhão" entra como o coadjuvante dentro da mistura: *"the stallion soda, mixed with the amber honey from the Percheron's tendon, that UFC legends take after the weigh-in."*
+- **Se a ad acusar o termo queimado** (CPM ruim, desqualificação por "baking soda"), cai pro **2 ("Stallion Soda Ritual")** ou pro **3 ("Stallion Soda Mix")** sem mudar nada na VSL.
+- **Variantes por lead:** lead UFC = "The Weigh-In Soda"; lead cavalo = "The Stallion Soda Trick" (a principal já é a de cavalo); lead conservadora = "The Kentucky Stallion Soda".
+- **Regras de ad e de tela:** nunca "baking soda" escrito junto de "trick"; nunca a caixa de Arm & Hammer; o pó aparece em pote de vidro, sem marca; "soda" dito pelo cutman/Brecka como "o soda preparado" (o 1º verbo, DISSOLVER).
+
+### Produto (mantido)
+StallionRock ou IronStallion. Se quiser ecoar o core no produto como a VSL 1 fez (Bull Soda Rise): **Stallion Soda Rise** / **Stallion Soda Peak** (muito perto da Soda Horse Peak; evitar) / **StallionSoda X**.
