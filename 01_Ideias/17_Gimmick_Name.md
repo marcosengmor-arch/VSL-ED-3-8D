@@ -110,3 +110,15 @@ Então o nome conecta **soda + animal** (como "baking soda do cavalo" / Bull Sod
 
 ### Produto (mantido)
 StallionRock ou IronStallion. Se quiser ecoar o core no produto como a VSL 1 fez (Bull Soda Rise): **Stallion Soda Rise** / **Stallion Soda Peak** (muito perto da Soda Horse Peak; evitar) / **StallionSoda X**.
+
+---
+
+## 8. DECISÃO (Marcos, 06/11/2026): gimmick = **"The Stallion Soda Ritual"**
+
+- **Nome principal da copy e das ads:** The Stallion Soda Ritual ("o ritual do soda do garanhão"). Core (soda) + animal (stallion) + "ritual" (linhagem Goat Honey Ritual; distância do "baking soda trick" queimado; casa com a pesagem como ritual de véspera).
+- **Como a copy usa:** *"the Stallion Soda Ritual UFC legends do the night before a fight"*; o cutman "faz o ritual" depois da balança; o tratador "faz o ritual" no cocho; o Brecka explica o ritual em 4 verbos; o "mel do garanhão" (extrato âmbar do tendão do Percheron) é o 2º ingrediente dentro do ritual, nunca o nome.
+- **Variantes por lead:** UFC = "The Weigh-In Ritual"; cavalo = "The Stallion Soda Ritual" (principal); conservadora = "The Kentucky Stallion Ritual".
+- **Regras de tela e ad:** nunca "baking soda" junto de "ritual/trick"; nunca caixa de Arm & Hammer; pó em pote de vidro sem marca; "soda preparado" como o 1º verbo.
+- **Produto:** a definir (StallionRock / IronStallion / Stallion Soda Rise).
+
+Atualizar os arquivos 09 (seção 4, nome do truque) e 16 (pontos lógicos) com o nome: onde estava "truque da pesagem" / "Weigh-In Trick", lê-se **Stallion Soda Ritual**, e "a pesagem" passa a ser o momento do ritual.
