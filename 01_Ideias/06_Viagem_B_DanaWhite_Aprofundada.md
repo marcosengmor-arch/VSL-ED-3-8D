@@ -215,3 +215,25 @@ Mexe só na alavanca 3 (avatar) e 6 (emocional), que são livres, e aperta o pos
 - "Lendas do UFC" como nome de posicionamento usa a marca UFC. Na copy, "lendas do octógono" ou "lendas da luta" protege; o Dana e as lendas fazem o reconhecimento.
 - Lutador ativo de 40+ em depoimento é pessoa real sob contrato do UFC e teste antidoping: usar nome real pede mais cuidado que uma lenda aposentada. Alternativa: "um veterano de 43 anos do peso-médio", sem nome.
 - Ring girl real: mesma regra da seção 9 (atriz UGC com visual de ring girl, sem nome).
+
+---
+
+## 12. O colateral positivo: feito pras lendas, os de 40 melhoraram nas lutas (Marcos, 06/11/2026)
+
+Ajuste do Marcos: o pó **não foi feito pra desempenho no octógono**. Foi feito pras lendas de 50+ (a cama, a reputação). Os veteranos de 40+ ainda ativos tomaram "por tabela" e, como **colateral positivo**, melhoraram até a performance nas lutas. A ordem causal é essa e não pode inverter.
+
+### Por que a ordem importa
+- **Mata o risco de doping.** Se o pó fosse "pra lutar melhor", seria substância de performance e a Comissão vira inimiga. Sendo "pra lenda não broxar", o ganho no octógono é surpresa, e a Comissão vira prova: "testaram, não é hormônio, não é droga, é alimento de cavalo, e o cara subiu no ranking".
+- **Dá a mesma estrutura dos "não importa" da Horse Jelly e dos benefícios extras da Horse Trick** (+330% testosterona, próstata, músculo), mas com prova viva em vez de porcentagem: o veterano de 43 que ganhou luta aos 43 depois de começar o pó pra cama.
+- **Mantém a promessa no lugar certo pro avatar 50+:** o produto é sobre pau subindo e reputação. Energia, força e fôlego vêm de brinde, exatamente como o avatar quer ouvir (ele não quer "ficar atleta", quer "voltar a ser homem", e o resto é bônus).
+
+### Como entra na copy (3 toques, não um bloco)
+1. **Dana, no background:** "Eu montei isso pras minhas lendas, pros caras de 55 que não podiam mais virar piada no vestiário. Aí os veteranos de 40 que ainda lutam começaram a tomar escondido. E eu vi no ranking." 
+2. **Veterano 40+, depoimento curto:** "Comecei por causa da minha mulher. Três meses depois eu fiz 5 rounds aos 43 sem cair o braço. A Comissão me testou duas vezes. Nada."
+3. **Brecka, na tese:** explica por quê o mesmo mecanismo que sobe o pau (fluxo/tecido/óxido, conforme o MUP escolhido) melhora fôlego e recuperação. Um parágrafo, como "efeito do mesmo mecanismo", nunca como promessa principal.
+
+### A frase de posicionamento
+"Feito pras lendas. Os de 40 descobriram por acidente que também ganha luta."
+
+### Efeito na oferta
+Vira um dos "não importa" / bônus de benefício na apresentação do produto: "feito pra sua cama; o que acontecer com a sua energia, fôlego e força no resto do dia é por conta da casa". Sem número de performance na promessa principal; o número fica no depoimento do veterano.
