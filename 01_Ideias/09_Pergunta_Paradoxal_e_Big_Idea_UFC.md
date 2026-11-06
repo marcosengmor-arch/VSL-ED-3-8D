@@ -141,3 +141,12 @@ Definição do Marcos: **o Dana veio gravar o vídeo puto porque estão usando i
 
 ### Estado da lead/abertura
 Gancho de origem (seção 7) + motivo do vídeo (seção 8) + pergunta paradoxal do lutador na dor (seção 2, P1/P3) + o cavalo guardado pro fim do mecanismo (arquivo 10, 7.3). A abertura está definida.
+
+
+---
+
+## 9. BIG IDEA FINAL (Marcos, 06/11/2026)
+
+**A mistura de baking soda: a pasta que as lendas do UFC comem depois dos 50 pra se manterem firmes na cama e levarem as ring girls novinhas pra cama. Desenvolvida pelo Dana White.** Colateral positivo nos 40+ ativos que testaram: performance dentro e fora do ringue, mesmo comendo toneladas de glifosato e toxinas. É o mesmo que os atores pornôs usam hoje. É a verdadeira, a certa: o Dana veio em cena pra processar todos que vazaram a receita errada.
+
+Substitui a formulação da seção 3 como big idea oficial (a seção 3 fica como a lógica por trás: três personagens, uma variável). Registrada também no Briefing de Oferta (`02_Briefing/`).
