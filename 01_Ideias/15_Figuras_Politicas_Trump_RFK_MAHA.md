@@ -88,3 +88,13 @@ O Dr. Phil precisou **dizer** "sou amigo íntimo". O Dana **é**, e tem vídeo: 
 - **Dra. Annika Ackerman:** 2ª voz médica (blocos 12 e 20), recap do mecanismo + "100% safe" + cobre o fato de o Brecka não ser médico. Fictícia (como na HoneyFil), então risco baixo e já validada em estrutura.
 
 **Decisão do Marcos (06/11/2026) sobre a checagem 2:** o D4 **diz sim** que o Exército americano estudou o tamponamento com bicarbonato nos soldados. É narrativa, como o arquivo de 1991 do Vicks: o Dana/Brecka contam que o estudo existe e que a velha guarda de cutmen veio do Exército com o protocolo. A copy não cita número de documento, base ou pesquisador real; o lastro visual são os estudos militares reais que existem (sem país) e a literatura de bicarbonate loading. Risco anotado e aceito.
+
+---
+
+## 8. Decisões de estrutura (Marcos, 06/11/2026)
+- **Quem leva ao haras (5): o Brecka.** Ele vai a Kentucky pelos dados (os 300 aposentados, quem cimentou e quem não), encontra o criador e o tratador, e **traz os ingredientes pro Dana** (o pó, o extrato âmbar do tendão do Percheron). O Dana não vai ao cocho; recebe na mão o que o Brecka trouxe, e reage ("eu nunca ia procurar num cocho"). O cutman da pesagem continua sendo a pista plantada (emocional, ring girl), e o Brecka é quem fecha: "o que o cutman dava depois da pesagem é a versão de vestiário do que o tratador dá ao garanhão em Lexington".
+- **O haras (6): Kentucky.** Lexington, a capital mundial do cavalo, onde a Soda Horse e a Horse Jelly colocam o Percheron e o equipamento de 1,4 milhão. Texas fica como raiz conservadora em outros pontos (o cutman rancheiro do Texas, o Chuck Norris em clipe), não no haras.
+- **O laboratório (7): o nosso, já validado** (o lab definido pra oferta nas VSLs anteriores). O UFC Performance Institute sai como lab; pode ficar como cenário de b-roll do Dana, sem função de fabricação.
+- **A mesa das lendas (8): a noite do Freedom 250** (14/06/2026, gramado da Casa Branca). É onde o Dana vê o padrão ("metade daquela mesa tinha me ligado") e é o palco do "evento que comprovou entre as lendas" no pós-truque (opção 2 das ring girls). A semana do Hall da Fama sai.
+
+**Ainda em aberto (1–4 e 9 da lista anterior):** cutman (fictício x Stitch), veterano ativo (sem nome x Jim Miller), clipes novos (Buffer, McCarthy, Norris, Statham, Glover, Rogan), bloco do Brecka (tese controle da VSL 1 x versão Horse Jelly do "quem paga"), performance da VSL 2.
