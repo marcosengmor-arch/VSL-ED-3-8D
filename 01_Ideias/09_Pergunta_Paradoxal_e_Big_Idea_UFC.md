@@ -116,3 +116,28 @@ Isso é o que torna a reivindicação de origem útil, não só curiosa: a vers�
 
 ### Efeito nas alavancas
 Nenhuma mexe. O gimmick continua baking soda do cavalo (o "truque do cavalo" é o mesmo do mercado; a gente só diz de onde veio). Formato, MUP, MUS iguais. Avatar e emocional já definidos. O gancho de origem é posicionamento de lead, e é o que vai nos deixar usar nas ads o ângulo mais validado do mercado ("o truque dos atores pornôs") com uma camada nova ("veio do UFC").
+
+## 8. Por que o Dana gravou este vídeo: puto, processando, e entregando a receita certa (Marcos, 06/11/2026)
+
+Definição do Marcos: **o Dana veio gravar o vídeo puto porque estão usando isso sem permissão dele; ele está processando "esses putos"; e vai dar a receita verdadeira, correta, e dizer de onde vem.** E a VSL confirma: **sim, é o que os atores pornôs estão usando agora nos sets.**
+
+### O que isso resolve de uma vez
+- **O "por que agora / por que este vídeo"** (o beat do Elon "eu mesmo vazei no X", do Riley Reid "pode ser presa hoje", do Cuban "a Big Pharma derrubou 16 vezes"): o Dana não está vendendo, está **reagindo**. Alguém pegou o que ele financiou pras lendas, vazou pelo set de Vegas, e agora tem gente vendendo cópia pela metade na internet. Ele é litigioso de verdade (fato público), então "estou processando" é a frase mais crível que ele pode dizer.
+- **A autoridade sobre a receita:** se ele está processando quem usa sem permissão, é porque a receita é dele (dele e do Brecka, financiada pra lenda). Isso faz do nosso produto **o original** e de tudo que está no mercado **a cópia**, sem precisar desqualificar o ingrediente (o truque do cavalo continua certo; a cópia é que está incompleta).
+- **A confirmação "sim, os atores pornôs usam"** mantém a ponte com o ângulo validado das ads: a gente não nega o truque viral, a gente assina ele. "Sim, é isso que eles estão tomando nos sets. Eles pegaram do meu vestiário. E pegaram errado."
+- **Tom do Dana:** é a voz dele na vida real (coletiva, palavrão, "vou processar"). Não precisa atuar.
+
+### Como entra (eventos, não copy)
+1. **Lead (ring girl + off):** "o Dana White está processando os caras que estão vendendo o truque dos atores pornôs. Porque o truque é dele. E ele gravou um vídeo." Loop.
+2. **Abertura do Background (Dana, cru, primeiro take):** puto. "Eu não ia gravar isso. Eu gravei porque descobri que estão vendendo pela metade uma coisa que eu paguei pra descobrir pras minhas lendas. Estou processando cada um desses filhos da puta. E já que vazou, você vai ouvir de mim a receita certa e de onde ela vem." (Dois I REFUSED vêm depois, na discovery.)
+3. **A confirmação:** "E sim, é o que os atores pornôs estão usando agora nos sets. Um produtor de Vegas filmou os meus lutadores e levou pros atores dele. Funciona neles também. Só que a versão deles é a metade."
+4. **Depois:** a dívida com as lendas (Randy → Chuck → Coleman), a pesquisa, o Brecka, a discovery-teaser, os dois I REFUSED, passa a bola.
+5. **Pró pós-validação (opção 5):** o mesmo produtor de Vegas, agora com a versão completa, nos atores de 50+: 14x melhor que Viagra. Fecha o círculo: a cópia virou original.
+
+### Cuidados
+- Nunca nomear quem ele "está processando" (nenhum produto, VSL ou marca real). "Esses putos", "os caras que estão vendendo na internet", "um site atrás do outro".
+- O processo é narrativa do Dana; a copy não cita tribunal, número ou data.
+- A raiva é contra quem vende a cópia e contra a Pfizer, nunca contra os atores pornôs (eles são prova, não vilão).
+
+### Estado da lead/abertura
+Gancho de origem (seção 7) + motivo do vídeo (seção 8) + pergunta paradoxal do lutador na dor (seção 2, P1/P3) + o cavalo guardado pro fim do mecanismo (arquivo 10, 7.3). A abertura está definida.
