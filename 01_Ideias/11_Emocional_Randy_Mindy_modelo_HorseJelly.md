@@ -209,3 +209,40 @@ Decisão: **usar as duas coisas**. O Dana apresenta o Brecka como "o homem que m
 3. Ordem no bloco: as duas recusas vêm **depois** da discovery-teaser e antes de passar a bola pro Brecka, como consequência de ele ter achado a resposta ("e aí a Pfizer ligou"); ou, alternativa, a recusa 1 (patrocínio) no Background inicial (ele já era inimigo da Pfizer antes do Randy) e a recusa 2 (fórmula) depois da discovery. Decidir na hora de montar a ordem fina do Background.
 
 **Estado do passo a passo:** Emocional definida. Background do Dana definido (quem é sem "bilionário"; a dívida com as lendas; Randy → Chuck → Coleman → "a velha guarda inteira"; pesquisa batendo na parede; o Brecka dos 10,4 anos; discovery-teaser; dois "I REFUSED"; passa a bola). **Próximo:** o bloco do Brecka (mecanismo: glifosato, quem paga, memo, esponja, cimento, relógio, por que nada funcionou) e, depois dele, a revelação do cavalo e a solução.
+
+---
+
+# DECISÃO (09/11/2026): O PROTAGONISTA DA EMOCIONAL É DON FRYE (substitui Randy + Mindy)
+
+## Por que trocou
+Dados levantados pelo Marcos em 09/11: interesse de busca do Frye 10x o do Randy (Trends EUA, 30 dias; pico em 27/10); foto dele com as ring girls em evento do UFC com comentários "herói americano", "um dos homens mais durões vivos"; rancho de cavalo (Instagram, a detalhar); palestrante do FreedomFest 2026; internado em 30/12/2025 com fibrilação atrial recorrente (Combate), em casa dias depois; divórcio público (casado 1996–2016, duas filhas, briga de guarda com cobertura de mídia, alcoolismo admitido, "eu estava mentalmente em frangalhos"); threads do Reddit da época do divórcio já contando a história nos nossos termos ("que tipo de maluco come a mulher do Don Frye?", "mar de mulheres famintas", "ele seria curtido mais do que o pau dele aguenta", "parece bem sozinho", "bigode mais macho do MMA", "herói americano"). Cowboy, bigode, voz rouca, Arizona, ex-bombeiro: o avatar em pessoa.
+
+## A regra do Marcos
+**Toda a história padrão controle das VSLs acontece** (as desculpas, o olhar, o Viagra, a noite que quebrou, "tudo bem", TRT/bombas, a festa, o outro homem, ela vai embora), **com a esposa que se divorciou dele, sem nomear**: fica implícito (todo mundo sabe quem é; a copy nunca diz "Mollie"). **O plus é o pós-divórcio:** alcoolismo, dez anos conhecendo mulheres e falhando ano após ano, o episódio do coração (dez/2025, a pílula proibida), até ligar pro Dana e desabafar tudo.
+
+*(Nota registrada, decisão do Marcos: "implícito" reduz mas não zera o risco, porque a ex é identificável e é pessoa privada; a cena do outro homem com ela é o ponto mais sensível. A copy nunca usa o nome, nunca atribui fala longa a ela, e o Frye assume a causa como dele.)*
+
+## A sequência (eventos, não copy)
+1. **Quem ele era.** "Vocês passaram 30 anos me chamando de bad-ass, bigode mais macho do MMA, herói americano." UFC 8, Ultimate Ultimate, PRIDE, Takayama, Japão, filmes. Ex-bombeiro do Arizona. Dono de rancho de cavalo. "Já gastei toda a vergonha que tinha, então vou ser direto."
+2. **O casamento (implícito, sem nome).** "Fui casado 20 anos. Duas filhas. A mulher que eu conheci antes de ser o Predador." Começou devagar, nos últimos anos: uma noite aqui, outra ali; ele culpou a estrada, a bebida, as lutas. O olhar, o celular, o lençol até o ombro, "hoje não". O pau mediano escapando, ela fingindo pra acabar. "Eu dizia pros garotos: você já tem o leite, por que comprar a vaca? Engraçado. Eu tinha a vaca e não tinha mais o leite."
+3. **Viagra escondido.** No banheiro do rancho, 45 minutos, o relógio. Funcionou um tempo. Foi enfraquecendo.
+4. **A noite que quebrou.** O jantar, a surpresa, a lingerie, "ela queria"; entortou feito macarrão cozido; o olhar de quem não via mais um homem; "tudo bem, Don, a gente tenta outro dia" (a única fala dela, curta). "Eu levei 50 socos do Takayama em 6 minutos. Nenhum doeu como esse 'tudo bem'."
+5. **TRT, bombas, a bebida.** TRT: fígado, parar, piorar. Bombas: a batata roxa no banheiro de um homem com bigode de xerife. E a garrafa: "eu bebia pra não ter que tentar".
+6. **A festa e o outro homem.** O rodeio / a festa do rancho / o evento de luta (cenário dele): ela de costas, o cara de 40, a mão, o sorriso que ele não via há anos; a frase "esse aqui tem um pau que funciona" (na boca dela ou de uma amiga, decidir na copy); ele sai sem falar, "2 polegadas menor dentro da cueca".
+7. **O fim (fato, 2016).** Advogado, guarda das filhas, jornal. "Eu disse na época que estava mentalmente em frangalhos. Era verdade. Só não disse o motivo." E a piada que correu a internet: "que tipo de maluco come a mulher do Don Frye?" "Eu li aquilo. E eu sabia a resposta que ninguém sabia: ninguém precisava. Eu já não conseguia."
+8. **O pós-divórcio (o plus).** Dez anos. O alcoolismo (admitido por ele). O "mar de mulheres famintas" que os fãs imaginaram existiu de verdade: ele conheceu mulheres, ano após ano, e falhou com todas. "A fila existia. O que não existia era eu." Cada uma uma humilhação nova, cada vez mais rápido. O rancho ao fundo: os garanhões cobrindo todo dia; o dono não.
+9. **O coração (fato, dez/2025).** Fibrilação atrial recorrente, internado, três dias, em casa. O cardiologista: "nunca mais pílula azul". Sessenta anos, sem casamento, sem pílula, sem opção. "Eu saí do hospital e fui olhar os cavalos."
+10. **A ligação pro Dana.** Num sábado, ele liga e desabafa tudo, do primeiro "hoje não" até o hospital. O Dana: "era o Don Frye. O homem que eu assistia antes de ter o UFC. Eu não consegui levantar da cadeira."
+11. **Depois do Frye:** Randy liga (o homem que processou o Dana; Stallone, Exército, 30 s), Coleman liga (o incêndio, 30 s), "mais 3, mais 5, mais 10: a velha guarda inteira".
+12. **O Dana fecha** com Kinsey, "o próximo pode ser o seu", as 2 perguntas e o detalhe (o rancho do Frye: os garanhões não falham), e sai atrás da resposta com o Dr. Drew.
+
+## O que o Frye dá que o Randy não dava
+- O rancho de cavalo: a pergunta paradoxal mora na casa do protagonista (o "guarda esse detalhe" sem personagem inventado).
+- Dez anos de pós-divórcio: a rendição mais longa do nicho, com a bebida admitida.
+- A fibrilação como gatilho recente e como prova de que a pílula não é opção (encaixa no "sem nada hormonal, sem risco cardíaco" da fórmula).
+- A persona (bigode, voz, cowboy, seco) e os comentários dos fãs como prova social na tela.
+- FreedomFest e o código conservador.
+- Menos risco jurídico que a Mindy em um ponto (a ex sem nome) e mais em outro (pessoa privada identificável); decisão do Marcos.
+
+## O que sai
+- Randy como protagonista (vira a 1ª ligação, mantendo a briga com o Dana em miniatura e a ponte Stallone/Exército); Mindy; o moleque de 30 como rival do protagonista (o moleque continua como o veterano/aluno que faz o ritual na pesagem, sem levar a mulher de ninguém); a Xtreme Couture como cenário (o cenário do Frye é o rancho e os eventos de luta); a câmera da academia (pode virar a câmera do rancho/celeiro, se a cena da bancada for mantida).
