@@ -6,6 +6,8 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 
 **Gimmick decidido (06/11/2026): "The Stallion Soda Ritual"** (arquivo 17, seção 8). Onde este arquivo diz "o truque da pesagem" / "a coisa da pesagem", lê-se o Stallion Soda Ritual feito depois da pesagem.
 
+**Nota de 09/11/2026:** o MUP **fica a tese do cimento** (confirmado pelo Marcos). A sofisticação da Marketing Thesis será definida por ele depois. A receita (ingredientes do MUS: soda x gelatina + sal celta, arquivo 20) e o gimmick estão **em discussão, nada decidido**.
+
 ---
 
 ## 1. BACKGROUND (Background + Emocional + Discovery) — voz: Dana; Randy e Mindy na emocional; Brecka em cena na Discovery
