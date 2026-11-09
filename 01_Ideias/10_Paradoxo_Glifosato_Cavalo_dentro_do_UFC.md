@@ -193,3 +193,22 @@ O "mel" da seção 8 não é mel de abelha: é **o extrato de colágeno do tend�
 
 ### Decisão
 MUS da VSL 3 fechado em debate: **baking soda (1) + extrato de colágeno do tendão do garanhão Percheron (2) + Pycnogenol (3) + Tongkat Ali (4)**, os 4 verbos da Soda Horse, preparados, no ritual pós-pesagem.
+
+---
+
+## 10. O cavalo: manter o validado (Percheron + Lexington) e somar os dados que as outras VSLs não têm (Marcos, 09/11/2026)
+
+**Fato:** Percheron é raça francesa de tração (Normandia; nos EUA, Ohio/Indiana/Pensilvânia), o cavalo mais forte e pesado; Lexington, Kentucky, é a capital do puro-sangue de corrida, onde estão os garanhões mais valiosos do mundo. A Horse Jelly e a Soda Horse juntaram os dois ("Percheron de Lexington") e validaram assim. **Decisão: manter o validado** (Percheron, Lexington, o colágeno de tendão de garanhão) **e acrescentar os números de Kentucky que nenhuma das referências usa** (todos a checar e arredondar com cuidado):
+
+| Dado (Kentucky, puro-sangue) | Como entra na copy (sem brigar com "Percheron") |
+|---|---|
+| Um garanhão de ponta em Lexington cobre **150 a 200 éguas por temporada** (fevereiro a junho), 2 a 3 por dia no auge | "Em Lexington, o garanhão cobre 200 éguas numa temporada. Duas, três por dia. Aos 20 anos." (a Soda Horse diz 60; a gente diz 200, com a temporada e o ritmo diário) |
+| Taxa de cobertura de **100 a 300 mil dólares por égua**; os garanhões mais caros do mundo passam de **100 mil por cobertura** e valem **dezenas de milhões** | "Cada vez que ele sobe numa égua, o dono recebe 300 mil dólares. É o pau mais caro do planeta. E é tratado como tal." |
+| Esses garanhões cobrem até os **20–25 anos**; famosos cobriram além dos 25 | "cobrindo até os 25, o equivalente a 75 em homem" (já usamos) |
+| A indústria de corrida é **obcecada por tendão**: tendão é a lesão nº 1 do puro-sangue (o "tendão arqueado"), e Lexington tem clínicas e laboratórios de tendão/colágeno equino de ponta | "Em Lexington existe mais pesquisa sobre tendão de cavalo do que sobre tendão de gente. É de lá que vem o colágeno." (dá lastro ao "laboratório de Lexington" e ao "equipamento de 1,4 milhão" da Horse Jelly) |
+| O garanhão em Lexington tem **veterinário, nutricionista e tratador em tempo integral**, dieta controlada, bloco de sal, pasta de eletrólitos (sal + bicarbonato) depois de suar | "Esse animal tem mais médico que você. E o que o tratador dá a ele depois de suar é sal e soda. A mesma pasta." (a ponte da pesagem) |
+| Cada égua coberta vale um potro de **centenas de milhares de dólares**; o criador não pode ter um garanhão que falha | "No haras, um garanhão que falha é um prejuízo de milhões. Por isso eles descobriram antes de qualquer médico o que mantém um pau funcionando aos 25." (o grupo que não pode falhar, versão rancho) |
+
+**Regra de redação:** "Percheron" fica como o nome do colágeno e do garanhão da fórmula (o validado); os números ficam atribuídos a "os garanhões de Lexington" / "o haras de Kentucky", sem dizer "puro-sangue" nem "Percheron" na mesma frase do número. Assim o fã de cavalo não tem a contradição explícita, e o público geral recebe o validado mais os dados novos.
+
+**Efeito:** a pergunta paradoxal (bloco 14) ganha escala: não é "cobre 60 éguas", é "cobre 200 éguas a 300 mil cada, aos 25 anos, comendo o pasto com Roundup, cercado de médico, com sal e soda no cocho". E o cutman da pesagem fica com a frase: "é a mesma pasta que o tratador dá ao garanhão de 30 milhões".
