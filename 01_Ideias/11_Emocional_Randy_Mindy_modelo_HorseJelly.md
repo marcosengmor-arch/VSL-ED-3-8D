@@ -271,3 +271,10 @@ O papel da lenda é identificação, não reconhecimento; a VSL o apresenta em 2
 - O que o Instagram mostra do rancho (cavalos dele, raça, lugar).
 - Checagens em fonte original: FreedomFest 2026, fibrilação de 30/12/2025 (Combate), divórcio 1996–2016, Ultimate Ultimate 96, bombeiro.
 - Na festa, a frase "esse aqui tem um pau que funciona": boca da ex (implícita) ou de uma amiga.
+
+### O rancho do Frye na história (Marcos, 09/11/2026)
+**O segredo não está no rancho dele.** Está em outro (o haras de Lexington, aonde o Dr. Drew vai). Mas o Frye **usava os mesmos ingredientes no cocho do próprio rancho** (sal, soda, o cuidado com o tendão dos cavalos) **e perdeu anos sem saber**. É a ironia que fecha a emocional e abre a descoberta:
+- Na emocional, o rancho é cenário e espelho: os garanhões dele cobrindo todo dia, ele não; o tratador dele dando sal e pasta aos cavalos, de rotina, sem ninguém pensar nisso ("guarda esse detalhe": o espectador vê o Frye passar pelo cocho sem olhar).
+- Na descoberta (Dana + Dr. Drew), a resposta vem de Lexington: o criador, o tendão, o colágeno, o protocolo completo. E aí o Frye entende: "eu dava isso pros meus cavalos há 20 anos. Estava a 30 metros da minha cama. Eu dei pra égua, pro potro, pro garanhão. Nunca pensei em dar pra mim."
+- A frase dele vira a frase do avatar: "quantos anos eu perdi com a resposta no meu quintal".
+- Diferença pra "blindagem da roça" (rejeitada em 06/11): aqui ninguém estava protegido. Os ingredientes estavam no cocho, não no homem. A tese não muda; só a ironia.
