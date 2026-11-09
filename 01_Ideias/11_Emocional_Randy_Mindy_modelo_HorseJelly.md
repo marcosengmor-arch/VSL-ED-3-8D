@@ -246,3 +246,28 @@ Dados levantados pelo Marcos em 09/11: interesse de busca do Frye 10x o do Randy
 
 ## O que sai
 - Randy como protagonista (vira a 1ª ligação, mantendo a briga com o Dana em miniatura e a ponte Stallone/Exército); Mindy; o moleque de 30 como rival do protagonista (o moleque continua como o veterano/aluno que faz o ritual na pesagem, sem levar a mulher de ninguém); a Xtreme Couture como cenário (o cenário do Frye é o rancho e os eventos de luta); a câmera da academia (pode virar a câmera do rancho/celeiro, se a cena da bancada for mantida).
+
+## CONFIRMADO (Marcos, 09/11/2026): Don Frye é o protagonista da emocional ("vamos usar esse cara")
+
+### Prova de conexão do público (Instagram, comentários de 3 dias a 2 meses atrás, levantados pelo Marcos)
+- "A testosterona recebe a terapia de Don Frye": 33.493 curtidas.
+- "Médicos recomendam este vídeo para homens com baixa testosterona": 27.531.
+- "Don Frye soa como uma Harley Davidson": 6.170. "A voz dele é como um motor V8 de 5,7 litros": 894. "Fala exatamente como eu imagino que soe um peito de boi": 5.225.
+- "Obrigado pela minha dose diária de testosterona. Estou pronto para malhar pesado." / "Não vou precisar me injetar hoje." / "Vou levantar 143 kg no supino em sua homenagem." / "Meus níveis de testosterona aumentaram só por causa dessa cicatrização."
+- Reddit (época do divórcio, 2015): "herói americano", "bigode mais macho do MMA", "a personificação do bad-ass", "que tipo de maluco come a mulher do Don Frye?", "mar de mulheres famintas", "ele seria curtido mais do que o pau dele aguenta", "parece bem sozinho", "é foda ver lutadores como pessoas normais que passam por divórcio".
+- Instagram do evento do UFC com as ring girls: "herói americano", "um dos homens mais durões vivos", "nosso campeão".
+
+**Leitura:** pra dezenas de milhares de homens, o Frye **é** a testosterona. O personagem que o público elegeu como a própria testosterona confessando que nada disso levantava o pau dele é a prova mais forte possível do MUF ("não é testosterona"), dita pelo público antes de a VSL começar. Explica também o pico de busca (vídeos virais da voz dele, out/nov 2026): ele está em alta orgânica agora, no tema exato (testosterona, homem de verdade). Janela.
+
+### Três usos prontos
+1. **Abertura do Frye, com os comentários na tela (anonimizados):** "Trinta e três mil homens curtiram que a minha voz é terapia de testosterona. Vinte e sete mil disseram que médico devia receitar o meu vídeo pra homem com testosterona baixa. Eu li tudo. E eu estava em casa, com fibrilação, sem conseguir levantar o pau há dez anos. Se fosse testosterona, eu era o homem mais duro da América."
+2. **MUF na boca do Dana:** "o UFC proibiu TRT em 2014. E o homem que vocês chamam de testosterona ambulante tinha o pau mole. Agora me diz se o problema é hormônio."
+3. **"Dose diária" (gancho de ad e do como tomar):** os fãs falam de "dose diária de Don Frye"; a goma é uma por dia. "A dose diária de verdade não é a voz dele. É o que ele toma de manhã."
+
+### Sobre a fama fora do esporte (discutido e aceito)
+O papel da lenda é identificação, não reconhecimento; a VSL o apresenta em 20 segundos com prova na tela; o avatar de 50–70 que viu UFC na Spike TV (2005–2011) o conhece; a lead e a ad não dependem dele (abrem com Dana, ring girl, UFC, Casa Branca; o Frye entra no minuto 6); meio-conhecido cria o "por que nunca ouvi falar" e esquenta menos juridicamente. Limite: a cara do Frye não é o gancho da ad.
+
+### Pendentes do Frye
+- O que o Instagram mostra do rancho (cavalos dele, raça, lugar).
+- Checagens em fonte original: FreedomFest 2026, fibrilação de 30/12/2025 (Combate), divórcio 1996–2016, Ultimate Ultimate 96, bombeiro.
+- Na festa, a frase "esse aqui tem um pau que funciona": boca da ex (implícita) ou de uma amiga.
