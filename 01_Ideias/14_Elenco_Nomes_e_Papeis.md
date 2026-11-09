@@ -90,3 +90,17 @@ Abaixo, **todos os papéis do esqueleto** (Soda Horse, arquivo 08) com candidato
 - Randy: 1ª ligação (a briga com o Dana em miniatura; Stallone; Exército; a fundação de veteranos continua na oferta).
 - Coleman: 2ª ligação. Chuck Liddell sai das ligações (fica mudo na mesa das lendas, se quisermos).
 - Pendentes do Frye: o que o Instagram mostra do rancho (cavalos, raça, lugar); a causa do pico de busca de 27/10/2026.
+
+## 7. Estereótipo novo (Marcos, 09/11/2026): o lutador que luta pra pagar pensão, 9 filhos
+**O tipo:** o veterano de 44 que ainda luta em card preliminar porque tem 9 filhos de 3 ou 4 mulheres e pensão pra pagar. Não pode perder, não pode parar e, pelo visto, nunca falhou na cama. Entra como **o veterano 40+ ativo do colateral positivo** (bloco 19), sem nome real (zero risco), e resolve a pendência "sem nome x Jim Miller": é um personagem-tipo, mais forte que um nome.
+
+**Por que funciona:**
+- **Prova de virilidade em número:** 9 filhos. Encaixa direto no MUP da fertilidade (a contagem de espermatozoides do americano caiu pela metade desde 1973; o bônus por filho do Trump): "enquanto o americano médio não consegue fazer um, esse cara fez nove".
+- **O grupo que não pode falhar, versão família:** ele luta aos 44 porque a pensão vence todo mês. É o cutman/produtor/garanhão em forma de homem comum: "quem não pode falhar descobre antes o que funciona".
+- **Conservador e cômico ao mesmo tempo:** pensão, ex-mulheres, filhos espalhados; o avatar de 60 divorciado ri e se reconhece. Dá alívio no meio da tese sem quebrar o tom (molde do Terry Crews na micro lead da Soda Peak).
+- **Colateral positivo perfeito:** ele começou a tomar pela cama (ou pelo bolso: "eu não posso ficar sem a próxima luta") e ganhou luta por tabela; a Comissão testou duas vezes, nada.
+- **Frase pro Dana:** "metade dos meus veteranos luta pra pagar pensão. O cara com 9 filhos não pode broxar e não pode perder. Foi ele quem me provou que a pasta funciona dentro e fora do octógono."
+
+**Régua pública real do mesmo estereótipo (clipe, opcional):** Evander Holyfield, 63: 11 filhos com 6 mulheres, perdeu a mansão, lutou aos 58 (contra Belfort, 2021) pra pagar as contas. É o Tyson aos 58 com a camada da pensão. Só clipe, sem fala atribuída.
+
+**Onde mais o tipo aparece:** na mesa das lendas (opção 2) como o cara que todo mundo zoa ("o da pensão"); na lead UFC como régua da ring girl ("o de 44 com 9 filhos levou a menina; os de 25 foram dormir").
