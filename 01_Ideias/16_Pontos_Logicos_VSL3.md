@@ -23,26 +23,25 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 | F | Ele não deixa um dos seus pra trás. | Lealdade pública com a velha guarda (cirurgias, funerais); "eu devia isso a eles" | Dana |
 | G | Há uma mesa de homens de 60 que as mulheres mais disputadas de Vegas escolhem, e metade deles está quebrada por dentro. | A mesa das lendas na noite do Freedom 250 (opção 2 das ring girls); "ring girl não senta com novinho, senta com lenda"; "metade daquela mesa tinha me ligado" | Dana |
 
-### 1B. Emocional (Soda Horse blocos 4–6) — modelo: VSL 2 controle, personalizado
+### 1B. Emocional (Soda Horse blocos 4–6) — modelo: VSL 2 controle, personalizado — **PROTAGONISTA: DON FRYE** (decisão 09/11/2026; detalhe em `11_Emocional...md`, seção final)
 | # | Ponto lógico | Prova / beat | Voz |
 |---|---|---|---|
-| H | O homem mais duro que o Dana conheceu, e que o processou, ligou pra ele num sábado pedindo ajuda. | A ligação de fevereiro; a briga real ("anos sem nos falar"); "um homem não liga pro inimigo, a não ser que seja isso" | Dana |
-| I | O Randy era o que o avatar quer ser: campeão aos 43, Mercenários, sargento da 101ª, Captain America, mulher 17 anos mais nova. | Biografia real; 2014, Mindy, 34 | Randy (entrevista, Dana pergunta) |
-| J | Começou devagar, com desculpas dele, antes de 2019. | Treino, viagem, idade; o olhar dela, o celular, o lençol; as 3 desculpas dela (agenda pública) | Randy |
-| K | Ele se matou de Viagra pra dar conta, e o coração pagou. | **Infarto de outubro de 2019 como colateral da pílula**; depois a pílula proibida pelo cardiologista; a seca da Mindy começa aqui | Randy |
-| L | Diamante não goza; ele tentou comprar o que não tinha. | Viagem, carro, a campanha dela, a casa; "nada substitui um pau duro e grosso" | Randy |
-| M | A noite que quebrou, e a frase. | Jantar de terça, lingerie, de quatro, macarrão cozido, o olhar "de quem não via mais um homem"; "tudo bem, Randy"; o "para a luta" do árbitro (McCarthy em b-roll **[DECIDIR]**) | Randy |
-| N | O lutador limpo traiu o próprio princípio e não adiantou. | TRT escondido em 2023 (ele que viu o Dana proibir em 2014); fígado; bombas, a batata roxa no banheiro de Vegas; "se me dissessem que era um cocho, mandava pro inferno" | Randy |
-| O | Um aluno dele, de 30, entrou na academia, na mesa e na casa. | O moleque (nome fictício), Xtreme Couture, o Randy dá corner, leva pra jantar; a Mindy grava conteúdo com ele | Randy |
-| P | Esse aluno faz uma coisa depois da pesagem que o Randy nunca fez. | **A pesagem** (opção 3): o moleque destruído na balança, o cutman velho prepara "o pó e o mel", 24 h depois ele faz 3 rounds e sai pra festa inteiro. "Guarda esse detalhe." | Randy |
-| Q | A humilhação foi pública, no mundo dele. | **O after em Vegas** (opção 4): a mesa, o cutman ("fecho o corte às 11, às 2 ele abre de novo em cima de alguém"), a ring girl vê antes dele, a mão na cintura, o sorriso, **a frase na boca da Mindy**, ele atravessa o cassino "2 polegadas menor" | Randy |
-| R | A câmera mostrou o que ele não queria ver, e o detalhe de novo. | A sala dele na Xtreme Couture: o moleque misturando na bancada, calmo; depois os dois; 2 horas | Randy |
-| S | Acabou em público. | 12/02/2025, o post no Facebook; "fiquei sabendo pelo mesmo post que todo mundo" | Randy |
-| T | Ela ainda o amava; o problema nunca foi o amor. | **O lado da Mindy** (voz dela): "amor não faz uma mulher gozar"; o volume no shorts; "cada polegada"; "ele disse que era o que o cutman dá depois da pesagem, coisa de rancho"; "é como se algo dentro do Randy tivesse parado de funcionar" | Mindy |
-| U | Um homem que não sobe mais tenta ir rápido, e quase morre. | Julho de 2025, a pista, queimaduras, hospital; "tinha saído da clínica de ondas de choque naquela semana, 20 mil, e nada"; a mensagem de oração dela | Randy |
-| V | Não é um caso, é um padrão: a velha guarda inteira. | Chuck (segunda, o rival, sem mulher), Coleman (o homem do incêndio), "mais 3, mais 5, mais 10" | Dana + 2 depoimentos de 30 s |
-| W | O próximo pode ser você. | Kinsey (2 em 3 esposas); "não morrem numa briga, morrem em silêncio no quarto" | Dana |
-| X | O Dana sai com 2 perguntas e 1 detalhe. | O que mata o tecido por dentro / o que o cutman dá ao moleque depois da pesagem; "guarda: a pesagem, o cutman, o rancho" | Dana |
+| H | O homem mais macho que o MMA já teve ligou pro Dana num sábado e desabafou tudo. | Don Frye, 60, "The Predator": UFC 8, Ultimate Ultimate 96, PRIDE, Takayama; bigode, voz rouca, cowboy do Arizona, ex-bombeiro, dono de rancho de cavalo; "o homem que eu assistia antes de ter o UFC" | Dana |
+| I | Ele era o que o avatar quer ser, e sabe que já gastou a vergonha. | "Vocês me chamaram 30 anos de bad-ass, herói americano, bigode mais macho do MMA"; comentários reais de fãs na tela (anonimizados); "já gastei toda a vergonha que tinha, vou ser direto" | Frye |
+| J | Começou devagar, nos últimos anos de um casamento de 20 (a esposa sem nome, implícita). | 1996–2016, duas filhas; as desculpas dele (estrada, bebida, lutas); o olhar, o celular, o lençol até o ombro, "hoje não"; o pau mediano escapando; "eu tinha a vaca e não tinha mais o leite" | Frye |
+| K | Viagra escondido, e a dependência. | o banheiro do rancho, 45 minutos, o relógio; funcionou um tempo e foi enfraquecendo | Frye |
+| L | Nada substitui um pau duro e grosso. | compensar com presentes, viagens, o rancho; "diamante não goza" | Frye |
+| M | A noite que quebrou, e a frase. | jantar, surpresa, lingerie, "ela queria", entortou feito macarrão cozido, o olhar de quem não via mais um homem, "tudo bem, Don, a gente tenta outro dia" (única fala dela, curta); "levei 50 socos do Takayama em 6 minutos; nenhum doeu como esse 'tudo bem'" | Frye |
+| N | TRT, bombas e a garrafa não adiantaram. | TRT (fígado, parar, piorar); bombas (a batata roxa num homem com bigode de xerife); "eu bebia pra não ter que tentar" | Frye |
+| O | A festa e o outro homem. | cenário dele (rodeio / festa do rancho / evento de luta); ela de costas, o cara de 40, a mão, o sorriso; "esse aqui tem um pau que funciona" (boca dela ou de uma amiga, decidir na copy); ele sai sem falar, "2 polegadas menor" | Frye |
+| P | Acabou em público (fato, 2016). | advogado, guarda das filhas, jornal; "eu disse que estava mentalmente em frangalhos; só não disse o motivo"; a piada da internet: "que tipo de maluco come a mulher do Don Frye?" → "ninguém precisava; eu já não conseguia" | Frye |
+| Q | **O plus: dez anos de pós-divórcio.** | o alcoolismo (admitido por ele); o "mar de mulheres famintas" que os fãs imaginaram existiu: conheceu mulheres ano após ano e falhou com todas, cada vez mais rápido; "a fila existia, o que não existia era eu" | Frye |
+| R | O rancho como espelho. | os garanhões dele cobrindo éguas todo dia, aos 20, 25 anos; "o dono deles não"; o bloco de sal e a pasta de eletrólitos que o tratador dá (o detalhe que o espectador guarda) | Frye |
+| S | O coração (fato, dez/2025): a pílula proibida. | fibrilação atrial recorrente, internado 30/12/2025, 3 dias, em casa; o cardiologista: "nunca mais pílula azul"; 60 anos, sem casamento, sem pílula, sem opção; "saí do hospital e fui olhar os cavalos" | Frye |
+| T | A ligação de sábado: desabafou tudo. | do primeiro "hoje não" até o hospital; o Dana: "não consegui levantar da cadeira" | Frye + Dana |
+| U | Não é um caso, é um padrão: a velha guarda inteira. | Randy liga (o homem que processou o Dana; Stallone, Exército; 30 s), Coleman liga (o incêndio; 30 s), "mais 3, mais 5, mais 10" | Dana + 2 depoimentos |
+| V | O próximo pode ser você. | Kinsey (2 em 3 esposas); "não morrem numa briga, morrem em silêncio no quarto" | Dana |
+| W | O Dana sai com 2 perguntas e 1 detalhe. | o que mata o tecido por dentro / o que o tratador dá ao garanhão do Frye que o Frye não toma; "guarda: o rancho, o bloco de sal, a pasta" | Dana |
 
 ### 1C. Discovery (Soda Horse blocos 7–10) — os dois juntos; o Dr. Drew em cena, a voz é do Dana
 | # | Ponto lógico | Prova / beat | Voz |
@@ -103,10 +102,10 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 
 | # | Ponto lógico | Prova / beat | Voz |
 |---|---|---|---|
-| A | Funcionou no homem que estava pior: o Randy. | Dia 4 (ereção matinal), dia 11, a noite inteira; ressonância 60 → 38; **a Mindy voltou?** (a decidir no roteiro: a VSL 2 fecha com a Noor fora; a Horse Jelly com a Rosalind de volta) | Randy + Dana |
+| A | Funcionou no homem que estava pior: o Frye. | Dia 4 (ereção matinal), dia 11 (a noite inteira, a primeira mulher em 10 anos com quem não falhou), ressonância 60 → 38; três meses depois, a foto na mesa das lendas com as ring girls do lado (a foto real) | Frye + Dana |
 | B | Funcionou no homem que nunca lutou: o Dana. | 11 dias, de manhã, sem mulher na cena; "eu era o avatar" | Dana |
 | C | Funcionou nas lendas, na frente da bandeira. | **O evento que comprovou:** as lendas tomaram antes do Freedom 250; a mesa das lendas daquela noite foi outra; "e o pior já estava na Casa Branca" (opção 2 pós-truque) | Dana |
-| D | Funcionou por tabela nos de 40 que estavam fracos: ganharam luta. | **Colateral positivo:** o veterano de 43 (**[DECIDIR]** sem nome x Jim Miller); "a Comissão me testou duas vezes, nada"; Glover em b-roll (campeão aos 42); o Dr. Drew explica em 1 parágrafo por que o mesmo mecanismo dá fôlego | veterano + Dr. Drew |
+| D | Funcionou por tabela nos de 40 que estavam fracos: ganharam luta. | **Colateral positivo:** o veterano de 43 (**[DECIDIR]** sem nome x Jim Miller); o moleque de 30 que faz o ritual na pesagem; "a Comissão me testou duas vezes, nada"; Glover em b-roll (campeão aos 42); o Dr. Drew explica em 1 parágrafo por que o mesmo mecanismo dá fôlego | veterano + Dr. Drew |
 | E | O governo entrou: "isso é o que o MAHA existe pra fazer". | **A ligação pro presidente e pro Bobby Kennedy** (Dana contando); Trump mudo em foto; "incluído no MAHA como programa de saúde do homem americano" | Dana |
 | F | Testado em escala, nos homens que mais merecem. | **O trial na base militar** (Fight for the Troops): 37 lendas → centenas de veteranos de 50+; 94%; o cutman veterano de combate | Dana + Dr. Drew |
 | G | Fabricado nos EUA, sob supervisão, no nosso laboratório. | O lab validado da oferta; cientistas do governo com o Dr. Drew; selo; "made in America, nenhum ingrediente chinês" | Dr. Drew |
@@ -139,8 +138,8 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 
 | # | Ponto lógico | Prova / beat | Voz |
 |---|---|---|---|
-| A | Dois caminhos, e você está na bifurcação agora. | O Randy: o caminho de quem fecha o vídeo (mais um ano de pílula, mais um "tudo bem", o próximo moleque) x o caminho de quem clica (dia 4, dia 11, a mulher de volta ou a próxima) | Randy |
-| B | A mulher com quem você casou merece o homem com quem casou. | Esposa acima de ring girl no fechamento; Kinsey ecoa; "ela não parou de querer; o seu pau parou de conseguir" | Randy + Dana |
+| A | Dois caminhos, e você está na bifurcação agora. | O Frye: o caminho de quem fecha o vídeo (mais um ano sozinho, mais uma mulher que não volta, o próximo hospital) x o caminho de quem clica (dia 4, dia 11, a próxima mulher, a mesa das lendas) | Frye |
+| B | A mulher com quem você casou merece o homem com quem casou. | Esposa acima de ring girl no fechamento; Kinsey ecoa; "ela não parou de querer; o seu pau parou de conseguir"; o Frye: "eu descobri 10 anos tarde demais; você não precisa" | Frye + Dana |
 | C | Três razões pra agir agora. | O relógio do cimento (1,5–2% ao ano); o subsídio acaba; o lote acaba | Dana |
 | D | As objeções, respondidas pelo homem que põe o nome. | **FAQ na voz do Dana:** idade/anos de Viagra; coração e remédio (o caso do Randy, a Dra. Annika); quanto tempo; tamanho; refratário; discreto; "preciso mudar a dieta?" não; "é doping?" não, a Comissão testou | Dana |
 | E | Este é o projeto em que eu coloco o meu nome. | "Eu não boto meu nome em merda nenhuma. Boto nisso." CTA, botão, 6 frascos, antes que os 20 acabem | Dana |
@@ -152,6 +151,6 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 2. Veterano 40+ ativo: sem nome ou Jim Miller.
 3. Clipes novos: Buffer (lead), McCarthy, Norris, Statham, Glover, Rogan: todos ou veto.
 4. "Quem paga os estudos / memo / FDA": inteiro no Dr. Drew (molde Horse Jelly) ou dividido com o Dana na Discovery.
-5. A Mindy volta ou não no "primeiro homem" (VSL 2: não; Horse Jelly: sim).
+5. (resolvido 09/11: protagonista é o Frye; a ex sem nome não volta; o "primeiro homem" fecha com a próxima mulher e a foto com as ring girls).
 6. Nome do produto, número de frascos, garantia (60 ou 90), bônus.
 7. Performance da VSL 2 (só pra ads).

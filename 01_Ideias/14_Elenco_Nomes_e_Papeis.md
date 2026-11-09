@@ -84,3 +84,9 @@ Abaixo, **todos os papéis do esqueleto** (Soda Horse, arquivo 08) com candidato
 - **Dr. Drew Pinsky**: MD internista, 67, 30 anos de Loveline (rádio e TV sobre sexo), Celebrity Rehab, crítico do establishment desde 2020, Fox/Newsmax, círculo do Rogan. Assume tudo que era do Brecka: Discovery em cena com o Dana, "Obrigado, Dana" na tese, mecanismo, 4 verbos, produto, oferta, a ida a Kentucky.
 - O que sai: a história dos 10,4 anos como ponte Dana → expert (vira uma frase do Dana sem nome, ou sai). A ligação com o governo fica com os clipes (RFK; opcionalmente Makary, FDA, ou Bhattacharya, NIH).
 - **Checar antes de escrever:** se existe VSL ou ad de ED rodando com o rosto do Dr. Drew; a posição política pública dele hoje.
+
+## 6. Troca da emocional (Marcos, 09/11/2026): **Don Frye** protagonista; Randy e Coleman nas ligações; Mindy e Chuck saem
+- Frye: ver `11_Emocional...md` (seção final) e briefing. Ex-esposa sem nome (implícita). Pós-divórcio como plus. Fibrilação (dez/2025) como gatilho.
+- Randy: 1ª ligação (a briga com o Dana em miniatura; Stallone; Exército; a fundação de veteranos continua na oferta).
+- Coleman: 2ª ligação. Chuck Liddell sai das ligações (fica mudo na mesa das lendas, se quisermos).
+- Pendentes do Frye: o que o Instagram mostra do rancho (cavalos, raça, lugar); a causa do pico de busca de 27/10/2026.
