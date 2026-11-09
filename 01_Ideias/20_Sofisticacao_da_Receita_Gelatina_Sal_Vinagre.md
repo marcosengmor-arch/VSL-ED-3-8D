@@ -81,3 +81,14 @@ Este é o primeiro tópico de análise. Tudo "checar" onde indicado.
 4. **Gimmick:** "The Blue Stallion Jelly", "The Blue Horse Jelly", "The Blue Paste" ou "The Blue Salt Jelly"?
 5. **"Viagra natural":** usar na VSL e evitar na ad, ou evitar nos dois?
 6. Com a gelatina como core, **o cavalo volta a ser necessário** (é a gelatina de garanhão): isso encerra a discussão de trocar o animal, ou o Marcos quer a gelatina de outro animal (buck, hog) pra fugir da saturação de "horse jelly"? (A cor azul já diferencia; eu manteria o cavalo.)
+
+---
+
+## 6. Resposta do Marcos (09/11/2026): o que validou foi o sal celta
+- **Ingrediente na fórmula: sal celta** (sel gris da Bretanha, cinza, úmido, "84 minerais"). É o do "truque do sal" que validou.
+- **A cor azul vem da goma, não do sal.** A copy separa as duas coisas sem mentir: "o sal celta cinza do mar da Bretanha" é o ingrediente; "a gelatina azul" é o produto/visual (espirulina azul ou clitoria na goma). Na história, o cutman tinge? Não: o Brecka/lab fez a goma azul "pra ninguém confundir com a cópia âmbar dos atores pornôs e pra lembrar o que ela substitui" (a pílula azul). Isso vira até um beat: "a única goma azul do mercado; se não for azul, é cópia".
+- **Nome do sal na copy:** "Celtic sea salt", "sal celta", "o sal cinza da Bretanha". Nunca "sal azul" como ingrediente (seria falso); "azul" fica pro produto.
+- **Gimmick ajustado:** "The Blue Stallion Jelly" ou "The Blue Paste" (a pasta azul do vestiário). "Blue Salt Jelly" sai (o sal não é azul).
+- **Verbo do sal:** HIDRATAR/MINERALIZAR (a esponja seca pelo glifosato volta a segurar água e minerais, como o lutador depois da pesagem). O "truque do sal" viral vende fluxo sanguíneo pelo sal: a gente herda a crença e dá o mecanismo (esponja hidratada).
+
+Pendentes (seção 5): soda fica ou sai; ACV como DISSOLVER; gimmick final; "Viagra natural" em ad; cavalo como fonte da gelatina.
