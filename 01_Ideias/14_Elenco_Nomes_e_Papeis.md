@@ -76,3 +76,11 @@ Abaixo, **todos os papéis do esqueleto** (Soda Horse, arquivo 08) com candidato
 - **Baixo (b-roll e clipes reais, fictícios):** Buffer "It's time" em clipe, Stallone/Schwarzenegger/Lundgren/Statham/Norris/Tyson em clipe, Trump mudo, RFK clipe, Glover b-roll, velha guarda na mesa muda, cutman/produtor/moleque/criador/FDA/Pharma fictícios, ring girls e esposas UGC, Comissão sem nome.
 - **Médio (fala atribuída a pessoa real, sem tema sexual direto):** Chuck, Coleman, Buffer/McCarthy/Dean "me mandou um frasco", Dr. Phil, Samadi, UFC Performance Institute, fundação do Randy nomeada.
 - **Alto (fala sexual atribuída, litigioso, cargo ou empresa concorrente):** Dana, Brecka, Randy, Mindy, Rogan falando, Oz falando, Jim Miller nomeado.
+
+---
+
+## 5. Troca do expert (Marcos, 09/11/2026): Gary Brecka sai, **Dr. Drew Pinsky** entra
+- Motivo: o Brecka não é médico nem urologista; o Marcos quer um médico forte, conservador, famoso e reconhecível. Oz foi descartado (não valida em ED); Samadi foi descartado (tem VSL própria escalando, rosto ocupado); Dr. Phil não é MD e está associado ao Vicks (fica como opção de apresentador do sofá na emocional, se quisermos); Dr. Alan Mandell (quiroprático, cara validada no YouTube) fica pra micro lead/ad.
+- **Dr. Drew Pinsky**: MD internista, 67, 30 anos de Loveline (rádio e TV sobre sexo), Celebrity Rehab, crítico do establishment desde 2020, Fox/Newsmax, círculo do Rogan. Assume tudo que era do Brecka: Discovery em cena com o Dana, "Obrigado, Dana" na tese, mecanismo, 4 verbos, produto, oferta, a ida a Kentucky.
+- O que sai: a história dos 10,4 anos como ponte Dana → expert (vira uma frase do Dana sem nome, ou sai). A ligação com o governo fica com os clipes (RFK; opcionalmente Makary, FDA, ou Bhattacharya, NIH).
+- **Checar antes de escrever:** se existe VSL ou ad de ED rodando com o rosto do Dr. Drew; a posição política pública dele hoje.
