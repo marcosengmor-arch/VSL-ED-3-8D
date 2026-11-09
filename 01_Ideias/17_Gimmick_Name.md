@@ -147,3 +147,11 @@ O Marcos não gostou do "Weigh-In Soda Ritual"; quer o terceiro no molde "Stalli
 3. **The American Stallion Ritual** (lead patriótica: Freedom 250, a pesagem no Lincoln Memorial, o Dana e as lendas na frente da Casa Branca, MAHA)
 
 "Fight Night" sai. A lead UFC pura fica absorvida pela 1 (o universo entra pela ring girl) e pela 3 (o universo entra pela Casa Branca).
+
+---
+
+## 9. Atualização (09/11/2026): sal celta entra de leve; nome em discussão vira "The Salty Paste" / "The Salt Paste"
+- Azul descartado (foi só uma ideia).
+- Sal celta entra: explícito em **1 das 3 leads** (baking soda + celtic salt; recomendação: a lead Kentucky) e no bloco dos ingredientes (verbo HIDRATAR/REATIVAR). As outras duas leads ficam como estão (Stallion Soda Ritual; American Stallion Ritual).
+- Nomes chiclete preferidos pelo Marcos pra essa lead: **"The Salty Paste" / "The Salt Paste"**. Alternativas discutidas: The Grey Paste, The Celtic Paste, The Weigh-In Salt, The Locker Room Salt, The Cutman's Salt, The Salt Lick Trick, The Stallion Salt, The Salt & Soda Trick, The Salted Soda, The Brine.
+- A sinestesia do ritual (ardor, espuma, água na boca; mão fechada 13 s; veia do braço em 20 min; dia 4) está em `22_Sinestesia_The_Salty_Paste.md` e vale pra VSL inteira, não só pra lead do sal.
