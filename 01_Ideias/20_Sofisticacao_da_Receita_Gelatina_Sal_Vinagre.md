@@ -92,3 +92,14 @@ Este é o primeiro tópico de análise. Tudo "checar" onde indicado.
 - **Verbo do sal:** HIDRATAR/MINERALIZAR (a esponja seca pelo glifosato volta a segurar água e minerais, como o lutador depois da pesagem). O "truque do sal" viral vende fluxo sanguíneo pelo sal: a gente herda a crença e dá o mecanismo (esponja hidratada).
 
 Pendentes (seção 5): soda fica ou sai; ACV como DISSOLVER; gimmick final; "Viagra natural" em ad; cavalo como fonte da gelatina.
+
+### 6.1 De onde vem o azul da goma (pergunta do Marcos, 09/11/2026)
+
+| Corante | O que é | Status regulatório (checar) | Função além da cor | Leitura pra copy |
+|---|---|---|---|---|
+| **Espirulina azul (ficocianina)** | extrato da alga *Arthrospira platensis*; é o azul das balas e gomas "naturais" | aprovado pela FDA como corante de origem natural (2013, ampliado depois) | antioxidante real; literatura em modelos animais ligando espirulina a função erétil e óxido nítrico (fraca, mas existe); "superfood" que o avatar já conhece | **a melhor:** vira o 4º ingrediente com função (PROTEGER o tecido novo) e dá a cor; "sal do mar + alga do mar": a gelatina azul do mar. Alinha com MAHA (RFK está tirando corantes de petróleo da comida): "azul de alga, não azul de petróleo" |
+| **Flor clitória / butterfly pea (*Clitoria ternatea*)** | flor azul do sudeste asiático, chá azul | aprovada pela FDA como corante (2021) pra balas, gomas, bebidas | uso tradicional (Ayurveda/Tailândia) pra libido e memória; o nome botânico vem do formato da flor, que lembra um clitóris | ótimo detalhe de copy ("a flor que os botânicos batizaram de clitória"), mas a função é fraca e o nome pode desviar |
+| **Azul de gardênia (genipina)** | pigmento do fruto da gardênia | **aprovado pela FDA em 2025** como parte da onda de corantes naturais | nenhuma função além da cor | novo demais, sem história |
+| **FD&C Blue No. 1 (azul brilhante)** | corante sintético de petróleo, o azul da maioria das balas (e da pílula azul) | aprovado, mas é o alvo da campanha do RFK contra corantes de petróleo | nenhuma | **não:** contradiz a camada MAHA da VSL ("o Viagra é azul de petróleo; a nossa é azul de alga") |
+
+**Recomendação: espirulina azul (ficocianina).** Dá a cor, vira ingrediente com função (PROTEGER), casa com o sal celta ("os dois vêm do mar"), casa com o MAHA (sem corante de petróleo) e casa com o contraste com a pílula azul ("a deles é azul de tinta; a nossa é azul de alga"). Fórmula sugerida de 4 verbos, sem soda: **sal celta (HIDRATAR) + gelatina/colágeno de garanhão (RECONSTRUIR) + vinagre de maçã (DISSOLVER) + espirulina azul (PROTEGER)**, e o Tongkat Ali como 5º (REATIVAR) se o Marcos quiser manter o eixo do desejo; ou espirulina no lugar do Pycnogenol e Tongkat fica, com o ACV fora. Decisão dele.
