@@ -4,7 +4,7 @@ Formato: cada ponto é **o que o espectador precisa aceitar** naquele momento, c
 
 Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separadas, como sempre).
 
-**Gimmick decidido (06/11/2026): "The Stallion Soda Ritual"** (arquivo 17, seção 8). Onde este arquivo diz "o truque da pesagem" / "a coisa da pesagem", lê-se o Stallion Soda Ritual feito depois da pesagem.
+**Gimmick (09/11/2026): em revisão.** "The Stallion Soda Ritual" (06/11) está sendo substituído pela linha "gelatina azul" (The Blue Stallion Jelly / The Blue Paste), com sal celta + gelatina de garanhão como core (arquivo 20). Onde este arquivo diz "o truque/ritual da pesagem", lê-se a pasta azul que o cutman prepara depois da pesagem.
 
 ---
 
@@ -60,40 +60,10 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 
 ## 2. MARKETING THESIS (MUP → MUF → MUS) — voz: Brecka ("Obrigado, Dana"); Dana reage em cortes
 
-### 2A. MUP (Soda Horse blocos 11–13) — base: tese controle da VSL 1 (cimento/glifosato), com os encaixes UFC
-| # | Ponto lógico | Prova / beat | Voz |
-|---|---|---|---|
-| A | Quem fala agora olha pro sangue e acerta. | "Eu dizia pra seguradora até o mês em que você ia morrer"; os 10,4 anos do Dana; os 300 aposentados | Brecka |
-| B | Os estudos foram filtrados por quem pagou, e sobrou uma palavra. | 73 estudos, 11 semanas; Pfizer/Bayer/Lilly fora; glifosato (**[DECIDIR]** se este bloco inteiro, com memo da Bayer 1998, FDA/7 demitidos, ex-revisor, ex-executivo, fica aqui na voz do Brecka como na Horse Jelly, ou se parte já foi no Dana em AC) | Brecka |
-| C | Você comeu Roundup em cada refeição por 40 anos. | 97% das amostras do USDA; pão, aveia, bife, cerveja, água; lipossolúvel, acumula no tecido cavernoso | Brecka |
-| D | Isso cortou a fertilidade do homem americano pela metade, e o governo admitiu. | Human Reproduction Update (−50% desde 1973); França 55% do sêmen; RFK (eco); **Trump do lado do problema:** bônus por filho ("o presidente paga pra americano ter filho e a Bayer castra o pai") | Brecka + Dana |
-| E | Eles sabiam em 1998 e calaram. | Memo 04-Beta; 24 bilhões em acordos; FDA aprovou contra 11 cientistas, 7 demitidos; ex-revisor | Brecka + depoimento |
-| F | O seu pau é uma esponja de colágeno tipo III. | Corpo cavernoso, 70–80%, ondulado, mola; Journal of Urology 1993 | Brecka |
-| G | O glifosato procura essa esponja e gruda 14x mais nela do que em qualquer outro tecido. | Endocrine Reviews 1998; "o seu pau é o alvo número 1" | Brecka |
-| H | O que gruda vira cimento, refeição após refeição, sem sintoma. | Colágeno quase nunca é substituído; esponja virando cimento; a imagem das duas esponjas; a ressonância com 60% de fibrose | Brecka |
-| I | O cimento te travou aos 15, antes de virar homem. | Stanford: 90% do tamanho antes dos 21; "ele não te encolheu aos 40, te travou aos 15"; a linha das 7 polegadas; o estudo das 1.000 mulheres (o esguicho exige a medida) | Brecka |
-| J | Por isso ele entortou na mão dela. | A parte viva absorve, o bloco morto não; macarrão cozido; **o Randy** como exame (a esponja dele) | Brecka + Dana |
-| K | E por isso o lutador de 43 ainda funciona e o aposentado não: o relógio. | 1,5–2% ao ano; 3 marcos; a janela; "o Randy tinha 60% aos 61" | Brecka |
-
-### 2B. MUF (bloco 13 e meio)
-| # | Ponto lógico | Prova / beat | Voz |
-|---|---|---|---|
-| L | Não é idade, estresse, cabeça nem testosterona. | O homem de 70 com esponja limpa x o de 40 cimentada; a ereção matinal como prova; **o UFC proibiu testosterona e os velhos ficaram mais fortes** | Brecka + Dana |
-| M | O Viagra joga água numa pedra, e mata. | Balde na pedra; 17x infarto, 37.000 mortos/ano (Nature); **o infarto do Randy em 2019** como caso | Brecka |
-| N | TRT corta o fio e cobra no fígado; prótese enterra um pau duro e morto. | O fígado do Randy; a prótese na esponja que continua morrendo | Brecka |
-| O | A cópia dos atores pornôs funciona pouco porque é metade do método. | "Só o pó dissolve e não reconstrói; só a gelatina reconstrói em cima do cimento" (prepara o MUS e assina a origem) | Brecka |
-| P | Logo: dissolver o cimento, reconstruir a esponja, proteger o tecido novo, religar o desejo. 4 passos. | Os 4 verbos anunciados | Brecka |
-
-### 2C. MUS (Soda Horse blocos 14–17) — a resposta no cavalo
-| # | Ponto lógico | Prova / beat | Voz |
-|---|---|---|---|
-| Q | **A pergunta paradoxal do cavalo (V1):** o garanhão come mais glifosato que você e nunca cimenta. | Lexington, Kentucky; o Percheron de 25 anos (75 humanos) cobrindo 60 éguas; pasto, feno, água com Roundup; "cavalo não cimenta" | Brecka |
-| R | Porque o tratador faz 4 coisas no cocho que ninguém faz com você. | O haras, o criador, o veterinário; o Brecka no cocho; "e o cutman da pesagem fazia a versão de vestiário disso há 30 anos sem saber" | Brecka |
-| S | **1 DISSOLVER:** o bicarbonato preparado amolece o cimento. | O pó branco; "pó puro só arrota": o preparo; **o Exército americano estudou o tamponamento em soldados** (narrativa, molde Vicks); o "milkshake" do cavalo de corrida proibido pelas comissões de turfe (a "investigação da Comissão") | Brecka |
-| T | **2 RECONSTRUIR:** o extrato de colágeno do tendão do garanhão Percheron repõe a esponja. | "O mel do garanhão": âmbar, grosso, não é mel; colágeno tipo III de garanhão; a régua e a ressonância (60 → 38) | Brecka |
-| U | **3 PROTEGER:** Pycnogenol blinda o tecido novo contra o glifosato de amanhã. | Você não para de comer; sem o 3 o cimento volta | Brecka |
-| V | **4 REATIVAR:** Tongkat Ali religa o desejo sem agulha. | "Sem TRT: os meus lutadores não precisam de agulha" | Brecka + Dana |
-| W | Os 4 juntos, preparados, no momento certo: essa é a versão completa que os atores pornôs não têm. | Linha do tempo (dia 4, dia 11, semana 6, mês 6); "a cópia é 1 ou 2 dos 4, crus" | Brecka |
+**ATUALIZADO (09/11/2026): a tese oficial é a do COLÁGENO / FISSURAS / CICATRIZ (regra: a tese segue o ingrediente-core; com a gelatina como core, sai a tese do cimento).** A cadeia completa A→AA está em `21_Tese_do_Colageno_Fissuras.md`. Resumo:
+- **MUP:** esponja de colágeno tipo III → o glifosato gruda 14x no tipo III → ligações cruzadas → a fibra rígida **trinca** a cada ereção (microfissuras; a mangueira de 20 verões) → o corpo tapa com colágeno tipo I (cicatriz) → **fibrose cavernosa** → "cicatriz não enche, não endurece, não bombeia, não fode" → travou aos 15 → a esponja **seca** (camada do sal) → o relógio (1,5–2%/ano; 60% do Randy) → por isso entortou → por isso o lutador de 43 funciona e o aposentado não.
+- **MUF:** não é idade/estresse/cabeça/testosterona (UFC 2014); Viagra não dissolve cicatriz (freio de mão; 17x infarto; o infarto do Randy); TRT (o fígado do Randy); prótese, bombas, ondas de choque (os 20 mil do Randy); a cópia dos atores pornôs é 1 ou 2 dos 4 passos, crus.
+- **MUS:** o garanhão come o Roundup e não fibrosa porque nunca para de fabricar colágeno tipo III e porque o tratador faz 4 coisas no cocho (bloco de sal, gelatina, ACV na ração, proteção); o cutman fazia a versão de vestiário depois da pesagem. Verbos: **1 HIDRATAR (sal celta) → 2 DISSOLVER E RECONSTRUIR (gelatina/colágeno de tendão de garanhão Percheron; urina escura em 72 h; régua; ressonância 60 → 38) → 3 DISSOLVER/PROTEGER (vinagre de maçã + espirulina azul; "azul de alga, não azul de petróleo") → 4 REATIVAR (Tongkat Ali, se ficar)**. Linha do tempo dia 4 / 11 / semana 6 / mês 6. "Se não for azul, é cópia."
 
 ---
 
