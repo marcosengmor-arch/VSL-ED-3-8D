@@ -1,5 +1,7 @@
 # Sofisticação da receita: combinar um ingrediente validado antigo com um novo (debate, 09/11/2026)
 
+> **EM DISCUSSÃO (09/11/2026): nada aqui está decidido.** O MUP fica a tese do cimento; a sofisticação da tese será definida pelo Marcos depois.
+
 Proposta do Marcos (depois de conversas de 08–09/11): em vez de inventar, **sofisticar a receita que já existe**: um ingrediente validado antigo + um novo. Validados antigos no nicho: sal azul (celtic salt), vinagre de maçã (ACV), peróxido de hidrogênio, Vick. Duas combinações na mesa:
 - **Gelatina + sal azul** → "gelatina salgada" / "gelatina azul" (a Red Horse validou com a cor vermelha; esta seria a azul, lembrando Viagra, até "Viagra natural").
 - **Gelatina + vinagre de maçã** → "gelatina de maçã".
