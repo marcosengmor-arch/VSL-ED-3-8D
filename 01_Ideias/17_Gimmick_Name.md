@@ -155,3 +155,12 @@ O Marcos não gostou do "Weigh-In Soda Ritual"; quer o terceiro no molde "Stalli
 - Sal celta entra: explícito em **1 das 3 leads** (baking soda + celtic salt; recomendação: a lead Kentucky) e no bloco dos ingredientes (verbo HIDRATAR/REATIVAR). As outras duas leads ficam como estão (Stallion Soda Ritual; American Stallion Ritual).
 - Nomes chiclete preferidos pelo Marcos pra essa lead: **"The Salty Paste" / "The Salt Paste"**. Alternativas discutidas: The Grey Paste, The Celtic Paste, The Weigh-In Salt, The Locker Room Salt, The Cutman's Salt, The Salt Lick Trick, The Stallion Salt, The Salt & Soda Trick, The Salted Soda, The Brine.
 - A sinestesia do ritual (ardor, espuma, água na boca; mão fechada 13 s; veia do braço em 20 min; dia 4) está em `22_Sinestesia_The_Salty_Paste.md` e vale pra VSL inteira, não só pra lead do sal.
+
+---
+
+## 10. DECISÃO DO NOME DO PRODUTO (Marcos, 10/11/2026): **Stallion Soda**
+- Critério do Marcos: nome de produto dá certo quando segue os que já estão vendendo. Lista de validados em escala que ele passou: Redhorse, Horsefill, Sodapeak, Honeyfil, StallionPower, Sodahorse, Horsejelly. Padrão: duas palavras de um vocabulário pequeno (Horse/Stallion; Soda/Honey/Jelly; Red; Fill/Fil/Peak/Power).
+- **Stallion Soda** = StallionPower + Sodahorse/Sodapeak, e é o próprio gimmick principal (The Stallion Soda Ritual), como HorseJelly e SodaHorse fazem com produto e truque.
+- Discutidos e não escolhidos: StallionRock, IronStallion, Stallion Soda Rise, SodaStallion, StallionPeak, StallionFil, SodaFil, GreyHorse, SaltHorse; linha patriótica (WarHorse, AmericanStallion, PatriotStallion + Rise/Peak/Soda, MustangPower, LibertyHorse, ColtPower, American StallionSoda). A camada patriótica fica na lead 3 (The American Stallion Ritual), no rótulo (bandeira, "Made in USA") e na copy, não no nome.
+- Já ocupados no ranking, evitar confusão: SodaPower, SodaPeak, Horse Peak, Stallion Power, SodaHoney, Honey Power.
+- Antes de imprimir rótulo: checar domínio e registro de marca de "Stallion Soda".

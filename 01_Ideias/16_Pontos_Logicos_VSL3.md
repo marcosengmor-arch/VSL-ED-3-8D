@@ -109,7 +109,7 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 | E | O governo entrou: "isso é o que o MAHA existe pra fazer". | **A ligação pro presidente e pro Bobby Kennedy** (Dana contando); Trump mudo em foto; "incluído no MAHA como programa de saúde do homem americano" | Dana |
 | F | Testado em escala, nos homens que mais merecem. | **O trial na base militar** (Fight for the Troops): 37 lendas → centenas de veteranos de 50+; 94%; o cutman veterano de combate | Dana + Dr. Drew |
 | G | Fabricado nos EUA, sob supervisão, no nosso laboratório. | O lab validado da oferta; cientistas do governo com o Dr. Drew; selo; "made in America, nenhum ingrediente chinês" | Dr. Drew |
-| H | O produto: os 4 ingredientes (soda preparado, sal celta, colágeno de garanhão, Pycnogenol) numa goma, 1 por dia em jejum. Sem nada hormonal. O ritual com os tempos (30 s embaixo da língua, 13 s na mão, 20 min a veia, dia 4). | Nome do produto (a definir); como tomar; "não importa" (diabetes, pressão, próstata, remédio de coração, idade, quantos anos de Viagra) | Dr. Drew |
+| H | O produto: os 4 ingredientes (soda preparado, sal celta, colágeno de garanhão, Pycnogenol) numa goma, 1 por dia em jejum. Sem nada hormonal. O ritual com os tempos (30 s embaixo da língua, 13 s na mão, 20 min a veia, dia 4). | Nome do produto: **Stallion Soda**; como tomar; "não importa" (diabetes, pressão, próstata, remédio de coração, idade, quantos anos de Viagra) | Dr. Drew |
 | I | A indústria adulta pegou a versão completa e mediu. | **O produtor de Vegas** (sem rosto): atores 50+, **14x melhor que com Viagra**, sem coração acelerado, sem tontura, sem dependência; "agora eles têm a original" | produtor + Dr. Drew |
 | J | É seguro, e quem diz é uma uróloga. | **Dra. Annika Ackerman**: recap do mecanismo, "100% safe", sem interação com remédio de coração (o caso do Randy) | Dra. Annika |
 | K | O homem que o governo colocou pra cuidar dos mais velhos testou. | **Dr. Oz** (clipe): o voluntário de 79, diabético, pressão alta; "this works" | clipe + Dr. Drew |
@@ -152,5 +152,5 @@ Esqueleto: Soda Horse (24 blocos). Lead fica fora deste arquivo (3 leads separad
 3. Clipes novos: Buffer (lead), McCarthy, Norris, Statham, Glover, Rogan: todos ou veto.
 4. "Quem paga os estudos / memo / FDA": inteiro no Dr. Drew (molde Horse Jelly) ou dividido com o Dana na Discovery.
 5. (resolvido 09/11: protagonista é o Frye; a ex sem nome não volta; o "primeiro homem" fecha com a próxima mulher e a foto com as ring girls).
-6. Nome do produto, número de frascos, garantia (60 ou 90), bônus.
+6. Número de frascos, garantia (60 ou 90), bônus. (Nome do produto definido em 10/11: Stallion Soda.)
 7. Performance da VSL 2 (só pra ads).
