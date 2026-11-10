@@ -1,5 +1,7 @@
 # Prompts de imagem do frasco — Stallion Soda (10/11/2026)
 
+> **ATENÇÃO (10/11/2026): o frasco foi aprovado depois destes prompts.** O rótulo oficial está em `frasco/StallionSoda_frasco_APROVADO.webp`, com a especificação e o bloco de descrição em `frasco/README_Frasco_Aprovado.md`. Ao usar os prompts de cena abaixo, anexe a imagem aprovada como referência ou troque a descrição do rótulo pelo bloco do README.
+
 5 prompts modelados nas 5 referências validadas que o Marcos enviou (Stallion Power, Red Horse, HorseFil, JellyRock, HoneyFil), adaptados para a nossa oferta, + 3 prompts novos padronizados para a VSL 3 (patriotismo, Kentucky, universo da luta).
 
 **Padrão do frasco usado em todos (para manter consistência):** frasco de vidro transparente, gomas âmbar-douradas (a "goma do garanhão"), 30 gomas, rótulo azul-marinho quase preto com vermelho e branco, garanhão Percheron cinza-tordilho, texto "STALLION SODA". Para trocar a cor da goma, mude só "amber-gold gummies". Formato vertical 9:16 (frame de vídeo). Nenhum prompt cita marca de terceiros.
