@@ -164,3 +164,6 @@ O Marcos não gostou do "Weigh-In Soda Ritual"; quer o terceiro no molde "Stalli
 - Discutidos e não escolhidos: StallionRock, IronStallion, Stallion Soda Rise, SodaStallion, StallionPeak, StallionFil, SodaFil, GreyHorse, SaltHorse; linha patriótica (WarHorse, AmericanStallion, PatriotStallion + Rise/Peak/Soda, MustangPower, LibertyHorse, ColtPower, American StallionSoda). A camada patriótica fica na lead 3 (The American Stallion Ritual), no rótulo (bandeira, "Made in USA") e na copy, não no nome.
 - Já ocupados no ranking, evitar confusão: SodaPower, SodaPeak, Horse Peak, Stallion Power, SodaHoney, Honey Power.
 - Antes de imprimir rótulo: checar domínio e registro de marca de "Stallion Soda".
+
+### 8.4 Adendo (Marcos, 11/11/2026)
+"Pasta salgada / mistura salgada / The Salty Paste" **não é o core nem o nome do truque**: é o apelo visual e sensorial que explica o ritual. **O nome do truque é The Stallion Soda Ritual.** Na copy: "chamam de Stallion Soda Ritual; é uma pasta salgada, uma mistura de bicarbonato, sal celta e..." Vale pras 3 leads e pro corpo.
