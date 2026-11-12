@@ -1,4 +1,4 @@
-# VSL 3 — Emotional (o caso do Don Frye) — v2.1 PT, registro BLACK
+# VSL 3 — Emotional (o caso do Don Frye) — v2.2 PT, registro BLACK
 
 > Molde: Soda Horse blocos 5–7 (Kevin no rancho: "você me ligou" → "nunca contei pra ninguém" → não desabou de uma vez → as costas, o celular, o lençol, "hoje não" → o marido presente → o vizinho → a cena → "o que ele tinha que eu não tenho mais?"; bloco 6: o outro lado, "não foi o coração dela que esfriou"; bloco 7: "guarda esse detalhe", o rancho e a suspeita do tamanho), com os 12 eventos do Frye (`01_Ideias/11_Emocional...md`, seção final) e os pontos H–W (`16_Pontos_Logicos_VSL3.md`, 1B). Função a função, outra escrita. Continua de onde o Background parou ("E você vai ouvir da boca dele").
 > Decisões tomadas na escrita (a confirmar): (1) a ex sem nome e com duas falas curtas só ("tudo bem, Don, a gente tenta outro dia" e a frase que ela deu ao Dana por telefone); (2) a frase "esse aqui tem um pau que funciona" na boca de uma amiga dela, na festa; (3) a festa é a de fim de temporada no rancho dele; (4) o outro homem é "um cara de 40 que eu nunca tinha visto"; (5) sem câmera escondida (a cena da festa faz o papel); (6) Randy e Coleman entram em 30 s cada, narrados pelo Dana, sem novo depoimento; (7) o bloco fecha com as 2 perguntas e o detalhe do cocho, e entrega pro Dr. Drew na Discovery.
@@ -13,6 +13,7 @@
 > v1.9 (12/11): a cena do celeiro enxugada pro tamanho da versão do Marcos (≈150 palavras), mantendo a sinestesia (a pasta com a mão, o cheiro de feno, a fivela, cabo de pá, duas mãos, de quatro, o alto-falante, o grito, esguichar e inundar o feno).
 > v2 (12/11): entra o lado dela (Soda Horse bloco 6, a Christine), função a função: Dana 'ainda não sei, mas juro' → 'toda história tem dois lados' → 'fui atrás dela, conversamos por horas, me deixou gravar um trecho' → 'não é só sobre o Don; metade dos casamentos morre em silêncio no quarto; pode ser o seu' → ela: 'eu amava, mas amor não faz uma mulher gozar' → '5 anos de carne morta; gozar sozinha no chuveiro mordendo a toalha' → 'pro mundo o cowboy, no quarto um pau morto' → o volume na calça, a cabeça imaginando → 'me preencheu por completo, cada polegada, esguichar como desde os 25' → 'duro feito pedra por duas horas sem amolecer' → 'voltei na semana seguinte, viciada, dentro do rancho que meu marido construiu' → 'não era dinheiro, não era fama, era a única coisa que ele não me dava mais' → 'parou de funcionar; cansei de fingir' → Dana: o divórcio, 'o cowboy de verdade com garanhão na frente dele a vida inteira e foi o de fora que enxergou' → 'não foi o coração dela que esfriou' → 'cada polegada: não era só dureza, era tamanho' → 'comecei a suspeitar'. Ela fica SEM NOME, tag [A ex-mulher do Don]; sugestão de produção: atriz/rosto borrado, como a Christine da Soda Horse é IA.
 > v2.1 (12/11): o lado dela enxuto (≈ 420 → 330 palavras), mesmas funções.
+> v2.2 (12/11): o lado dela remodelado função a função no bloco da Noor da VSL 2 (nosso controle), não mais na Christine: 'ainda não sei, mas juro' → [escritório] 'dois lados, fui atrás, gravei um trecho, não é só sobre o Don' → Kinsey (2 em 3) sobe pra cá → [na sala] 'você ainda amava ele?' → 'promete que não vai julgar; amor não faz gozar' → 'Meu Deus, 45 anos, tesão todo dia; 5 anos de carne morta; chuveiro, toalha' → 'e eu tentei: lingerie, brinquedo, Sedona, o médico: o problema não é você' → 'sempre gostei de homem mais velho, casei com o Don Frye' → 'o volume; molhada antes de encostar; me preencheu, cada polegada' → 'esguichar desde os 25; duas horas, duro feito pedra, nem no auge' → 'no feno, contra a parede, na bancada; implorar pra parar, pernas tremendo; gozou e não amoleceu; pronto de novo' → 'fiz ele voltar; viciada no pau de um homem de 40, no rancho do Don, com o dinheiro do Don; não era dinheiro, não era fama' → [na sala] 'você perguntou o que ele tomava?' → 'Viagra ou testosterona? riu; só uma pasta que aprendeu com um tratador de garanhão em Kentucky, pó com o sal do cocho, embaixo da língua; o Don tinha aquilo no celeiro sem saber' → 'parou de funcionar; cansei de fingir' → Dana: a guarda, o divórcio → 'guarda esse detalhe: o tratador, Kentucky' → 'calafrio: parou de funcionar; não foi o coração dela' → 'cada polegada: tamanho' → a suspeita do encolhimento, 'milímetro por milímetro' → a parte mais cruel (o cowboy de verdade e o cocho) → as ligações → 'pensa no que está fazendo com você' (Kinsey saiu daqui) → as 2 perguntas (tecido/tamanho; o que tirou dos garanhões de Kentucky que estava no cocho do Don).
 > Tamanho-alvo: Soda Horse blocos 5–7 ≈ 1.100 palavras + as ligações ≈ 1.300.
 
 ---
@@ -99,24 +100,62 @@ Nem uma. Eu saí do hospital e fui direto olhar os cavalos. Eles iam cobrir de m
 
 [Dana White]
 
-Eu ainda não sabia, Don. Mas jurei ali, na varanda, que ia descobrir. Só que toda história tem dois lados, então eu fui atrás da ex-mulher dele. Ela não quis o nome no vídeo, mas me deixou gravar um trecho. Presta atenção, porque isso não é só sobre o Don Frye. Metade dos casamentos deste país não morre numa briga. Morre assim, em silêncio, dentro do quarto. Pode ser o seu.
+Eu ainda não sei, Don. Mas eu juro que vou descobrir.
+
+[Dana White, no escritório]
+
+Só que toda história tem dois lados, e estava me faltando o dela. Eu fui atrás da ex-mulher do Don. Ela não quis o nome no vídeo, mas a gente conversou por horas e ela me deixou gravar um trecho. Presta atenção, porque isso não é só sobre o Don.
+
+Metade dos casamentos deste país acaba, e a maioria não morre numa briga. Morre assim. Em silêncio. Dentro do quarto. O próximo pode ser o seu. Segundo o Instituto Kinsey, 2 em cada 3 mulheres americanas casadas com homens com disfunção erétil já traíram ou estão pensando nisso.
+
+[Dana White, na sala com a ex-mulher do Don]
+
+Você ainda amava ele?
 
 [A ex-mulher do Don]
 
-Eu amava o Don, de verdade. Vinte anos, duas filhas. Mas amor não faz uma mulher gozar. Por 5 anos, o que ficava entre as pernas do homem mais durão do MMA não passava de carne morta, e eu ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir. Pro mundo, ele era o cowboy, o herói americano. No quarto, era um homem com um pau morto e uma garrafa na cabeceira.
+Promete que não vai me julgar? Eu amava o Don. De verdade. Vinte anos, duas filhas, eu conheci esse homem antes de ele ser o Predador. Mas amor não faz uma mulher gozar.
 
-Aí aquele cara apareceu na festa, e desde que eu vi o volume na calça dele a minha cabeça começou a imaginar coisas que não imaginava há anos. E quando aconteceu, no celeiro, ele me preencheu por completo, cada polegada, e me fez esguichar como eu não esguichava desde os 25. Duro feito pedra por duas horas sem amolecer, do jeito que o Don não fazia nem no auge. Eu voltei na semana seguinte, e na outra. Fiquei viciada naquele homem, dentro do rancho que o meu marido construiu.
+Meu Deus. Eu tinha 45 anos e ainda acordava com tesão todo dia. E por 5 anos, o que ficava entre as pernas do homem mais durão do MMA era carne morta. Eu deitava do lado dele e ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
 
-Não era dinheiro, o Don tinha mais. Não era fama, ele era o Don Frye, pelo amor de Deus. Era a única coisa que o meu marido não conseguia mais me dar. E não é que ele tenha parado de tentar. É como se alguma coisa dentro dele tivesse parado de funcionar. E eu cansei de fingir.
+E eu tentei. Lingerie nova. Brinquedo. Uma viagem só nós dois pra Sedona. Fui num médico pra saber se o problema era eu. Ele riu e disse: o problema não é você. Aí aquele cara apareceu na festa, e eu nem sei te explicar. Eu sempre gostei de homem mais velho, eu casei com o Don Frye.
+
+Mas desde o dia em que eu vi o volume na calça dele, a minha cabeça começou a imaginar coisas que não imaginava há anos. Eu me pegava olhando pra frente da calça dele no meio da festa, molhada antes de ele encostar em mim. E quando aconteceu, no celeiro, ele me preencheu por completo. Cada polegada.
+
+E me fez esguichar como eu não esguichava desde os 25. E não foi só uma vez. Aquele homem me fodeu por duas horas, duro feito pedra, do jeito que o Don nunca fez, nem no auge dele.
+
+No feno. Contra a parede do celeiro. Em cima da bancada da ração. Eu gozei até implorar pra ele parar, com as pernas tremendo tanto que eu não conseguia ficar em pé. E quando ele gozou, não amoleceu.
+
+Estava pronto pra ir de novo.
+
+Eu fiz ele voltar na semana seguinte. E na outra. Calculando pra quando o Don viajava pra evento. Eu fiquei viciada no pau daquele homem de 40 anos, dentro do rancho que o Don construiu, com o dinheiro do Don. Não era dinheiro, o Don tinha mais. Não era fama, ele é o Don Frye. Era a única coisa que ele não conseguia mais me dar.
+
+[Dana White, na sala com a ex-mulher do Don]
+
+Você perguntou o que ele tomava?
+
+[A ex-mulher do Don]
+
+Perguntei. Perguntei se era Viagra ou testosterona pra aguentar uma mulher de 45 com fogo daquele jeito, e ele riu na minha cara.
+
+Disse que não tomava nada, só uma pasta que aprendeu com um tratador de garanhão em Kentucky, um pó com o sal do cocho, embaixo da língua, e que o Don tinha aquilo tudo no celeiro dele sem saber. E não é que o Don tenha parado de tentar. É como se alguma coisa dentro dele simplesmente tivesse parado de funcionar, e eu cansei de fingir.
 
 [Dana White]
 
-O divórcio despedaçou 20 anos de família, as meninas no fogo cruzado, o jornal. E a parte mais cruel: o Don era o cowboy de verdade, com garanhão na frente dele a vida inteira, e foi o de fora que enxergou no cocho dele o que o Don nunca enxergou. Mas o que me deu calafrio foi a frase que ela repetia: parou de funcionar. Porque não foi o coração dela que esfriou. Foi o pau dele que morreu por dentro. E uma palavra ficou martelando na minha cabeça. Cada polegada. O que aquele lutador tinha não era só dureza, era tamanho. E foi aí que eu comecei a suspeitar de uma coisa que, se fosse verdade, mudava tudo.
+Ela pediu a guarda das meninas e foi embora. O divórcio despedaçou 20 anos de família, com as filhas no fogo cruzado e o nome do Don no jornal.
 
-E tem um detalhe daquela tarde que eu só fui entender muito depois. Guarda esse detalhe. Enquanto o Don falava, o tratador dele passou pelo cocho trocando o bloco de sal dos garanhões, o mesmo sal que o lutador tinha misturado naquela pasta no celeiro, a mesma rotina de 20 anos, e o Don nem olhou. Não ligou uma coisa à outra. Eu também não, naquele dia. Lembra disso daqui a alguns minutos.
+Agora guarda esse detalhe: o tratador de garanhão, Kentucky. Naquele dia eu nem prestei atenção, mas foi dos cavalos que aquele lutador tirou o segredo que roubou a mulher do Don Frye.
+
+Mas o que me deu calafrio foi a frase que ela repetia: é como se alguma coisa dentro dele simplesmente tivesse parado de funcionar. Não foi o coração dela que esfriou, foi o pau dele que morreu por dentro. Ela nunca parou de querer o Don. O pau do Don é que parou.
+
+E uma palavra ficou martelando na minha cabeça: cada polegada. O que aquele lutador tinha não era só dureza, era tamanho.
+
+Foi aí que eu suspeitei de uma coisa que, se fosse verdade, mudava tudo: e se esse veneno silencioso não estivesse só derrubando o pau dos homens, mas encolhendo, roubando as polegadas que sempre foram deles? Guarda essa suspeita, porque daqui a pouco eu vou provar, milímetro por milímetro.
+
+E a parte mais cruel de todas: o Don era o cowboy de verdade. Enquanto ele me contava tudo isso na varanda, o tratador dele passou pelo cocho trocando o bloco de sal dos garanhões, o mesmo sal que o lutador tinha misturado naquela pasta no celeiro, a mesma rotina de 20 anos, e o Don nem olhou. Não ligou uma coisa à outra. Eu também não, naquele dia. Foi o de fora que enxergou no cocho dele o que o Don nunca enxergou.
 
 Na semana seguinte o meu telefone tocou de novo. Randy Couture, o homem que me processou e ficou 10 anos sem falar comigo, ligando pra dizer que precisava de um médico e não era do joelho. Depois o Mark Coleman, o primeiro campeão peso-pesado da história, dizendo que o martelo estava mole há 4 anos. Depois mais 3, mais 5, mais 10. A velha guarda inteira, um por um, me contando a mesma história do Don com outro sotaque.
 
-E se isso derrubou o Don Frye, o Randy, o Coleman, com todo o dinheiro e todos os médicos que eu posso pagar, pensa no que está fazendo com você, calado, dentro da sua casa. O Instituto Kinsey mediu: 2 em cada 3 esposas de homens com esse problema já traíram ou já pensaram nisso. Esses casamentos não morrem numa briga. Morrem em silêncio, dentro do quarto. O próximo pode ser o seu.
+E se isso derrubou o Don Frye, o Randy, o Coleman, com todo o dinheiro e todos os médicos que eu posso pagar, pensa no que está fazendo com você, calado, dentro da sua casa, com a sua mulher mordendo a toalha no chuveiro.
 
-Eu saí daquele rancho com duas perguntas e um detalhe. A primeira: o que mata o pau de um homem por dentro, sem ser idade, sem ser estresse, sem ser testosterona, se o homem mais testosterona deste país estava com o pau morto? A segunda: o que aquele lutador de 40 misturou com o sal dos garanhões do Don antes de deitar a mulher dele no feno? E o detalhe: o cocho, o bloco de sal, a pasta. Foi com essas duas perguntas na cabeça que eu fui atrás do único médico neste país que passou 30 anos ouvindo homem americano falar do próprio pau sem mentir.
+Eu saí daquele rancho com duas perguntas martelando na cabeça. A primeira: o que mata o tecido do pau de um homem por dentro, em silêncio, até travar a ereção e roubar o tamanho, se não é idade, não é estresse e não é testosterona, porque o homem mais testosterona deste país estava com o pau morto? A segunda: o que aquele lutador de 40 tirou dos garanhões de Kentucky, e que estava no cocho do Don o tempo inteiro? Foi com essas duas perguntas na cabeça que eu fui atrás do único médico neste país que passou 30 anos ouvindo homem americano falar do próprio pau sem mentir.
