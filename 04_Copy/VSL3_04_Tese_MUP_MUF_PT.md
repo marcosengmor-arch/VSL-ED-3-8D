@@ -92,4 +92,4 @@ Porque existe um ponto sem volta: 70% da esponja virada em tijolo. Depois disso,
 
 Mas aqui está a boa notícia. Enquanto a lama ainda está molhada, ela solta. Barro seco há 10 anos vira tijolo pra sempre. Mas o que ainda está secando dentro de você agora pode ser dissolvido, e a sua ainda está secando, porque você ainda acorda com alguma coisa de vez em quando. A janela está aberta. Você só não sabe por quanto tempo. E por 30 anos, ninguém sabia como fazer essa lama soltar.
 
-Até eu pegar aquele avião pra Lexington, Kentucky, e ficar 4 dias parado na frente de um cocho. Porque o que eu vi ali, nenhum laboratório deste país tinha visto. Pensa comigo.
+Até eu seguir a pista da ex-mulher do Don e pegar aquele avião pra Lexington, Kentucky, o lugar com os garanhões mais caros do planeta. Eu fui pra ver um tratador, e passei 4 dias no haras, de manhã até a noite, parado na frente de um cocho, anotando o que entrava nele e o que o garanhão fazia depois. Porque a única esponja no mundo que come esse veneno todo dia e nunca vira lama estava ali, a 2 metros de mim, e nenhum laboratório deste país tinha olhado pra ela. Pensa comigo.
