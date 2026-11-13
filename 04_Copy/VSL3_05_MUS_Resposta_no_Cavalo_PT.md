@@ -1,4 +1,4 @@
-# VSL 3 — MUS: a resposta no cavalo e os 4 verbos — v1.6 PT, registro BLACK
+# VSL 3 — MUS: a resposta no cavalo e os 4 verbos — v1.7 PT, registro BLACK
 
 > Molde: Soda Horse blocos 14–17 (`00_base/vsls_referencia/soda_horse/SODA-HORSE_PT.txt`): "pensa comigo: o cavalo come o mesmo Roundup, 15 kg por dia, devia ser o mais impotente, é o oposto; cavalo não cimenta, não é genética; se um corpo come o veneno e não endurece, ele sabe dissolver" → os criadores, o veterinário de 18 anos, o pó que não está em rótulo, passado de mão em mão → "o pó sozinho não basta: o cavalo faz 4 coisas, na ordem; o corpo dele faz sozinho, o seu não; a preparação certa faz por você" → 4, não 3, não 5; sozinho 10%, tira uma e volta em 3 meses → DISSOLVER (bicarbonato; "eu tenho na cozinha"; puro só arrota; preparado quebra o depósito; urina escura, mija o cimento; sangue inunda, mais pesado, mais quente; stamina do garanhão) → RECONSTRUIR (colágeno de Percheron; não bovino nem marinho; esponja nova; semana 1 peso e matinal, semana 2 régua, 30 dias 3–4 polegadas; ela congela 3 s; o volume na calça; voluntário de 62; Lexington, proibido cru; régua e ressonância) → PROTEGER (amanhã mais veneno; 6 meses refaz metade; Pycnogenol, escudo; Johns Hopkins 92%, 15→27; óxido nítrico, sob comando) → REATIVAR (Tongkat) → os 4 verbos e a linha do tempo. Função a função, outra escrita, sem alongar.
 > O que troca pra nossa VSL: cimento → **lama cavernosa** (lama → barro → tijolo; a urina escura é "cor de barro, a lama saindo"); o bloco 14 fica mais curto porque o Dana já contou o mundo dos garanhões (valor, 200 éguas, 300 mil) na Discovery; o 4º verbo (Tongkat/REATIVAR) sai e entra o 2º, **HIDRATAR/REATIVAR = sal celta** (a esponja seca pela lama volta a beber; 84 minerais; magnésio/potássio/zinco/boro acordam o sinal sem TRT), de modo que os 4 verbos ficam **dissolver → hidratar → reconstruir → proteger**; a sinestesia do ritual (arquivo 22: arde/espuma/água em 30 s, mão fechada 13 s esquenta, veia do braço em 20 min, dia 4 acorda duro) entra nos verbos 1 e 2 como prova sentida; a cópia dos atores pornôs = "1 dos 4, cru, no copo d'água" (ponto O); D4 (o Exército estudou o tamponamento) e o "milkshake" do turfe proibido entram no verbo 1 como lastro narrativo; o nome do ritual é **Stallion Soda Ritual** e a explicação visual é "a pasta salgada". Regras de ad: nunca "truque" junto de "bicarbonato"; nenhuma caixa de marca.
@@ -9,6 +9,7 @@
 > v1.5 (13/11): são 4 verbos, sem 'reativar' como passo: o sal HIDRATA e, de bônus, 'acorda o sinal' (mesmo tratamento que a Soda Horse dá ao bônus do Pycnogenol). Título do verbo 2 só 'HIDRATAR'; 'reativa' virou 'acorda'; a copy diz na cara: 'isso não é um quinto passo, é o bônus do segundo'.
 > v1.6 (13/11): entra a demonstração no laboratório, modelada frase a frase no bloco da HoneyFil (Elon: 'mesmo depois de ver os testes, antes de colocar uma gota no meu corpo, precisava ver na minha frente' → 'amostra viva da placa' → 'recipiente com o composto puro que o mel libera: icariina' → 'recipiente com as toxinas' → 'veja: eliminadas na hora' → 'e não só isso: blindado; veja quando tentam depositar de novo: na hora' → 'é assim que os vasos ficam limpos' → 'depois do teste eu já estava convencido'). Aqui: o Dana é o cético (o papel do Elon) e o Dr. Drew faz a demonstração (o bicarbonato ativado pelo sal x o bloco de lama; o escudo x o glifosato novo). Fecha com 'deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem', que abre o Product Build Up.
 > v1.6b (13/11): o laboratório da demonstração é o Gluck Equine Research Center (Universidade de Kentucky, Lexington), referência real em tendão, matriz extracelular e colágeno equino; a copy diz que o Dr. Drew testa lá. Nota: é instituição real nomeada como cenário de um teste que não aconteceu (risco maior do que citar um estudo); decisão do Marcos.
+> v1.7 (13/11): a demonstração ganha o formato com relógio (molde: a placa pineal, 'deixamos em solução salina por 3 semanas e nada mudou' → os 4 ingredientes na proporção → 0:00 bordas reagindo, 2:00 camada de fora, 5:00 fragmentando, 10:00 nada sobrou → o tecido limpo recebe veneno novo: não gruda, escorre, película, 'escudo'). Aqui: lama cavernosa de corpo cavernoso; água com sal por 3 semanas não mexeu (prova que um ingrediente só não basta); os 4 na proporção do cocho; o bicarbonato espuma nas bordas; aos 10 min o tecido por baixo escurece e enche (o sal); glifosato novo escorre (Pycnogenol).
 > Tamanho-alvo: Soda Horse 14–17 ≈ 1.900 palavras; nossa meta ≤ 1.900 mesmo com o verbo 2 (o bloco 14 encurta).
 
 ---
@@ -111,7 +112,25 @@ Em dias, não meses. E eu sei exatamente como isso soa: bom demais pra ser verda
 
 Eu estou no Gluck Equine Research Center, da Universidade de Kentucky, o centro mais avançado do mundo em tendão e colágeno de cavalo, o laboratório que os donos dos garanhões de 30 milhões pagam pra manter o tendão deles vivo. E vou testar essa fórmula na sua frente, contra a mesma lama que está secando a sua esponja agora.
 
-Neste recipiente, o líquido transparente é o composto puro que a pasta salgada libera na sua boca: o bicarbonato ativado pelo sal. Neste outro, o bloco escuro é uma amostra viva de lama cavernosa, o barro de Roundup tirado de tecido humano. Olha o que acontece quando um encontra o outro. Espuma, racha e desmancha. Na hora. E não é só isso: depois que o composto entra no tecido, a esponja fica blindada contra lama nova. Olha o que acontece quando o mesmo glifosato tenta assentar de novo. Na hora. O escudo neutraliza tudo. É assim que a sua esponja fica limpa, e o seu pau fica duro.
+O que você está vendo é um bloco de lama cavernosa retirado de tecido do corpo cavernoso. É isso que o glifosato faz com a esponja ao longo dos anos. É duro, em camadas, e em condições normais não sai. Deixamos em água com sal por três semanas e nada mudou.
+
+[MONITOR: "LAMA CAVERNOSA · DIA 21"]
+
+Agora, preparamos uma pequena quantidade dos quatro ingredientes combinados. Bicarbonato, sal celta, colágeno de garanhão e Pycnogenol, na mesma proporção que o tratador de Lexington usa no cocho. Observe o que acontece quando entram em contato com a lama.
+
+["0:00"] Quase imediatamente, a superfície começa a reagir. Está vendo as bordas espumando? É o bicarbonato. Ele está quebrando a ligação entre o glifosato e o colágeno.
+
+["2:00"] Dois minutos, e a camada de fora está se desfazendo.
+
+["5:00"] Cinco minutos. O bloco está rachando. O que levou 30 anos pra secar está desmanchando na nossa frente.
+
+["10:00"] E aos dez minutos, não sobrou barro no tecido. Nenhum resíduo. E repara na esponja por baixo: ela escureceu, encheu. É o sal puxando água de volta pra dentro dela.
+
+Agora a parte que me surpreendeu. Pegamos esse mesmo tecido limpo e pingamos glifosato novo em cima.
+
+["GLIFOSATO · DEPOIS DO TRATAMENTO"]
+
+Ele não gruda. Escorre. O Pycnogenol deixou uma película na superfície, e o glifosato não consegue atravessar. Eu não tenho uma palavra melhor pra isso do que escudo.
 
 [Dana White]
 
