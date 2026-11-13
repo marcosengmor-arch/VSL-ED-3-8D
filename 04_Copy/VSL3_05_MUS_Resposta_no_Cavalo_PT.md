@@ -1,4 +1,4 @@
-# VSL 3 — MUS: a resposta no cavalo e os 4 verbos — v1.5 PT, registro BLACK
+# VSL 3 — MUS: a resposta no cavalo e os 4 verbos — v1.6 PT, registro BLACK
 
 > Molde: Soda Horse blocos 14–17 (`00_base/vsls_referencia/soda_horse/SODA-HORSE_PT.txt`): "pensa comigo: o cavalo come o mesmo Roundup, 15 kg por dia, devia ser o mais impotente, é o oposto; cavalo não cimenta, não é genética; se um corpo come o veneno e não endurece, ele sabe dissolver" → os criadores, o veterinário de 18 anos, o pó que não está em rótulo, passado de mão em mão → "o pó sozinho não basta: o cavalo faz 4 coisas, na ordem; o corpo dele faz sozinho, o seu não; a preparação certa faz por você" → 4, não 3, não 5; sozinho 10%, tira uma e volta em 3 meses → DISSOLVER (bicarbonato; "eu tenho na cozinha"; puro só arrota; preparado quebra o depósito; urina escura, mija o cimento; sangue inunda, mais pesado, mais quente; stamina do garanhão) → RECONSTRUIR (colágeno de Percheron; não bovino nem marinho; esponja nova; semana 1 peso e matinal, semana 2 régua, 30 dias 3–4 polegadas; ela congela 3 s; o volume na calça; voluntário de 62; Lexington, proibido cru; régua e ressonância) → PROTEGER (amanhã mais veneno; 6 meses refaz metade; Pycnogenol, escudo; Johns Hopkins 92%, 15→27; óxido nítrico, sob comando) → REATIVAR (Tongkat) → os 4 verbos e a linha do tempo. Função a função, outra escrita, sem alongar.
 > O que troca pra nossa VSL: cimento → **lama cavernosa** (lama → barro → tijolo; a urina escura é "cor de barro, a lama saindo"); o bloco 14 fica mais curto porque o Dana já contou o mundo dos garanhões (valor, 200 éguas, 300 mil) na Discovery; o 4º verbo (Tongkat/REATIVAR) sai e entra o 2º, **HIDRATAR/REATIVAR = sal celta** (a esponja seca pela lama volta a beber; 84 minerais; magnésio/potássio/zinco/boro acordam o sinal sem TRT), de modo que os 4 verbos ficam **dissolver → hidratar → reconstruir → proteger**; a sinestesia do ritual (arquivo 22: arde/espuma/água em 30 s, mão fechada 13 s esquenta, veia do braço em 20 min, dia 4 acorda duro) entra nos verbos 1 e 2 como prova sentida; a cópia dos atores pornôs = "1 dos 4, cru, no copo d'água" (ponto O); D4 (o Exército estudou o tamponamento) e o "milkshake" do turfe proibido entram no verbo 1 como lastro narrativo; o nome do ritual é **Stallion Soda Ritual** e a explicação visual é "a pasta salgada". Regras de ad: nunca "truque" junto de "bicarbonato"; nenhuma caixa de marca.
@@ -7,6 +7,7 @@
 > v1.3 (13/11): bloco 14 na versão do Marcos revisada: idade 25 em tudo, 300 mil por cobertura (igual à Discovery), vocabulário lama/barro/tijolo (sem 'pedrificar'/'crosta'), o valor do garanhão em 2 frases apontando pro Dana, tratador + veterinário, concordâncias. O 'Pensa comigo' fecha a Tese (arquivo 04) e este bloco começa direto no garanhão.
 > v1.4 (13/11): cada verbo com benefício sexual próprio e sem sobreposição: DISSOLVER = quente, pesado, veias, a noite inteira; HIDRATAR = o tempo (esponja que segura água segura sangue: a noite inteira, rodada após rodada; saiu do soda) e o tanque (porra é 90% água: mais grosso, mais volume, jato forte); reativar (dentro do sal) = desejo e iniciativa; RECONSTRUIR = grossura e comprimento; PROTEGER = sob comando.
 > v1.5 (13/11): são 4 verbos, sem 'reativar' como passo: o sal HIDRATA e, de bônus, 'acorda o sinal' (mesmo tratamento que a Soda Horse dá ao bônus do Pycnogenol). Título do verbo 2 só 'HIDRATAR'; 'reativa' virou 'acorda'; a copy diz na cara: 'isso não é um quinto passo, é o bônus do segundo'.
+> v1.6 (13/11): entra a demonstração no laboratório, modelada frase a frase no bloco da HoneyFil (Elon: 'mesmo depois de ver os testes, antes de colocar uma gota no meu corpo, precisava ver na minha frente' → 'amostra viva da placa' → 'recipiente com o composto puro que o mel libera: icariina' → 'recipiente com as toxinas' → 'veja: eliminadas na hora' → 'e não só isso: blindado; veja quando tentam depositar de novo: na hora' → 'é assim que os vasos ficam limpos' → 'depois do teste eu já estava convencido'). Aqui: o Dana é o cético (o papel do Elon) e o Dr. Drew faz a demonstração (o bicarbonato ativado pelo sal x o bloco de lama; o escudo x o glifosato novo). Fecha com 'deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem', que abre o Product Build Up.
 > Tamanho-alvo: Soda Horse 14–17 ≈ 1.900 palavras; nossa meta ≤ 1.900 mesmo com o verbo 2 (o bloco 14 encurta).
 
 ---
@@ -101,4 +102,18 @@ No dia 14, sem Viagra, sem esperar 40 minutos, sem hora certa, ela passa a mão 
 
 No dia 21 o crescimento já dá pra medir com régua. E no dia 30 a esponja está de volta à vida, com as polegadas que a lama roubou de volta no seu corpo, e ela de bruços, travesseiro na boca, pedindo pra parar e puxando você pra dentro ao mesmo tempo.
 
-Em dias, não meses. E eu sei exatamente como isso soa: bom demais pra ser verdade. É justamente por isso que eu não vou te pedir pra acreditar em mim.
+Em dias, não meses. E eu sei exatamente como isso soa: bom demais pra ser verdade. É justamente por isso que eu não vou te pedir pra acreditar em mim. Eu vou te provar, ao vivo.
+
+## Demonstração no laboratório
+
+[Dana White]
+
+Mas mesmo depois dos 4 dias no cocho de Lexington e dos 300 exames na mesa, antes de colocar uma única pitada disso na minha boca, eu ainda precisava ver funcionando na minha frente. Então o Dr. Drew pegou uma amostra viva da exata lama cavernosa que está secando a esponja de milhões de homens americanos agora mesmo.
+
+[Dr. Drew Pinsky]
+
+Dentro deste recipiente, com este líquido transparente, temos o composto puro que a pasta salgada libera na sua boca pra desmanchar a lama que trava o seu pau: o bicarbonato ativado pelo sal. E aqui neste recipiente, temos um bloco escuro que representa a lama cavernosa. O mesmo barro de Roundup que está secando a sua esponja agora, enquanto você assiste. Veja o que acontece quando o composto entra em contato com a lama. Ela espuma, racha e desmancha. Na hora. E não só isso: depois que esse composto entra no seu corpo, a esponja fica praticamente blindada contra lama nova. Veja o que acontece quando o mesmo glifosato tenta assentar de novo. Na hora. O escudo já presente no tecido neutraliza tudo. É assim que a sua esponja fica limpa, e o seu pau fica duro.
+
+[Dana White]
+
+Depois do teste de laboratório, eu já estava convencido. Deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem.
