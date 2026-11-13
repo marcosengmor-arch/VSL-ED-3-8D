@@ -66,13 +66,13 @@ Eu vi essa veia voltar em 700 lutadores. Nunca pensei que fosse a mesma coisa qu
 
 [Dr. Drew Pinsky]
 
-Mas uma esponja limpa e molhada ainda é uma esponja cheia de furos.
+Mas hidratar é só o segundo passo. Sozinhos, o bicarbonato e o sal não te devolvem o tamanho. Porque mesmo sem lama e com a esponja molhada, ela ainda está vazia. Cheia de furos. Fraca. Aquele veneno passou 30 anos comendo o colágeno elástico dela. Se parar aqui, você fica duro, mas sem tamanho.
 
 ## Verbo 3: RECONSTRUIR
 
 [Dr. Drew Pinsky]
 
-Porque o veneno passou 30 anos comendo o colágeno elástico dela, e o que sobra é uma esponja mole, solta, sem sustentação. Se você parar aqui, você fica duro, mas mole e sem tamanho. Por isso a terceira coisa: reconstruir. E só existe um material. Colágeno hidrolisado de garanhão Percheron, o mesmo que impede o cavalo de virar lama. Mas não me venha com colágeno de potinho. Não é bovino, não é marinho, não é o da farmácia: o ácido do seu estômago destrói esses antes de serem absorvidos, e a única coisa que cresce é o lucro do laboratório. Só o colágeno de tendão de garanhão passa dessa barreira e põe a esponja a fabricar fibra nova.
+Por isso a terceira coisa: reconstruir. E só existe um material. Colágeno hidrolisado de garanhão Percheron, o mesmo que impede o cavalo de virar lama. Mas não me venha com colágeno de potinho. Não é bovino, não é marinho, não é o da farmácia: o ácido do seu estômago destrói esses antes de serem absorvidos, e a única coisa que cresce é o lucro do laboratório. Só o colágeno de tendão de garanhão passa dessa barreira e põe a esponja a fabricar fibra nova.
 
 E quando ele chega, vira matéria-prima nova pra sua esponja. Colágeno tipo 3 fresco, mais elástico do que o seu era aos 25. Aí a esponja começa a inchar de novo, e é aqui que acontece o que você jurou ser impossível. Com a lama fora, a esponja molhada e reconstruída, ele finalmente cresce até o tamanho que devia ter alcançado lá atrás. O tamanho que a lama roubou de você desde a adolescência. Isso não é aumento artificial. É você tomando de volta cada polegada que roubaram de você. E mais um pouco.
 
