@@ -116,7 +116,7 @@ Com todo esse apoio, tecnologia de ponta e 3 meses de trabalho do Dr. Drew ao la
 
 [Dr. Drew Pinsky]
 
-Antes, abrimos um trial duplo-cego com 3.000 homens, registrado no clinicaltrials.gov, protocolo NCT06182394, validado pela Universidade de Kentucky e pelo UFC Performance Institute. Em agosto recebi a primeira planilha: 94% de reversão funcional mensurável, e 97% relataram ereção espontânea ao acordar entre o 4º e o 14º dia. Um voluntário gravou anonimamente, 5 dias de protocolo, pau 2,5 polegadas maior, tudo confirmado cientificamente.
+Antes, abrimos um trial duplo-cego com 3.000 homens: homens comuns, militares aposentados, policiais, pastores, caminhoneiros, fazendeiros e lendas aposentadas do UFC, de 35 a 70 anos, registrado no clinicaltrials.gov, protocolo NCT06182394, validado pela Universidade de Kentucky e pelo UFC Performance Institute. Em agosto recebi a primeira planilha: 94% de reversão funcional mensurável, e 97% relataram ereção espontânea ao acordar entre o 4º e o 14º dia. Um voluntário gravou anonimamente, 5 dias de protocolo, pau 2,5 polegadas maior, tudo confirmado cientificamente.
 
 [Depoimento 04]
 
