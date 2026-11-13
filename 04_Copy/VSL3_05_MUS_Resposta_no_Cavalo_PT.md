@@ -5,7 +5,7 @@
 > v1.1 (13/11): corte de ≈ 20% sem tirar função (bloco 14 sem repetir o valor do garanhão; verbo 1 e 2 enxutos; a régua e a ressonância ficam na promessa do primeiro homem).
 > v1.2 (13/11): bloco 14 na adaptação do Marcos ('pasta salgada' em vez de 'pó'); o parágrafo final deixa de dizer 'o pó sozinho não basta' (os ingredientes ainda não foram citados) e vira 'o que faz a pasta funcionar não é uma coisa só, são 4 ingredientes, 4 verbos'.
 > v1.3 (13/11): bloco 14 na versão do Marcos revisada: idade 25 em tudo, 300 mil por cobertura (igual à Discovery), vocabulário lama/barro/tijolo (sem 'pedrificar'/'crosta'), o valor do garanhão em 2 frases apontando pro Dana, tratador + veterinário, concordâncias. O 'Pensa comigo' fecha a Tese (arquivo 04) e este bloco começa direto no garanhão.
-> v1.4 (13/11): cada verbo com benefício sexual próprio e sem sobreposição: DISSOLVER = quente, pesado, veias, a noite inteira; HIDRATAR = sensação (tecido molhado sente cada toque) e o tanque (porra é 90% água: mais grosso, mais volume, jato forte); reativar (dentro do sal) = desejo e iniciativa; RECONSTRUIR = grossura e comprimento; PROTEGER = sob comando.
+> v1.4 (13/11): cada verbo com benefício sexual próprio e sem sobreposição: DISSOLVER = quente, pesado, veias, a noite inteira; HIDRATAR = o tempo (esponja que segura água segura sangue: a noite inteira, rodada após rodada; saiu do soda) e o tanque (porra é 90% água: mais grosso, mais volume, jato forte); reativar (dentro do sal) = desejo e iniciativa; RECONSTRUIR = grossura e comprimento; PROTEGER = sob comando.
 > Tamanho-alvo: Soda Horse 14–17 ≈ 1.900 palavras; nossa meta ≤ 1.900 mesmo com o verbo 2 (o bloco 14 encurta).
 
 ---
@@ -46,7 +46,7 @@ Você arrota porque o ácido do estômago neutraliza o pó antes de ele chegar a
 
 Olha isso acontecendo. Porque é exatamente isso que começa a acontecer dentro de você logo na primeira semana, e você vai ter a prova na sua própria mão. Nos primeiros dias, a sua urina fica mais escura, cor de barro. Não é doença. É a lama saindo. Você vai literalmente mijar pra fora a lama que travou o seu pau por 30 anos. E você sente antes de ver: a pasta embaixo da língua espuma, arde de leve, e em 30 segundos a sua boca enche de água. Se não arder embaixo da língua, é cópia. Aí você fecha a mão nele por 13 segundos e sente ele esquentar, porque conforme a lama sai, o sangue começa a inundar de volta um lugar que passou anos seco. Rápido assim. O seu pau fica mais pesado na mão, quente de novo, e quando enche, enche até a cabeça, com as veias saltando, duro feito pedra, como não ficava desde os seus 20.
 
-Mas tem um bônus que os tratadores conhecem bem. Esse mesmo pó é o que segura a resistência do garanhão durante a cobertura. Num homem, é a diferença entre gozar e amolecer em 10 minutos, ou continuar duro, rodada após rodada, a noite inteira. Mas dissolver é só o primeiro passo. 30 anos de barro deixaram a esponja seca feito esponja de pia esquecida no sol: dura, encolhida, e esponja seca não enche.
+Mas dissolver é só o primeiro passo. 30 anos de barro deixaram a esponja seca feito esponja de pia esquecida no sol: dura, encolhida, e esponja seca não enche.
 
 ## Verbo 2: HIDRATAR (e reativar)
 
@@ -56,7 +56,7 @@ E esponja seca só volta de um jeito: de molho. Por isso a segunda coisa é hidr
 
 E 20 minutos depois você vê com os olhos. Lembra da pesagem? O lutador desce da balança seco, sem uma veia no braço, e no dia seguinte, reidratado, está com a veia saltada. Olha o seu antebraço agora: a veia que não aparecia está ali. Agora pensa onde mais tem esponja que enche de sangue.
 
-E o sal te dá duas coisas que nenhum outro ingrediente dá. A primeira é a sensação: tecido seco não sente, e por isso você vinha fodendo dormente, como se fosse com o pau de outro. Esponja molhada sente cada toque de novo, a boca dela, a mão dela, cada centímetro entrando. A segunda é o tanque: porra é 90% água, e 30 anos seco te deixaram com três gotas. Hidratado, você goza mais grosso, com mais volume, num jato forte, daquele que ela sente bater lá dentro e nunca esquece.
+E o sal te dá duas coisas que nenhum outro ingrediente dá. A primeira é o tempo: esponja que segura água segura sangue, e é isso que mantém o garanhão em cima da égua por 40 minutos. Em você, é a diferença entre gozar e amolecer em 10 minutos, ou continuar duro, rodada após rodada, a noite inteira. A segunda é o tanque: porra é 90% água, e 30 anos seco te deixaram com três gotas. Hidratado, você goza mais grosso, com mais volume, num jato forte, daquele que ela sente bater lá dentro e nunca esquece.
 
 [Dana White]
 
