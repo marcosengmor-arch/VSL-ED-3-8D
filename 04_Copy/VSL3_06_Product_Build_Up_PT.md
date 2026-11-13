@@ -1,69 +1,139 @@
-# VSL 3 — Product Build Up: o primeiro homem (Don), os voluntários, o produto — v1 PT, registro BLACK
+# VSL 3 — Product Build Up: o primeiro homem (Don), os 117, o governo, o produto — v2 PT, registro BLACK
 
-> Molde: Soda Horse blocos 18–20 (`SODA-HORSE_PT.txt`): "voltei de Lexington sem uma goma, com um pote de pó cru; liguei pro Kevin: não tenho remédio, tenho pó; o cara da câmera, quer ser o primeiro?; 7 da manhã na cozinha; 4 dias depois o telefone às 6" → Kevin: "acabei de acordar... assim lá em 1985" → "no 11º dia fodeu a esposa; já era outro homem" → Kevin: "implorar pra ela voltar? fodi modelos de 30; a Christine perdeu o ícone; esse segredo sempre existiu nas mãos de poucos; eu era esse marido; botei minha cara, nome e dinheiro" → Attia: "um caso não é prova: a ressonância 60 → 28; os 2 garanhões irmãos, cavalo não tem placebo" → a mulher jovem ("esse velho me fode melhor que qualquer um de 25") → bloco 19: "só engolir bicarbonato? 99% falharam; a preparação; Lexington; 14 meses numa goma" → "37 homens de 44 a 76; no 3º dia 30 ligaram" → a mulher das 4 da manhã → (os amigos oferecendo as esposas: SAI, o Dana é casado) → "fechar a clínica ou espalhar" → 14 laboratórios, 7 recusaram, 7 queriam 1.500/mês → David Hartman/Meridian ("29 anos, nunca vi reversão de fibrose"; "não estou aqui pelo dinheiro") → 3 meses numa goma, FDA → "liguei pro Kevin: com você como sócio não morre; capital, nome, sem preço de farmacêutica" → trial 3.000, 94%, 97% ereções espontâneas do 4º ao 14º dia → bloco 20: o nome; "até 3 frascos de graça, já chego nisso"; "primeira e única fórmula clinicamente comprovada que..."; os 4 verbos; fabricado, 100% seguro, sem receita, uma goma de manhã → "não importa quem você é" (diabetes, pressão, coração, próstata, idade, tamanho, métodos); "o Kevin tinha 60% aos 70, funcionou; os 37; os 3.000" → "nenhuma farmacêutica vai te oferecer; homem curado não paga mensalidade" → "ataca na origem; 4 substâncias, 12 rodadas em Lexington, dose exata; menos, o estômago destrói; mais, não quebra" → cada ingrediente e o verbo → "único no mundo; sem genérico por 5 anos, o equipamento só existe em Lexington" → como tomar (jejum, 40% mais absorção, sem ritual de 40 min, em 3 dias te acorda) → fabricado em NJ, estéril, FDA, 100% natural, sem toxina, sem dependência, sem receita.
-> O que troca pra nossa VSL (só o necessário): o primeiro homem é o **Don** (o Dana leva o pote ao rancho; a dose às 7 da manhã no celeiro, na frente do cocho; dia 4 a ligação às 6; **dia 14** a primeira mulher em 10 anos, batendo com a linha do tempo do MUS; ressonância **60 → 38**; 3 meses depois a foto na mesa das lendas com as ring girls); os 2 garanhões irmãos ficam (prova sem placebo); a mulher jovem vira a **ring girl** (opção 1); os **37 voluntários são 37 lendas e veteranos aposentados do UFC**, de 44 a 76; o Dana toma (ponto B: 11 dias, de manhã, sem mulher na cena, "eu era o avatar"); a escolha é do Dana ("dar pras minhas lendas e pronto, ou espalhar"); os laboratórios e o Hartman viram **a ligação pro Bobby Kennedy ("isso é o que o MAHA existe pra fazer") e a fabricação nos EUA sob supervisão federal** (D4/D5, molde Vicks), com o Trump mudo em foto; o trial de 3.000 validado pela Universidade de Kentucky (o Gluck) e pelo UFC Performance Institute; o produto é **Stallion Soda** com os 4 verbos dissolver, hidratar, reconstruir, proteger; "não importa" ganha o coração do Don; como tomar = a goma de manhã em jejum, mordida e deixada 30 segundos embaixo da língua (a pasta se forma na boca: a sinestesia), mão fechada 13 segundos, e pronto. Lama cavernosa no lugar de cimento. Freedom 250 fora (decisão do Marcos no Background). Os pontos I–M do arquivo 16 (produtor de Vegas, Dra. Annika, Dr. Oz, lendas tomando, esposas UGC) ficam pro bloco seguinte (prova social e escassez, Soda Horse 21–22).
-> Tamanho-alvo: Soda Horse 18–20 ≈ 1.700 palavras.
+> Molde (v2): o Product Build Up controle da VSL 2 (`Product_Build_Up_-_goat_honey_rock.docx`, Hyman/Al/Gupta), modelado frase a frase: o pote no bolso → "não tenho remédio, tenho X pra misturar na mão; quer ser o primeiro?" → "o ritual do personal?" "o ritual do bode; o personal só pegou emprestado" → "não quero outra promessa, quero o meu pau de volta" → data, 7 da manhã, a casa → a primeira dose na colher → dia 1 nada, dia 2 nada, dia 4 às 6:15 → "acordei duro, sem mão, grosso, pesado, pulsando contra o lençol, desde 1983" → "no 11º dia não ligou pra Noor, ligou pra outra; pedi pra gravar" → o depoimento da modelo de 28 (congelou 3 s; duas horas; cama, parede, chão; inundei e não amoleci; sentou na minha cara; "nem pelos marmanjos de 30") → dia 21, 2,5 polegadas → "não é prova, sou médico: três coisas": a ressonância (60 → 28, "aquele exame da tese era dele"), a namorada e o teste de gravidez, os 2 bodes irmãos → "só engolir uma colher? 99% falharam; não é o pó sozinho, são os 4; o detalhe primordial: só saem de um lugar" → 14 meses numa goma → os 117 (94 pacientes + 23 indicados), na mão, na cozinha → 3º dia, 100% em 5 dias, 3 a 5 polegadas → Depoimento 01 (Brandon, 55, Lisa chorou, "não sou o Al Pacino, sou um cara comum") → o teste do selo postal (vídeo caseiro, dia 1, 3, 5, 7) → Depoimento 02 (a mulher das 4 da manhã) → Depoimento 03 (os amigos oferecendo as esposas no churrasco) → "98% fodendo mais de uma hora; ninguém parou de beber, fumar, dieta" → a escolha → 14 laboratórios, 7 e 7 → o diretor de P&D ("29 anos, nunca vi reversão; não estou aqui pelo dinheiro") → 3 meses numa goma, FDA → "com você como sócio não morre; capital, nome, sem preço predatório" → trial 3.000, NCT, 94/97 → Depoimento 04 (5 dias, 2,3 polegadas, esguichou na 3ª, 17 anos) → Depoimentos 05 e 06 (tela dividida, o desafio da goma) → "não são exceções; a goma que vou te apresentar agora".
+> O que troca pra nossa VSL (só o necessário): Al → **Don** (o celeiro, 14 de julho, a ring girl de 28, "desde 1996", o 3º filho do Don Frye no teste de gravidez, "nem pelos lutadores de 30"); Noor → a ex (sem nome); o personal → o lutador de 40; o bode → o garanhão; o mel e o pó → a pasta salgada (bicarbonato, sal celta, extrato de tendão, Pycnogenol); cimento → lama cavernosa; dia 11 → **dia 14** (linha do tempo do MUS); Hill Country → Lexington; os 117 = 94 lutadores aposentados da velha guarda do Dana + 23 indicados pelo Don (peões e bombeiros do Arizona); Brandon → **Wade, 58, bombeiro aposentado de Tucson**; **a camada conservadora entra depois dos 14 laboratórios** (molde Vicks/Dr. Phil): o Dana liga pro Presidente Trump e pro Bobby Kennedy; MAHA; orçamento de bilhões; laboratórios certificados pela FDA e pelas BPF com tecnologia militar, os mesmos das Forças Especiais; meses com cientistas militares; e aí **o Dr. Nathan Holloway, diretor de P&D do laboratório federal, liga pro Dana** (o papel do Raymond Kessler/David Hartman); o sócio é o Don; o trial validado pela Universidade de Kentucky e pelo UFC Performance Institute; "o desafio da goma do garanhão". Quem narra: o **Dana** (tudo que ele fez: a ligação, a dose, a escolha, os laboratórios, o governo), com o **Dr. Drew** nas provas (ressonância, os garanhões irmãos, a preparação dos 117, o trial). Trump nunca fala: foto muda.
+> Tamanho-alvo: controle ≈ 1.870 palavras.
 
 ---
 
 ## Product Build Up
 
-### O primeiro homem
-
 [Dana White]
 
-Deixa eu te mostrar o que aconteceu quando eu dei isso pro primeiro homem. O Dr. Drew voltou de Lexington sem uma única goma. Voltou com um pote de vidro no bolso do casaco, o pó e o sal crus e o vidro âmbar, o mesmo segredo do cocho que o lutador tinha preparado no celeiro do Don. Eu liguei pro Don naquela mesma noite e fui direto ao ponto. Eu não tenho remédio, Don. Tenho uma pasta pra misturar na mão, na bancada da ração. O cara da câmera do celeiro, quer ser o primeiro? E ele topou na hora. Disse que, se ia morrer com o pau morto, melhor morrer tentando. Então, às 7 da manhã, no celeiro do rancho, na frente do mesmo cocho que ele passou 20 anos sem olhar, eu preparei a primeira dose e ele botou embaixo da língua ali mesmo, na minha frente. 4 dias depois, o telefone tocou às 6 da manhã.
+O Dr. Drew voltou de Lexington com um pote de vidro no bolso do casaco. O sal cinza do cocho, o bicarbonato preparado, o extrato âmbar do tendão e um saquinho do Pycnogenol.
+
+Eu liguei pro Don naquela noite. "Don, eu não tenho remédio. Tenho uma pasta pra misturar na mão, do jeito que o tratador ensinou. Sem rótulo, sem certificação. Quer ser o primeiro?" "O ritual do lutador?" "O ritual do garanhão. O lutador só pegou emprestado."
+
+Ele disse sim antes de eu terminar. "Dana, eu não quero outra promessa. Quero o meu pau de volta. Agora." Se ia morrer com o pau morto, preferia morrer tentando. 14 de julho, 7 da manhã, no celeiro do rancho dele, na frente do mesmo cocho que ele passou 20 anos sem olhar.
+
+Primeira dose numa colher comum. Bicarbonato, uma pitada do sal celta, o extrato do tendão do garanhão e Pycnogenol, nas proporções corretas. Botou embaixo da língua na minha frente, fez careta com o ardor, a boca encheu de água, engoliu. Dia 1, nada. Dia 2, nada. No dia 4, me ligou às 6:15.
 
 [Don Frye, ao telefone]
 
-Dana, eu acabei de acordar. Sem fantasia, sem mão, sem pílula. Eu acordava assim em 1996, antes do UFC 8. Fazia dez anos que isso não acontecia.
+Dana. Quatro da manhã. Acordei duro. Sem mão. Sem nada. Grosso, pesado, pulsando contra o lençol. Eu não acordava assim desde 1996.
 
 [Dana White]
 
-E não parou aí. No 14º dia, ele levou uma mulher pro quarto e não falhou, pela primeira vez em 10 anos. E o homem que tinha me ligado chorando num sábado já era outro homem.
+E não parou aí. No 14º dia, ele não ligou pra ex. Ligou pra uma ring girl que tinha pedido foto com ele num evento. Primeira vez em dez anos. O homem que tinha me ligado chorando num sábado virou outro. Pedi pra gravar.
 
 [Don Frye]
 
-Implorar pra ela voltar? Que porra eu ia querer de volta? Aos 60, com esse segredo correndo nas veias, o meu pau ficou tão duro que eu fodi uma ring girl de 28 anos até ela pedir pra eu parar. Mulher que aquele lutador de 40 não tocaria nem em sonho. Ela perdeu o Predador. O lutador perdeu o homem que costumava ser homem. Mas o que me deixa furioso é isto: esse segredo sempre existiu, trancado nas mãos de uns poucos escolhidos. Os ricos, os caras com haras, os lutadores de 40 deste mundo que deitam a mulher dos outros no feno enquanto o marido dorme a 30 metros, impotente sem saber por quê. Eu era esse marido. Eu ouvi a minha mulher gozar pra outro homem no meu próprio celeiro, com o meu pau morto na mão. Por isso eu coloquei a minha cara, o meu nome e o meu bigode nisso, pra arrancar essa arma das mãos de poucos e colocar nas mãos de todo homem que foi trocado e deixado impotente como eu.
+Ontem à noite eu fodi uma ring girl safada de 28 anos, metade da idade da minha ex. Primeira vez em dez anos, sem Viagra, sem Cialis, sem relógio. Entrei nela na primeira tentativa, Dana. Ela congelou por três segundos, porque tinha vindo pro rancho de um velho de 60 achando que ia tirar foto com a lenda e cuidar dele. Mas eu que cuidei.
+
+Ela gemia que nem uma atriz pornô em cima do meu pau. Fodi ela por quase duas horas. Na cama, contra a parede, no feno do celeiro, no mesmo lugar. Gozou até implorar pra eu parar, encharcando o lençol.
+
+E quando inundei aquela buceta quente, não amoleci. Aos 60 anos, ela sentou na minha cara e esguichou como as mulheres esguichavam pra mim em 1996. De manhã me disse que nunca tinha sido fodida daquele jeito. Nem pelos lutadores de 30.
 
 [Dr. Drew Pinsky]
 
-Mas um caso não é prova, e eu sou médico antes de qualquer coisa. Então deixa eu te mostrar 2 coisas. A primeira é a ressonância do Don. No dia 1, 60% de lama no tecido. 30 dias depois, 38%. Um terço do dano de 30 anos revertido num único mês. E aí eu fui atrás da prova que não mente: a que não tem efeito placebo. Peguei 2 garanhões irmãos, no haras de Lexington, mesma idade, mesma ração, encharcados de glifosato. Dei a pasta pra um deles. O outro não recebeu nada. 30 dias depois, o que ficou sem tinha virado um destroço: parou de cobrir égua, a crina caindo em tufos, enquanto o que recebeu a pasta estava cobrindo 4 éguas por semana. E um cavalo, meu amigo, não sabe o que é efeito placebo. Ou funciona ou não funciona. E num homem, isso vira isto.
+No 21º dia ele tinha ganhado 2,5 polegadas, medidas em laboratório certificado. Mas isso não é prova, e eu sou médico. Deixa eu te mostrar três coisas. A primeira é a ressonância do Don. Dia 1, 60% de lama. Aquele exame que você viu na tese era dele. 30 dias depois, 28%. Metade do dano de 30 anos revertido num mês. A segunda é a declaração e o teste de gravidez da ring girl de 28 anos.
 
 [Ring girl, 28 anos]
 
-Todo mundo me pergunta o que eu estou fazendo com um cara da idade do meu pai. Aí eu digo: esse velho me fode melhor do que qualquer lutador de 25 com quem eu já saí. Ele fica duro feito pedra a noite inteira e não para até eu implorar pra ele parar. Eu não trocaria ele por ninguém.
+Todo mundo me pergunta o que eu estou fazendo com um homem da idade do meu pai. Que se danem. Fui pro rancho do Don Frye achando que ia tirar uma foto com a lenda e cuidar de um velho: ele tem 60, teve problema no coração, dorme cedo.
 
-### Os 37 e o laboratório
+Na primeira noite ele me colocou de quatro e me fodeu por duas horas. Jesus Cristo. Eu não fui cuidar de ninguém. Fui ser cuidada. Ele acorda toda manhã duro, encostando aquele pau na minha bunda, procurando a minha buceta que já está molhada antes de eu abrir os olhos.
 
-[Dana White]
+E o mais bizarro: semana após semana o pau dele ficou mais grosso e mais comprido. Senti a diferença no maxilar e na buceta, cada vez mais preenchida. Cada polegada. Deus, estou gozando mais de duas vezes por dia, encharcando o lençol até o chão. Os lutadores de 30 que eu namorei não eram nada perto disso.
 
-Aí você me pergunta: então é só engolir uma colher de bicarbonato com sal? Foi isso que 99% tentaram, e todos falharam. Porque com o pó cru jogado num copo d'água, tudo que você faz é arrotar. O ácido do seu estômago mata o pó antes de ele chegar a algum lugar. Não é o pó sozinho, é a preparação exata, a pasta embaixo da língua, e é o colágeno de garanhão Percheron, que só vem de um único centro de processamento no país, em Lexington. Levou 14 meses num laboratório pra estabilizar tudo isso numa goma sem perder um único grama da força.
-
-Com os resultados do Don em mãos, eu reuni 37 homens da minha velha guarda, lendas e veteranos aposentados do UFC, de 44 a 76 anos, e o Dr. Drew preparou a fórmula pra cada um. No 3º dia, 30 dos 37 tinham me ligado dizendo que tinham fodido as esposas na noite anterior sem encostar numa pílula azul.
-
-[Esposa de um veterano, 4 da manhã]
-
-São 4 da manhã e eu desci pra pegar água porque não sinto mais as minhas pernas. 31 anos casada com um homem que lutou pra pagar a nossa casa, 6 anos mole, e hoje ele me fodeu forte por 40 minutos até eu implorar pra ele parar. E o desgraçado ainda está lá em cima me esperando. O que foi que o Dana deu pra ele?
-
-[Dana White]
-
-E eu tomei também. Eu não sou lutador. Eu sou um cara de 56 anos de Boston que comeu o mesmo bife que você a vida inteira, e que não acordava mais duro há 3 anos. No 11º dia, de manhã, eu acordei. Eu era você. Quando o último relatório dos 37 chegou na minha mesa, eu tive que fazer uma escolha. Ou eu dava isso pras minhas 700 lendas e pronto, ou espalhava pro máximo de homens que eu conseguisse alcançar neste país.
-
-Eu escolhi a segunda. E foi aí que começou o pior pesadelo da minha carreira. Bati na porta de 14 laboratórios. 7 recusaram na hora, porque um homem curado é um cliente que desaparece pra sempre. E os outros 7 queriam cobrar 1.500 dólares por mês por homem, com um argumento que eu não esqueci até hoje: já que vamos perder o cliente pra sempre, precisamos tirar todo o lucro na primeira venda. Eu mandei cada um deles se foder. Até que eu fiz a única ligação que eu ainda não tinha feito. Liguei pro Bobby Kennedy e contei o que o Dr. Drew tinha achado no sangue das minhas lendas. E ele me disse uma frase: Dana, isso é o que o MAHA existe pra fazer. E abriu as portas. Um laboratório em solo americano, sob supervisão federal, com cientistas do governo ao lado do Dr. Drew. Levou 3 meses refinando a fórmula numa goma, atendendo 100% das exigências da FDA, sem perder um grama da força. Com uma condição minha: nada de preço de farmacêutica. Cobra o que custa pra fabricar, ponto.
+E ele não só me fodeu. Ele me engravidou. Aos 60 anos. Aqui está o teste de gravidez. Eu tenho 28 e estou carregando o terceiro filho do Don Frye. Esse é o meu homem. E eu não troco ele por nenhum de 30.
 
 [Dr. Drew Pinsky]
 
-E foi assim que nasceu o produto que o Dana vai colocar nas suas mãos daqui a um minuto. Antes disso, abrimos um trial duplo-cego com 3.000 homens, registrado no clinicaltrials.gov e validado pela Universidade de Kentucky e pelo UFC Performance Institute. 94% de reversão funcional. 97% relataram ereções espontâneas ao acordar entre o 4º e o 14º dia. E é ele que eu vou te apresentar agora.
+E a prova que não tem placebo. Dois garanhões irmãos, no haras de Lexington. Mesma idade, mesmo pasto, mesma ração, mesmo glifosato. O tratador deu a pasta do cocho pra um. 30 dias depois, o que ficou sem virou um destroço: parou de cobrir, ficou no canto da baia, a crina caindo em tufos. O que recebeu a pasta cobria 4 éguas por semana. Cavalo não sabe o que é placebo. Ou funciona ou não. E num homem, vira isto.
 
-### O produto: Stallion Soda
+Aí você me pergunta: então é só engolir uma colher de bicarbonato com sal? Foi isso que 99% tentaram, e todos falharam. Com bicarbonato cru num copo d'água, tudo que você faz é arrotar, e o sal de mesa não tem um mineral dentro.
+
+Além disso, não é o pó e o sal sozinhos, são os quatro ingredientes, na concentração e dosagem exata. E o detalhe primordial: o colágeno de tendão de garanhão Percheron e o sal cinza do cocho só saem de um único lugar no país inteiro, em Lexington.
+
+Levou 14 meses num laboratório pra travar tudo isso numa goma sem perder um grama da força. Com os resultados do Don, o Dana reuniu 117 homens de 44 a 76 anos: 94 lutadores aposentados da velha guarda dele, 23 indicados pelo Don, peões e bombeiros do Arizona. Eu preparei a fórmula na mão, numa cozinha doméstica.
+
+No 3º dia, 110 dos 117 me ligaram dizendo que tinham fodido a esposa sem Viagra na noite anterior. Os outros 7 relataram o mesmo no 5º dia. 100% em 5 dias. Aos 30 dias, o crescimento médio foi de 3 a 5 polegadas. Aqui está um deles.
+
+[Depoimento 01 — Wade, 58, bombeiro aposentado de Tucson]
+
+Eu tinha aceitado que a minha vida sexual tinha acabado aos 55. 6 anos sem foder a Lisa direito. O Dana me ligou através do Don, disse que eu estava na lista dos 117. 7 dias depois, eu botei na Lisa e ela chorou antes de eu entrar a primeira polegada.
+
+Ela disse: "Wade, eu já tinha esquecido como era o seu pau dentro de mim." Fodi ela 3 vezes naquele dia. 58 anos. Aos 30 dias, eu tinha 3,5 polegadas a mais. Eu não sou o Don Frye. Sou um cara comum. E essa coisa de vocês funciona em caras comuns.
 
 [Dr. Drew Pinsky]
 
-O nome dele é Stallion Soda. E a melhor parte, pra todo mundo que ainda está me assistindo até aqui: o Dana montou uma oferta que pode te deixar sair desta página com até 3 frascos de graça. Já chego nisso, mas antes de levar isso pra dentro da sua casa, você precisa saber exatamente o que é. Stallion Soda é a primeira e única fórmula clinicamente comprovada que dissolve a lama cavernosa assentada na sua esponja, hidrata o tecido que passou 30 anos secando, reconstrói o colágeno que o veneno comeu e blinda contra o glifosato que continua entrando. Dissolver. Hidratar. Reconstruir. Proteger. Fabricado nos Estados Unidos, sob supervisão federal. 100% seguro, sem nada hormonal, sem efeito colateral. Sem receita, uma goma de manhã, e pronto.
+E o Wade gravou o teste que eu peço pros 117. O teste do selo postal. Uma tira elástica colada em volta do pau antes de dormir. Se o pau alongar ou alargar de noite ou de manhã cedo, a tira rasga. Se amanhece inteiro, nada cresceu. O corpo não sabe mentir dormindo. Olha.
 
-E não importa quem você é. Não importa se você tem diabetes, pressão alta, problema de próstata, ou se o cardiologista te proibiu a pílula azul, como proibiu o Don. Não importa a sua idade. Não importa o seu tamanho hoje. Não importa quantos métodos você já tentou e viu falhar. Porque o Don tinha 60% de lama aos 60 anos, com o coração descompassado. Funcionou. Os 37 iam de 44 a 76, com 20 anos de soco na cabeça. Funcionou. Os 3.000 homens do trial iam dos 35 aos 70. Funcionou em 94% até agora. Esse é o tipo de produto que nenhuma farmacêutica do mundo vai te oferecer, não enquanto só o Viagra ainda gera 32 bilhões de dólares por ano, porque homem curado não paga mensalidade. A questão é que o Stallion Soda não só encobre o sintoma como a pílula azul.
+[Depoimento 01 — vídeo caseiro]
 
-Ele ataca a lama cavernosa na origem. 4 substâncias trabalhando em sinergia, calibradas em 12 rodadas de testes em Lexington, cada uma na dose exata necessária pra funcionar. Menos do que isso, o ácido do seu estômago destrói antes de chegar lá. Mais do que isso, não desmancha a lama. O bicarbonato preparado dissolve o barro seco que travou a esponja. O sal celta devolve a água e os minerais que ela perdeu, e acorda o sinal. O colágeno de garanhão Percheron reconstrói a esponja com fibra nova. E o Pycnogenol blinda contra o glifosato que continua entrando todo dia. Dissolver, hidratar, reconstruir, proteger. É o único produto do mundo que faz as 4 coisas ao mesmo tempo. Não existe equivalente, não existe concorrente direto, e não vai existir versão genérica no mercado americano pelos próximos 5 anos, porque o equipamento que extrai colágeno de tendão de Percheron existe em um único lugar do planeta: Lexington.
+(Carimbo de data em cada corte. Close no anel, celular na mão, luz de manhã. Cortes secos)
 
-Você toma uma goma de manhã, em jejum, com água. Morde, deixa a pasta se formar embaixo da língua por 30 segundos, sente arder e a boca encher de água, fecha a mão no pau por 13 segundos e engole. É o ritual inteiro. E tem um motivo pra ser em jejum: com o estômago vazio, a absorção do colágeno sobe em até 40%, porque o ácido gástrico está mais fraco e não destrói a molécula antes de ela passar. Sem aplicação, sem injeção, sem cronometrar 40 minutos antes do sexo. O Stallion Soda trabalha em segundo plano enquanto você segue a sua vida. Você acorda, toma a goma, vai trabalhar, e em 4 dias o seu pau te acorda duro feito pedra no meio da noite, sem você nem pedir. Igual fazia quando você tinha 20. É fabricado nos Estados Unidos, em ambiente estéril, numa instalação registrada na FDA. 100% seguro, 100% natural, sem transgênico, sem toxina, sem dependência, sem receita.
+Dia 1. Inteiro. Dia 3. Tá esticando. Alguma coisa mexeu. Dia 5. Olha isso. Quase estourando. Dia 7. Estourou.
+
+[Dana White]
+
+E aqui está o vídeo que a mulher de um deles me mandou desesperada.
+
+[Depoimento 02 — esposa, 4 da manhã]
+
+São 4 da manhã e eu desci pra pegar água porque não sinto mais as minhas pernas. 31 anos casada com um cara comum, 6 anos mole, e hoje ele me fodeu forte por 40 minutos até eu implorar pra ele parar. E o desgraçado ainda está lá em cima me esperando. O que foi que ele tomou, Dana?
+
+[Dana White]
+
+E não parou na cama de casa deles.
+
+[Depoimento 03 — veterano, 61]
+
+Chegou um ponto em que os meus próprios amigos começaram a me oferecer as esposas no churrasco. As mulheres não conseguiam tirar os olhos do volume na minha calça, e confesso que aceitei mais de uma. Esta aqui. Aquele homem nas fotos é marido dela. Hoje, ela foge de casa 3 vezes por semana pra me ver e sempre volta pedindo mais.
+
+[Dana White]
+
+Quase todos relataram ereções insanas na primeira semana, e 98% disseram que estavam fodendo por mais de uma hora sem gozar, literalmente quebrando a cama e as esposas. Homens de 35 a 80 anos me agradeceram pela virilidade que achavam perdida pra sempre.
+
+"Eu nunca senti isso antes" virou rotina no meu telefone. A parte mais louca? Ninguém parou de beber. Ninguém parou de fumar. Ninguém fez dieta. Nada de pílula química. Só a fórmula do Stallion Soda Ritual.
+
+Quando o último relatório dos 117 chegou, eu tive que escolher. Dar isso pras minhas 700 lendas e pronto, ou espalhar pro máximo de homens americanos. Escolhi a segunda. E começou o pior pesadelo da minha carreira.
+
+Bati em 14 laboratórios. 7 recusaram na hora, porque homem curado é cliente que desaparece. Os outros 7 queriam 1.500 dólares por mês por homem, com um argumento que eu não esqueço: "Se vamos perder o cliente pra sempre, tiramos todo o lucro na primeira venda." Mandei cada um se foder na cara.
+
+Então eu fiz a ligação que ninguém nesse mercado pode fazer. Liguei pro Presidente Donald Trump e pro Bobby Kennedy, e contei o que o Dr. Drew tinha achado no sangue das minhas lendas e no sangue de 117 homens comuns. Sabendo que isso era crucial pra saúde do homem americano, eles incluíram a minha iniciativa no programa Make America Healthy Again. E me abriram o que nenhum laboratório privado tem: um orçamento de vários bilhões de dólares e acesso aos melhores laboratórios certificados pela FDA e pelas Boas Práticas de Fabricação, equipados com tecnologia de nível militar, os mesmos usados pra desenvolver medicamento de guerra pras Forças Especiais.
+
+E foi aí que o Dr. Nathan Holloway, diretor de P&D desse laboratório federal, me ligou. Eu levei tudo: os estudos enterrados, as ressonâncias do Don, o memorando da Bayer, o laudo do cocho.
+
+[Dr. Nathan Holloway]
+
+29 anos em P&D farmacêutico, 11 deles pro Exército, e eu nunca tinha visto reversão de fibrose num estudo registrado. Nunca. Eu não estou aqui pelo dinheiro. Estou aqui porque vi o que esses caras conseguiram, e não consigo desviar o olhar.
+
+[Dana White]
+
+Com todo esse apoio, tecnologia de ponta e 3 meses de trabalho do Dr. Drew ao lado de uma equipe de cientistas militares, a fórmula virou uma goma, atendendo 100% das exigências da FDA sem perder a força. Uma fórmula que não só resolve o pau mole, mas transforma homem comum em garanhão com pau de garanhão, uma máquina de reprodução. Quando ficou pronta, liguei pro Don. "Sozinho, isso vira mais um suplemento perdido no Google. Com você como sócio, não morre." Ele topou na hora. Colocou capital próprio, nome e bigode, com uma condição: nada de preço predatório de farmacêutica. Cobra o que custa pra fabricar, ponto. Foi assim que nasceu o produto que vai pras suas mãos daqui a um minuto.
+
+[Dr. Drew Pinsky]
+
+Antes, abrimos um trial duplo-cego com 3.000 homens, registrado no clinicaltrials.gov, protocolo NCT06182394, validado pela Universidade de Kentucky e pelo UFC Performance Institute. Em agosto recebi a primeira planilha: 94% de reversão funcional mensurável, e 97% relataram ereção espontânea ao acordar entre o 4º e o 14º dia. Um voluntário gravou anonimamente, 5 dias de protocolo, pau 2,5 polegadas maior, tudo confirmado cientificamente.
+
+[Depoimento 04]
+
+Eu comia essa goma do garanhão e fazia o teste do selo todo dia. No dia 5 achei o anel rasgado no lençol. Em apenas 5 dias no protocolo, meu pau ficou 2,3 polegadas maior. Fiz minha mulher gozar três vezes seguidas, sem parar. Ela esguichou na 3ª, primeira vez em 17 anos de casamento.
+
+[Dr. Drew Pinsky]
+
+Alguns pacientes até se gravaram fodendo depois de comer a goma do garanhão. Achei bizarro, mas eles estavam adorando a reputação de garanhões, e as mulheres se jogando em cima deles. Veja com seus próprios olhos.
+
+[Depoimento 05 — tela dividida: em cima falando, embaixo fodendo, nome e idade]
+
+Vou fazer o desafio da goma do garanhão agora mesmo e testar numa foda de verdade.
+
+[Depoimento 06 — tela dividida: em cima falando, embaixo a mulher chupando ele, nome e idade]
+
+Não entendo como essa goma do garanhão funciona, mas olha o que faz com o meu pau.
+
+[Dr. Drew Pinsky]
+
+Eles não são exceções. São prova viva de que a virilidade volta sem farmácia e sem químico, só com essa goma do garanhão que eu vou te apresentar agora.
