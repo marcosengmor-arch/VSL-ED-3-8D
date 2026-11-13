@@ -106,13 +106,9 @@ Em dias, não meses. E eu sei exatamente como isso soa: bom demais pra ser verda
 
 ## Demonstração no laboratório
 
-[Dana White]
-
-Mas mesmo depois dos 4 dias no cocho de Lexington e dos 300 exames na mesa, antes de colocar uma única pitada disso na minha boca, eu ainda precisava ver funcionando na minha frente. Então o Dr. Drew pegou uma amostra viva da exata lama cavernosa que está secando a esponja de milhões de homens americanos agora mesmo.
-
 [Dr. Drew Pinsky]
 
-Dentro deste recipiente, com este líquido transparente, temos o composto puro que a pasta salgada libera na sua boca pra desmanchar a lama que trava o seu pau: o bicarbonato ativado pelo sal. E aqui neste recipiente, temos um bloco escuro que representa a lama cavernosa. O mesmo barro de Roundup que está secando a sua esponja agora, enquanto você assiste. Veja o que acontece quando o composto entra em contato com a lama. Ela espuma, racha e desmancha. Na hora. E não só isso: depois que esse composto entra no seu corpo, a esponja fica praticamente blindada contra lama nova. Veja o que acontece quando o mesmo glifosato tenta assentar de novo. Na hora. O escudo já presente no tecido neutraliza tudo. É assim que a sua esponja fica limpa, e o seu pau fica duro.
+Mas mesmo depois dos 4 dias no cocho de Lexington e dos 300 exames na mesa, antes de colocar uma única pitada disso na boca de um homem, eu ainda precisava ver funcionando na minha frente. Então eu peguei uma amostra viva da exata lama cavernosa que está secando a esponja de milhões de homens americanos agora mesmo. Dentro deste recipiente, com este líquido transparente, temos o composto puro que a pasta salgada libera na sua boca pra desmanchar a lama que trava o seu pau: o bicarbonato ativado pelo sal. E aqui neste recipiente, temos um bloco escuro que representa a lama cavernosa. O mesmo barro de Roundup que está secando a sua esponja agora, enquanto você assiste. Veja o que acontece quando o composto entra em contato com a lama. Ela espuma, racha e desmancha. Na hora. E não só isso: depois que esse composto entra no seu corpo, a esponja fica praticamente blindada contra lama nova. Veja o que acontece quando o mesmo glifosato tenta assentar de novo. Na hora. O escudo já presente no tecido neutraliza tudo. É assim que a sua esponja fica limpa, e o seu pau fica duro.
 
 [Dana White]
 
