@@ -109,7 +109,7 @@ Em dias, não meses. E eu sei exatamente como isso soa: bom demais pra ser verda
 
 [Dr. Drew Pinsky]
 
-Eu estou aqui no Gluck Equine Research Center, da Universidade de Kentucky, em Lexington. É o centro de pesquisa equina mais avançado do mundo em tendão e colágeno, o lugar que estuda célula por célula como a fibra de colágeno tipo III nasce, endurece e morre, e o laboratório que os donos dos garanhões de 30 milhões pagam pra manter o tendão deles vivo. Se existe um lugar no planeta pra testar isso, é aqui. E eu vou testar na sua frente, contra a mesma lama que está secando a sua esponja agora.
+Eu estou no Gluck Equine Research Center, da Universidade de Kentucky, o centro mais avançado do mundo em tendão e colágeno de cavalo, o laboratório que os donos dos garanhões de 30 milhões pagam pra manter o tendão deles vivo. E vou testar essa fórmula na sua frente, contra a mesma lama que está secando a sua esponja agora.
 
 Neste recipiente, o líquido transparente é o composto puro que a pasta salgada libera na sua boca: o bicarbonato ativado pelo sal. Neste outro, o bloco escuro é uma amostra viva de lama cavernosa, o barro de Roundup tirado de tecido humano. Olha o que acontece quando um encontra o outro. Espuma, racha e desmancha. Na hora. E não é só isso: depois que o composto entra no tecido, a esponja fica blindada contra lama nova. Olha o que acontece quando o mesmo glifosato tenta assentar de novo. Na hora. O escudo neutraliza tudo. É assim que a sua esponja fica limpa, e o seu pau fica duro.
 
