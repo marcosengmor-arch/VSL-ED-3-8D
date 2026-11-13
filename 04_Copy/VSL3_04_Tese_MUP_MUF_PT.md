@@ -32,7 +32,7 @@ E não é coincidência que, desde que esse veneno entrou de vez na comida ameri
 
 [Dana White]
 
-Os meus lutadores de 40 que estavam caindo. Não era idade. Eles comem o mesmo bife que o Don.
+Eu vi na minha arena. Lutador de 38, 40 anos, no auge, com a testosterona de um touro e a ring girl esperando no camarim, e o pau falhando na noite da vitória. Não era idade. Era a mesma lama. Eles comem o mesmo bife que o Don, e o mesmo que você.
 
 [Dr. Drew Pinsky]
 
