@@ -1,9 +1,10 @@
-# VSL 3 — MUS: a resposta no cavalo e os 4 verbos — v1.2 PT, registro BLACK
+# VSL 3 — MUS: a resposta no cavalo e os 4 verbos — v1.3 PT, registro BLACK
 
 > Molde: Soda Horse blocos 14–17 (`00_base/vsls_referencia/soda_horse/SODA-HORSE_PT.txt`): "pensa comigo: o cavalo come o mesmo Roundup, 15 kg por dia, devia ser o mais impotente, é o oposto; cavalo não cimenta, não é genética; se um corpo come o veneno e não endurece, ele sabe dissolver" → os criadores, o veterinário de 18 anos, o pó que não está em rótulo, passado de mão em mão → "o pó sozinho não basta: o cavalo faz 4 coisas, na ordem; o corpo dele faz sozinho, o seu não; a preparação certa faz por você" → 4, não 3, não 5; sozinho 10%, tira uma e volta em 3 meses → DISSOLVER (bicarbonato; "eu tenho na cozinha"; puro só arrota; preparado quebra o depósito; urina escura, mija o cimento; sangue inunda, mais pesado, mais quente; stamina do garanhão) → RECONSTRUIR (colágeno de Percheron; não bovino nem marinho; esponja nova; semana 1 peso e matinal, semana 2 régua, 30 dias 3–4 polegadas; ela congela 3 s; o volume na calça; voluntário de 62; Lexington, proibido cru; régua e ressonância) → PROTEGER (amanhã mais veneno; 6 meses refaz metade; Pycnogenol, escudo; Johns Hopkins 92%, 15→27; óxido nítrico, sob comando) → REATIVAR (Tongkat) → os 4 verbos e a linha do tempo. Função a função, outra escrita, sem alongar.
 > O que troca pra nossa VSL: cimento → **lama cavernosa** (lama → barro → tijolo; a urina escura é "cor de barro, a lama saindo"); o bloco 14 fica mais curto porque o Dana já contou o mundo dos garanhões (valor, 200 éguas, 300 mil) na Discovery; o 4º verbo (Tongkat/REATIVAR) sai e entra o 2º, **HIDRATAR/REATIVAR = sal celta** (a esponja seca pela lama volta a beber; 84 minerais; magnésio/potássio/zinco/boro acordam o sinal sem TRT), de modo que os 4 verbos ficam **dissolver → hidratar → reconstruir → proteger**; a sinestesia do ritual (arquivo 22: arde/espuma/água em 30 s, mão fechada 13 s esquenta, veia do braço em 20 min, dia 4 acorda duro) entra nos verbos 1 e 2 como prova sentida; a cópia dos atores pornôs = "1 dos 4, cru, no copo d'água" (ponto O); D4 (o Exército estudou o tamponamento) e o "milkshake" do turfe proibido entram no verbo 1 como lastro narrativo; o nome do ritual é **Stallion Soda Ritual** e a explicação visual é "a pasta salgada". Regras de ad: nunca "truque" junto de "bicarbonato"; nenhuma caixa de marca.
 > v1.1 (13/11): corte de ≈ 20% sem tirar função (bloco 14 sem repetir o valor do garanhão; verbo 1 e 2 enxutos; a régua e a ressonância ficam na promessa do primeiro homem).
 > v1.2 (13/11): bloco 14 na adaptação do Marcos ('pasta salgada' em vez de 'pó'); o parágrafo final deixa de dizer 'o pó sozinho não basta' (os ingredientes ainda não foram citados) e vira 'o que faz a pasta funcionar não é uma coisa só, são 4 ingredientes, 4 verbos'.
+> v1.3 (13/11): bloco 14 na versão do Marcos revisada: idade 25 em tudo, 300 mil por cobertura (igual à Discovery), vocabulário lama/barro/tijolo (sem 'pedrificar'/'crosta'), o valor do garanhão em 2 frases apontando pro Dana, tratador + veterinário, concordâncias. O 'Pensa comigo' fecha a Tese (arquivo 04) e este bloco começa direto no garanhão.
 > Tamanho-alvo: Soda Horse 14–17 ≈ 1.900 palavras; nossa meta ≤ 1.900 mesmo com o verbo 2 (o bloco 14 encurta).
 
 ---
@@ -12,7 +13,11 @@
 
 [Dr. Drew Pinsky]
 
-Pensa comigo. O garanhão come capim, ração e água encharcados com o mesmo Roundup que você, só que 15 quilos de ração por dia. Muito mais veneno do que você comeu na vida. Por essa lógica, ele devia ser o animal mais impotente da Terra. É o oposto: 200 éguas por temporada, aos 25 anos com a força de quando tinha 5, uma ereção de 40 minutos toda vez. Porque a esponja dele nunca vira lama. Cavalo não seca por dentro, e não é genética. Se existe um corpo que come o veneno todo dia e nunca deixa a esponja virar barro, esse corpo sabe desmanchar a lama. E a resposta não estava num laboratório. Estava no cocho.
+O garanhão come capim, ração e água encharcados com o mesmo Roundup que você, só que 15 quilos de ração por dia. Muito mais veneno do que você comeu na vida. Por essa lógica, ele devia ser o animal mais impotente da Terra. Mas é o oposto. O garanhão Percheron fode 200 éguas por temporada, aos 25, com a mesma força com que fodia aos 5, uma ereção de 40 minutos toda vez, e o tamanho que a natureza previu.
+
+Porque a esponja dele nunca vira barro. Cavalo não seca por dentro, e não é genética. Se existe um corpo que come o veneno todo dia e nunca deixa a esponja virar tijolo, esse corpo sabe dissolver a lama. E era exatamente isso que eu precisava encontrar. Mas a resposta não estava num laboratório. Estava com os poucos homens que fazem fortuna com esses cavalos. Os criadores.
+
+O Dana já te disse quanto vale esse animal: 20, 30 milhões de dólares, 300 mil por cobertura, mais de 20 milhões por ano só por continuar duro. Agora me diz uma coisa: se a sua fortuna inteira dependesse de um animal continuar potente na velhice, você deixaria isso ao acaso? Claro que não. E é exatamente por isso que os donos dos garanhões mais caros do planeta guardam um segredo a sete chaves.
 
 Uma pasta salgada que mantém o garanhão duro muito além da idade em que ele já devia ter parado. E isso não é boato meu. Eu sentei com o tratador que passou 18 anos dentro desses haras, e com o veterinário do haras.
 
@@ -20,7 +25,7 @@ E a coisa mais suspeita de todas? Os ingredientes dessa pasta não aparecem em r
 
 Foi exatamente essa pasta salgada que o lutador de 40 preparou no celeiro do Don antes de fuder a esposa dele. A mesma que mantém o garanhão duro aos 25, e a mesma que desmancha a lama cavernosa que a medicina jurou por 30 anos ser impossível de dissolver.
 
-Só que o que faz essa pasta funcionar não é uma coisa só. São 4. Quatro ingredientes, e cada um faz uma coisa diferente dentro do garanhão, ao mesmo tempo, na ordem exata. O corpo dele ajuda, porque é cavalo. O seu não ajuda mais. Mas a mesma pasta, adaptada pra um homem, faz as 4 por você. Quatro ingredientes, quatro verbos. Deixa eu te mostrar cada um.
+Só que o que faz essa pasta funcionar não é uma coisa só. São 4 coisas. Ao mesmo tempo, na ordem exata. E é isso que dissolve a lama de vez, sem deixar ela secar de novo. O corpo do garanhão faz tudo isso sozinho. O seu não faz mais. Mas a preparação certa, adaptada pra um homem, faz isso por você. 4 peças. Deixa eu te mostrar cada uma.
 
 ## Verbo 1: DISSOLVER
 
