@@ -63,7 +63,7 @@ E é por isso que ele te traiu no pior momento. O sangue entrou, a parte viva te
 
 E aqui está o que quase ninguém enxerga. A mesma lama que fez entortar é a que fez encolher. Cada polegada que sumiu é o bloco morto sentado onde a esponja devia inchar e crescer. Amolecer e encolher não são dois problemas. São a mesma ferida.
 
-E é isso que vai tirar 30 anos de peso das suas costas. Não é idade. Um homem de 70 com a esponja limpa fica duro feito pedra, e um de 40 com a esponja cimentada não fica. Não é estresse. Não é falta de desejo. E não está na sua cabeça. É glifosato, travando e endurecendo o seu pau desde antes de você virar homem. E não é testosterona: o Dana proibiu a reposição no UFC em 2014, e os veteranos ficaram mais fortes. A testosterona deles não mudou. A esponja é que estava viva.
+E é isso que vai tirar 30 anos de peso das suas costas. Não é idade. Um homem de 70 com a esponja limpa fica duro feito pedra, e um de 40 com a esponja virada em barro não fica. Não é estresse. Não é falta de desejo. E não está na sua cabeça. É glifosato, travando e endurecendo o seu pau desde antes de você virar homem. E não é testosterona: o Dana proibiu a reposição no UFC em 2014, e os veteranos ficaram mais fortes. A testosterona deles não mudou. A esponja é que estava viva.
 
 E se você duvida, pensa na ereção da manhã. O seu corpo não mente enquanto você dorme. Se aquela que aparecia sozinha no meio da noite sumiu, não é psicológico. É físico. É lama.
 
