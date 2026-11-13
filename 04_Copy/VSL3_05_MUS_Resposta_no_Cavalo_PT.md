@@ -5,7 +5,7 @@
 > v1.1 (13/11): corte de ≈ 20% sem tirar função (bloco 14 sem repetir o valor do garanhão; verbo 1 e 2 enxutos; a régua e a ressonância ficam na promessa do primeiro homem).
 > v1.2 (13/11): bloco 14 na adaptação do Marcos ('pasta salgada' em vez de 'pó'); o parágrafo final deixa de dizer 'o pó sozinho não basta' (os ingredientes ainda não foram citados) e vira 'o que faz a pasta funcionar não é uma coisa só, são 4 ingredientes, 4 verbos'.
 > v1.3 (13/11): bloco 14 na versão do Marcos revisada: idade 25 em tudo, 300 mil por cobertura (igual à Discovery), vocabulário lama/barro/tijolo (sem 'pedrificar'/'crosta'), o valor do garanhão em 2 frases apontando pro Dana, tratador + veterinário, concordâncias. O 'Pensa comigo' fecha a Tese (arquivo 04) e este bloco começa direto no garanhão.
-> v1.4 (13/11): o verbo HIDRATAR ganha o benefício sexual próprio, como cada ingrediente tem na VSL 1 (mais grosso na mão dela, quente, latejando, veia na haste, peso dentro dela, ela aperta as pernas).
+> v1.4 (13/11): cada verbo com benefício sexual próprio e sem sobreposição: DISSOLVER = quente, pesado, veias, a noite inteira; HIDRATAR = sensação (tecido molhado sente cada toque) e o tanque (porra é 90% água: mais grosso, mais volume, jato forte); reativar (dentro do sal) = desejo e iniciativa; RECONSTRUIR = grossura e comprimento; PROTEGER = sob comando.
 > Tamanho-alvo: Soda Horse 14–17 ≈ 1.900 palavras; nossa meta ≤ 1.900 mesmo com o verbo 2 (o bloco 14 encurta).
 
 ---
@@ -56,7 +56,7 @@ E esponja seca só volta de um jeito: de molho. Por isso a segunda coisa é hidr
 
 E 20 minutos depois você vê com os olhos. Lembra da pesagem? O lutador desce da balança seco, sem uma veia no braço, e no dia seguinte, reidratado, está com a veia saltada. Olha o seu antebraço agora: a veia que não aparecia está ali. Agora pensa onde mais tem esponja que enche de sangue.
 
-E é isso que ela sente primeiro. Esponja hidratada é esponja cheia: o pau fica mais grosso na mão dela, quente de novo, latejando, com a veia saltada na haste do jeito que não ficava há 10 anos. E não é só dureza, é peso dentro dela: aquele pau que ela sente pulsar lá no fundo quando você para de se mexer, e que faz ela apertar as pernas em volta de você sem perceber.
+E o sal te dá duas coisas que nenhum outro ingrediente dá. A primeira é a sensação: tecido seco não sente, e por isso você vinha fodendo dormente, como se fosse com o pau de outro. Esponja molhada sente cada toque de novo, a boca dela, a mão dela, cada centímetro entrando. A segunda é o tanque: porra é 90% água, e 30 anos seco te deixaram com três gotas. Hidratado, você goza mais grosso, com mais volume, num jato forte, daquele que ela sente bater lá dentro e nunca esquece.
 
 [Dana White]
 
@@ -64,7 +64,7 @@ Eu vi essa veia voltar em 700 lutadores. Nunca pensei que fosse a mesma coisa qu
 
 [Dr. Drew Pinsky]
 
-E o sal faz mais do que molhar. Durante os anos de barro, os receptores de testosterona dentro da sua esponja ficaram dormentes. Não morreram, silenciaram. E receptor funciona com mineral: magnésio pro óxido nítrico, potássio pro impulso nervoso, zinco e boro pro receptor. Sem mineral, o sinal não chega. O sal celta devolve os 4 de uma vez e reativa o que já existe em você, sem injetar testosterona, sem TRT, sem cobrar no fígado como cobrou do Don. A sua testosterona estava lá o tempo todo. O que faltava era a esponja conseguir ouvir. E quando ela ouve, o desejo volta com força: você acorda com tesão feito adolescente, goza mais grosso, um jato mais forte, daquele que ela sente e nunca esquece. Mas uma esponja limpa e molhada ainda é uma esponja cheia de furos.
+E o sal faz mais do que molhar. Durante os anos de barro, os receptores de testosterona dentro da sua esponja ficaram dormentes. Não morreram, silenciaram. E receptor funciona com mineral: magnésio pro óxido nítrico, potássio pro impulso nervoso, zinco e boro pro receptor. Sem mineral, o sinal não chega. O sal celta devolve os 4 de uma vez e reativa o que já existe em você, sem injetar testosterona, sem TRT, sem cobrar no fígado como cobrou do Don. A sua testosterona estava lá o tempo todo. O que faltava era a esponja conseguir ouvir. E quando ela ouve, o desejo volta com força: você acorda com tesão feito adolescente, olha pra ela e sente de novo o que achava que a idade tinha levado, a vontade de agarrar, de tomar a iniciativa, de mandar na cama. Mas uma esponja limpa e molhada ainda é uma esponja cheia de furos.
 
 ## Verbo 3: RECONSTRUIR
 
