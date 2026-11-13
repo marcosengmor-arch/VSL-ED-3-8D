@@ -1,9 +1,10 @@
-# VSL 3 — Marketing Thesis: mecanismo do problema (MUP) e por que nada funcionou (MUF) — v2.1 PT, registro BLACK
+# VSL 3 — Marketing Thesis: mecanismo do problema (MUP) e por que nada funcionou (MUF) — v2.2 PT, registro BLACK
 
 > Molde: a tese da VSL 2 (IronPulseX, nosso controle; `00_base/vsl2_ironpulsex/EN_VSL_Completa_IronPulseX.md`, "Marketing Thesis" até a entrada do Gupta), modelada frase a frase, função a função, sem alongar. É a tese do cimento da VSL 1 (controle) como ela ficou na VSL 2. Voz: Dr. Drew ("Obrigado, Dana"), com o Dana em 3 cortes curtos. Pontos lógicos: arquivo 16, 2A (A–K) e 2B (L–P).
 > O que troca pros nossos personagens (só o necessário): o exame com 60% de cimento é o do Don (o Dana prometeu na Discovery); a noite do macarrão e o "tudo bem" são do Don; o Viagra dobrado no banheiro, o TRT e o fígado são do Don; a bomba (no lugar das ondas de choque de 20 mil do Al); o coração do Don em dezembro como o preço do Viagra (uma frase, porque o cardiologista já proibiu a pílula na Emocional); "lembra do Don Frye?" no lugar de "lembra do Al Pacino?"; a prova de que não é testosterona ganha o UFC de 2014 (uma frase); a cópia dos atores pornôs como metade do método (ponto O, uma frase); o fecho vai pro cocho de Lexington que o próprio Dr. Drew visitou (na VSL 2 a bola passa pro Gupta; aqui o Dr. Drew continua).
 > v2 (13/11): gimmick name do mecanismo = **LAMA CAVERNOSA** (Cavernous Sludge), no lugar de 'cimento' e 'placa tóxica': a mesma física do cimento (perde água, vira bloco), com o ciclo lama → barro → tijolo como relógio e o tijolo como ponto sem volta; 'piche' entra uma vez, como sensação de grudado. Cada frase do cimento traduzida na mesma função; a sensação física plantada em frases curtas ('é isso que você sente'), sem alongar.
 > v2.1 (13/11): nomes chiclete de sustentação, só depois de 'lama cavernosa' definida: 'crosta de castração' (no travou aos 15 e no resumo do MUF), 'tijolo de glifosato' (no exame do Don), 'barro de Roundup' (no encolhimento e no 'não é idade'). Reforçam a imagem; o nome do mecanismo continua um só.
+> v2.2 (13/11): a prova tátil 'passa a mão' sai; entra a prova de temperatura e pulso (menos sangue arterial = pau menos quente e menos pulsante): 'tijolo é frio; morno, não quente; sem pulsar na mão dela; sangue que não entra não esquenta'. Prepara o calor da pasta (sinestesia: esquenta na mão, veia do braço).
 > O que NÃO repete: glifosato, 97%, RFK, memo da Bayer, FDA e ex-revisor já foram na Discovery na voz do Dana; aqui entram só como "você já sabe quem fez".
 
 ---
@@ -44,7 +45,7 @@ E agora vem a parte mais cruel. Um estudo com mais de 1.000 mulheres americanas 
 
 Você entendeu? O tamanho que roubaram de você é exatamente o tamanho que ela precisa pra gozar de verdade. Eles te travaram logo abaixo da linha entre satisfazer a sua mulher e ela ir procurar em outro lugar. Não é coincidência a traição só subir neste país. Lembra do Don Frye?
 
-Mas o tamanho travado é só o começo. A lama não seca num ponto só. Ela seca a esponja inteira e transforma ela num bloco de barro morto. O que era macio e elástico, que inchava e cedia na mão dela, vira tijolo seco e rachado no meio do seu pau. Passa a mão agora. Duro de um jeito que não é dureza. É isso.
+Mas o tamanho travado é só o começo. A lama não seca num ponto só. Ela seca a esponja inteira e transforma ela num bloco de barro morto. O que era macio e elástico, que inchava e cedia na mão dela, vira tijolo seco e rachado no meio do seu pau. E tijolo é frio. Lembra da última vez que ele subiu? Morno, não quente. Sem pulsar na mão dela. Porque sangue que não entra não esquenta, e ela sentiu isso antes de você: um pau cheio de sangue queima na mão e pulsa sozinho; um pau cheio de barro fica morno e parado. É isso.
 
 Olha essas duas esponjas. A da esquerda é a sua aos 20. A da direita é a sua agora. Endurecida: não absorve, não incha, não cresce, não endurece. E este é um exame de verdade.
 
