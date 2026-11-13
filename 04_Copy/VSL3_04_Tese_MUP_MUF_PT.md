@@ -1,8 +1,9 @@
-# VSL 3 — Marketing Thesis: mecanismo do problema (MUP) e por que nada funcionou (MUF) — v2 PT, registro BLACK
+# VSL 3 — Marketing Thesis: mecanismo do problema (MUP) e por que nada funcionou (MUF) — v2.1 PT, registro BLACK
 
 > Molde: a tese da VSL 2 (IronPulseX, nosso controle; `00_base/vsl2_ironpulsex/EN_VSL_Completa_IronPulseX.md`, "Marketing Thesis" até a entrada do Gupta), modelada frase a frase, função a função, sem alongar. É a tese do cimento da VSL 1 (controle) como ela ficou na VSL 2. Voz: Dr. Drew ("Obrigado, Dana"), com o Dana em 3 cortes curtos. Pontos lógicos: arquivo 16, 2A (A–K) e 2B (L–P).
 > O que troca pros nossos personagens (só o necessário): o exame com 60% de cimento é o do Don (o Dana prometeu na Discovery); a noite do macarrão e o "tudo bem" são do Don; o Viagra dobrado no banheiro, o TRT e o fígado são do Don; a bomba (no lugar das ondas de choque de 20 mil do Al); o coração do Don em dezembro como o preço do Viagra (uma frase, porque o cardiologista já proibiu a pílula na Emocional); "lembra do Don Frye?" no lugar de "lembra do Al Pacino?"; a prova de que não é testosterona ganha o UFC de 2014 (uma frase); a cópia dos atores pornôs como metade do método (ponto O, uma frase); o fecho vai pro cocho de Lexington que o próprio Dr. Drew visitou (na VSL 2 a bola passa pro Gupta; aqui o Dr. Drew continua).
 > v2 (13/11): gimmick name do mecanismo = **LAMA CAVERNOSA** (Cavernous Sludge), no lugar de 'cimento' e 'placa tóxica': a mesma física do cimento (perde água, vira bloco), com o ciclo lama → barro → tijolo como relógio e o tijolo como ponto sem volta; 'piche' entra uma vez, como sensação de grudado. Cada frase do cimento traduzida na mesma função; a sensação física plantada em frases curtas ('é isso que você sente'), sem alongar.
+> v2.1 (13/11): nomes chiclete de sustentação, só depois de 'lama cavernosa' definida: 'crosta de castração' (no travou aos 15 e no resumo do MUF), 'tijolo de glifosato' (no exame do Don), 'barro de Roundup' (no encolhimento e no 'não é idade'). Reforçam a imagem; o nome do mecanismo continua um só.
 > O que NÃO repete: glifosato, 97%, RFK, memo da Bayer, FDA e ex-revisor já foram na Discovery na voz do Dana; aqui entram só como "você já sabe quem fez".
 
 ---
@@ -37,7 +38,7 @@ Os meus lutadores de 40 que estavam caindo. Não era idade. Eles comem o mesmo b
 
 Presta atenção, porque quase nenhum homem sabe disso. Uma esponja solta cresce até 7 polegadas. O tamanho que a sua foi feita pra alcançar. Só que a lama não esperou você fazer 40. Ela começou a assentar quando você era moleque. Um estudo de Stanford provou que mais de 90% do tamanho final do pênis se define antes dos 21. Depois disso, trava. E lembra o que o Secretário de Saúde admitiu na Casa Branca? Que esse veneno vem desligando os meninos desde a infância?
 
-Enquanto o seu pênis devia estar crescendo, a lama já estava secando em volta dele. Ele não te encolheu aos 40. Ele te travou aos 15. Você foi castrado antes de virar homem, e passou a vida achando que era genética.
+Enquanto o seu pênis devia estar crescendo, a lama já estava secando em volta dele. Ela não te encolheu aos 40. Ela te travou aos 15, uma crosta de castração secando em volta de um pau que ainda ia crescer. Você foi castrado antes de virar homem, e passou a vida achando que era genética.
 
 E agora vem a parte mais cruel. Um estudo com mais de 1.000 mulheres americanas mediu o que nenhum homem quer ouvir. O orgasmo mais forte que uma mulher consegue sentir, o esguicho de verdade, o que faz ela tremer da cabeça aos pés e implorar por mais, só acontece quando o homem alcança uma zona a 7 polegadas de profundidade. 7 polegadas completas. Abaixo disso, ela até pode gostar. Mas nunca vai sentir aquilo.
 
@@ -53,7 +54,7 @@ Esse é o exame do Don. Eu prometi que você ia ver.
 
 [Dr. Drew Pinsky]
 
-60% da esponja deste homem já virou tijolo. A um passo do ponto sem volta. E isso não é teoria de internet. O México proibiu o glifosato, a Alemanha marcou a data pra tirar das prateleiras, e aqui ele continua no seu bife e no seu copo todo santo dia. E não é problema de velho: todo homem que come comida americana está acumulando essa lama. Cada polegada que o seu pau encolheu nos últimos 10 anos, e encolheu, você comparou no chuveiro e fingiu que não era nada, é barro seco onde devia ter esponja viva.
+60% da esponja deste homem já virou tijolo. Tijolo de glifosato, 30 anos de bife e cerveja secando num bloco só. A um passo do ponto sem volta. E isso não é teoria de internet. O México proibiu o glifosato, a Alemanha marcou a data pra tirar das prateleiras, e aqui ele continua no seu bife e no seu copo todo santo dia. E não é problema de velho: todo homem que come comida americana está acumulando essa lama. Cada polegada que o seu pau encolheu nos últimos 10 anos, e encolheu, você comparou no chuveiro e fingiu que não era nada, é barro de Roundup onde devia ter esponja viva.
 
 E é por isso que ele te traiu no pior momento. O sangue entrou, a parte viva tentou absorver, e a parte de barro não conseguiu. Ele entortou pro lado do bloco morto, começou e não terminou. Mole feito macarrão cozido na mão dela. Não estava na sua cabeça. Não era nervoso. O tesão veio. O sangue veio. Você sentiu ele querer subir e travar no meio do caminho. Mas a esponja já era barro. Foi isso que entortou na mão da mulher do Don naquele jantar.
 
@@ -63,7 +64,7 @@ E é por isso que ele te traiu no pior momento. O sangue entrou, a parte viva te
 
 E aqui está o que quase ninguém enxerga. A mesma lama que fez entortar é a que fez encolher. Cada polegada que sumiu é o bloco morto sentado onde a esponja devia inchar e crescer. Amolecer e encolher não são dois problemas. São a mesma ferida.
 
-E é isso que vai tirar 30 anos de peso das suas costas. Não é idade. Um homem de 70 com a esponja limpa fica duro feito pedra, e um de 40 com a esponja virada em barro não fica. Não é estresse. Não é falta de desejo. E não está na sua cabeça. É glifosato, travando e endurecendo o seu pau desde antes de você virar homem. E não é testosterona: o Dana proibiu a reposição no UFC em 2014, e os veteranos ficaram mais fortes. A testosterona deles não mudou. A esponja é que estava viva.
+E é isso que vai tirar 30 anos de peso das suas costas. Não é idade. Um homem de 70 com a esponja limpa fica duro feito pedra, e um de 40 com a esponja virada em barro não fica. Não é estresse. Não é falta de desejo. E não está na sua cabeça. É lama cavernosa, barro de Roundup travando e endurecendo o seu pau desde antes de você virar homem. E não é testosterona: o Dana proibiu a reposição no UFC em 2014, e os veteranos ficaram mais fortes. A testosterona deles não mudou. A esponja é que estava viva.
 
 E se você duvida, pensa na ereção da manhã. O seu corpo não mente enquanto você dorme. Se aquela que aparecia sozinha no meio da noite sumiu, não é psicológico. É físico. É lama.
 
@@ -75,7 +76,7 @@ Testosterona também não resolve. Ela é o sinal que manda a esponja trabalhar.
 
 A bomba? A bomba puxa sangue pra dentro de um tijolo, e o tijolo não se mexe: fica roxo e volta. O gel de 10 minutos? A esponja continua igual. E a cirurgia, menos ainda. Enfiam um implante numa esponja que continua morrendo por dentro, e você termina com um pau duro e morto ao mesmo tempo. 100% mecânico, zero sensação. E a cópia que você viu na internet, o bicarbonato no copo d'água dos atores pornôs? Solta uma camada da lama e não reconstrói nada. É metade do método, e metade de um método contra 30 anos de lama seca é nada.
 
-No fim, não é idade, não é estresse, não é testosterona. É lama cavernosa, secando em volta da sua esponja, refeição após refeição, despejada por gente que sabia exatamente o que estava fazendo.
+No fim, não é idade, não é estresse, não é testosterona. É lama cavernosa, a crosta de castração secando em volta da sua esponja, refeição após refeição, despejada por gente que sabia exatamente o que estava fazendo.
 
 Mas essa lama tem relógio, e seca num cronograma. Nos primeiros anos ela ainda é lama: uma noite falha, na outra funciona, e você culpa o cansaço. Com uns 18 meses vira barro: você começa a inventar desculpa pra nem tentar. Viagem. Prazo. Acordar cedo amanhã. Porque antes de tirar a roupa você já sente que vai entortar. Aos 5 anos é placa: falha metade das vezes, mesmo com a dose dobrada. E aos 10 é tijolo. Acabou. Vocês dois dormem como amigos. E ela está pensando em outro.
 
