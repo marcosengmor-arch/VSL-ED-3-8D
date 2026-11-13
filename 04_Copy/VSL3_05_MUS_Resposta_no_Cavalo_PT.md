@@ -93,6 +93,12 @@ E isso não é teoria. Um estudo da Johns Hopkins mediu exatamente esse efeito e
 
 [Dr. Drew Pinsky]
 
-E é aqui que o Stallion Soda Ritual se fecha. Dissolver, hidratar, reconstruir, proteger. 4 verbos, 4 passos, na ordem exata. Sozinho, cada um faz 10% do trabalho. A cópia dos atores pornôs que você viu na internet é um dos quatro, cru, num copo d'água: por isso funciona um pouco e para. Mas os 4 juntos, nas proporções certas, numa pasta embaixo da língua, fazem o que nenhuma pílula, nenhuma bomba, nenhuma haste de metal consegue fazer. E fazem rápido. Em 30 segundos a boca enche de água. Em 13 segundos com a mão fechada no pau, você sente ele esquentar na palma, o sangue chegando onde estava seco. Em 20 minutos, a veia do braço salta. No dia 4 você acorda duro feito pedra, sem pedir, e ela acorda com ele encostado na bunda. No dia 5 ele está visivelmente mais cheio na primeira mijada da manhã, e a urina clareando: a lama acabou de sair. No dia 11, sem Viagra, sem esperar 40 minutos, sem hora certa, ela passa a mão por cima da calça e ele já responde, e naquela noite ela não termina a frase que começou. No dia 21 o crescimento já dá pra medir com régua, e ela olha pra baixo e segura com as duas mãos. E no dia 30 a esponja está de volta à vida, com as polegadas que a lama roubou de volta no seu corpo, e ela de bruços, travesseiro na boca, pedindo pra parar e puxando você pra dentro ao mesmo tempo.
+E é aqui que o Stallion Soda Ritual se fecha. Dissolver, hidratar, reconstruir, proteger. 4 verbos, 4 passos, na ordem exata. Sozinho, cada um faz 10% do trabalho. A cópia dos atores pornôs que você viu na internet é um dos quatro, cru, num copo d'água: por isso funciona um pouco e para. Mas os 4 juntos, nas proporções certas, numa pasta embaixo da língua, fazem o que nenhuma pílula, nenhuma bomba, nenhuma haste de metal consegue fazer. E fazem rápido. Em 30 segundos a boca enche de água. Em 13 segundos com a mão fechada no pau, você sente ele esquentar, é o sangue chegando onde estava seco. Em 20 minutos, a veia do braço salta. No dia 4, a primeira ereção espontânea ao acordar.
+
+No dia 7, ele está visivelmente mais cheio na primeira mijada da manhã, e a urina clareando: a lama tóxica terminando de sair.
+
+No dia 14, sem Viagra, sem esperar 40 minutos, sem hora certa, ela passa a mão por cima da calça e ele já responde.
+
+No dia 21 o crescimento já dá pra medir com régua. E no dia 30 a esponja está de volta à vida, com as polegadas que a lama roubou de volta no seu corpo, e ela de bruços, travesseiro na boca, pedindo pra parar e puxando você pra dentro ao mesmo tempo.
 
 Em dias, não meses. E eu sei exatamente como isso soa: bom demais pra ser verdade. É justamente por isso que eu não vou te pedir pra acreditar em mim.
