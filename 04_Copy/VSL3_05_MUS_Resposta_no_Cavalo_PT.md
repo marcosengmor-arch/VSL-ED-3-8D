@@ -54,17 +54,17 @@ Mas dissolver é só o primeiro passo. 30 anos de barro deixaram a esponja seca 
 
 E esponja seca só volta de um jeito: de molho. Por isso a segunda coisa é hidratar. Porque ereção é sangue, e sangue é mais de 80% água. Com o tecido seco, tem menos sangue circulando e os vasos se fecham, então chega menos sangue lá embaixo, e o pouco que chega encontra uma esponja que não segura: ele entra e escorre. Quem faz esse trabalho é o sal. Não o sal de mesa, que seca ainda mais. O sal celta, o sal cinza e úmido do mar da Bretanha, com 84 minerais, que todo haras de Lexington mantém num bloco em cada baia e passa em pasta no garanhão depois de suar. Ele puxa água pra dentro do tecido, o volume de sangue volta, os vasos abrem, e a esponja volta a segurar o que entra. E segurar é o que importa, porque sangue que fica é pau que dura. É isso que mantém o garanhão em cima da égua por 40 minutos, e em você é a diferença entre gozar e amolecer em 10 minutos, ou continuar duro, rodada após rodada, a noite inteira. E tem o tanque: porra é 90% água, e 30 anos seco te deixaram com três gotas. Hidratado, você goza mais grosso, com mais volume, num jato forte, daquele que ela sente bater lá dentro e nunca esquece.
 
-E você sente o sal trabalhar na hora. Basta colocar uma pitada dele embaixo da língua e a boca enche de água sozinha. É o sal puxando água pro tecido, e o que a sua língua sente, acontece ao mesmo tempo no seu pau.
-
-E 20 minutos depois você vê com os olhos. Lembra da pesagem? O lutador desce da balança seco, sem uma veia no braço, e no dia seguinte, reidratado, está com a veia saltada. Olha o seu antebraço agora: a veia que não aparecia está ali. Agora pensa onde mais tem esponja que enche de sangue.
-
 [Dana White]
 
 Eu vi essa veia voltar em 700 lutadores. Nunca pensei que fosse a mesma coisa que eu precisava no meu pau.
 
 [Dr. Drew Pinsky]
 
-E o sal faz mais do que molhar. Durante os anos de barro, os receptores de testosterona dentro da sua esponja ficaram dormentes. Não morreram, silenciaram. E receptor funciona com mineral: magnésio pro óxido nítrico, potássio pro impulso nervoso, zinco e boro pro receptor. Sem mineral, o sinal não chega. O sal celta devolve os 4 de uma vez e reativa o que já existe em você, sem injetar testosterona, sem TRT, sem cobrar no fígado como cobrou do Don. A sua testosterona estava lá o tempo todo. O que faltava era a esponja conseguir ouvir. E quando ela ouve, o desejo volta com força: você acorda com tesão feito adolescente, olha pra ela e sente de novo o que achava que a idade tinha levado, a vontade de agarrar, de tomar a iniciativa, de mandar na cama. Mas uma esponja limpa e molhada ainda é uma esponja cheia de furos.
+E a água é só metade do que esse sal carrega. A outra metade são os 84 minerais, e é com eles que o sal faz a coisa que nenhuma pílula faz: acorda o sinal. Durante os anos de barro, os receptores de testosterona dentro da sua esponja ficaram dormentes. Não morreram, silenciaram. E receptor funciona com mineral: magnésio pro óxido nítrico, potássio pro impulso nervoso, zinco e boro pro receptor. Sem mineral, o sinal não chega. O sal celta devolve os 4 de uma vez e reativa o que já existe em você, sem injetar testosterona, sem TRT, sem cobrar no fígado como cobrou do Don. A sua testosterona estava lá o tempo todo. O que faltava era a esponja conseguir ouvir. E quando ela ouve, o desejo volta com força: você acorda com tesão feito adolescente, olha pra ela e sente de novo o que achava que a idade tinha levado, a vontade de agarrar, de tomar a iniciativa, de mandar na cama.
+
+E você sente o sal trabalhar na hora. Basta colocar uma pitada dele embaixo da língua e a boca enche de água sozinha. É o sal puxando água pro tecido, e o que a sua língua sente, acontece ao mesmo tempo no seu pau.
+
+E 20 minutos depois você vê com os olhos. Lembra da pesagem? O lutador desce da balança seco, sem uma veia no braço, e no dia seguinte, reidratado, está com a veia saltada. Olha o seu antebraço agora: a veia que não aparecia está ali. Agora pensa onde mais tem esponja que enche de sangue. Mas uma esponja limpa e molhada ainda é uma esponja cheia de furos.
 
 ## Verbo 3: RECONSTRUIR
 
