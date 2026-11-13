@@ -112,9 +112,9 @@ Em dias, não meses. E eu sei exatamente como isso soa: bom demais pra ser verda
 
 Eu estou no Gluck Equine Research Center, da Universidade de Kentucky, o centro mais avançado do mundo em tendão e colágeno de cavalo, o laboratório que os donos dos garanhões de 30 milhões pagam pra manter o tendão deles vivo. E vou testar essa fórmula na sua frente, contra a mesma lama que está secando a sua esponja agora.
 
-O que você está vendo é um bloco de lama cavernosa retirado de tecido do corpo cavernoso. É isso que o glifosato faz com a esponja ao longo dos anos. É duro, em camadas, e em condições normais não sai. Deixamos em água com sal por três semanas e nada mudou.
+O que você está vendo é um bloco de lama cavernosa retirado de tecido do corpo cavernoso. É isso que o glifosato faz com a esponja ao longo dos anos. É duro, em camadas, e em condições normais não sai. Pingamos em cima algumas gotas de citrato de sildenafila e de tadalafila, os compostos do Viagra e do Cialis, e deixamos por três semanas. Eles não dissolveram nada. A lama continuou igual.
 
-[MONITOR: "LAMA CAVERNOSA · DIA 21"]
+[MONITOR: "LAMA CAVERNOSA · VIAGRA + CIALIS · DIA 21"]
 
 Agora, preparamos uma pequena quantidade dos quatro ingredientes combinados. Bicarbonato, sal celta, colágeno de garanhão e Pycnogenol, na mesma proporção que o tratador de Lexington usa no cocho. Observe o que acontece quando entram em contato com a lama.
 
