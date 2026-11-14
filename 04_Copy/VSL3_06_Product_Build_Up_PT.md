@@ -35,9 +35,13 @@ Ela gemia que nem uma atriz pornô em cima do meu pau. Fodi ela por quase duas h
 
 E quando inundei aquela buceta quente, não amoleci. Aos 60 anos, ela sentou na minha cara e esguichou como as mulheres esguichavam pra mim em 1996. De manhã me disse que nunca tinha sido fodida daquele jeito. Nem pelos lutadores de 30.
 
+[Dana White]
+
+No 21º dia ele tinha ganhado 2,5 polegadas, medidas em laboratório certificado. Mas eu sei o que você está pensando: é o Don Frye falando do próprio pau, e lenda conta história. Eu também não compro depoimento. Eu compro exame. Por isso eu pedi pro Dr. Drew provar na sua frente, e ele trouxe três coisas que não mentem.
+
 [Dr. Drew Pinsky]
 
-No 21º dia ele tinha ganhado 2,5 polegadas, medidas em laboratório certificado. Mas isso não é prova, e eu sou médico. Deixa eu te mostrar três coisas. A primeira é a ressonância do Don. Dia 1, 60% de lama. Aquele exame que você viu na tese era dele. 30 dias depois, 28%. Metade do dano de 30 anos revertido num mês. A segunda é a declaração e o teste de gravidez da ring girl de 28 anos.
+A primeira é a ressonância do Don. Dia 1, 60% de lama. Aquele exame que você viu na tese era dele. 30 dias depois, 28%. Metade do dano de 30 anos revertido num mês. A segunda é a declaração e o teste de gravidez da ring girl de 28 anos.
 
 [Ring girl, 28 anos]
 
