@@ -113,7 +113,7 @@ E foi aí que o Dr. Nathan Holloway, diretor de P&D desse laboratório federal, 
 
 [Dana White]
 
-Com todo esse apoio, tecnologia de ponta e 3 meses de trabalho do Dr. Drew ao lado de uma equipe de cientistas militares, a fórmula virou uma goma, atendendo 100% das exigências da FDA sem perder a força. Uma fórmula que não só resolve o pau mole, mas transforma homem comum em garanhão com pau de garanhão, uma máquina de reprodução. Quando ficou pronta, liguei pro Don. "Sem um rosto, isso vira mais um suplemento perdido no Google. Com a sua cara e o seu bigode na frente, não morre." Ele topou na hora. Deu o nome e a imagem sem cobrar um centavo, com uma condição: que custasse o que um lutador aposentado vivendo de pensão consegue pagar. E eu botei a minha: o governo pagou a pesquisa, então nada de preço de farmacêutica. Cobra o que custa pra fabricar, ponto. Foi assim que nasceu o produto que vai pras suas mãos daqui a um minuto.
+Com todo esse apoio, tecnologia de ponta e 3 meses de trabalho do Dr. Drew ao lado de uma equipe de cientistas militares, a fórmula virou uma goma, atendendo 100% das exigências da FDA sem perder a força. Uma fórmula que não só resolve o pau mole, mas transforma homem comum em garanhão com pau de garanhão, uma máquina de reprodução. Quando ficou pronta, o Dr. Holloway me ligou de volta. "Dana, sem um rosto isso vira mais um suplemento perdido no Google. Com a sua cara na frente, não morre." E eu disse que só botava o meu nome nisso com uma condição: nada de preço predatório de farmacêutica. Cobra o que custa pra fabricar, ponto. Ele aceitou. Foi assim que nasceu o produto que vai pras suas mãos daqui a um minuto.
 
 [Dr. Drew Pinsky]
 
