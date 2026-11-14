@@ -3,6 +3,7 @@
 > Molde: a Big Offer controle da VSL 2 (`big_offer_-_goat_honey_rock.docx`, Hyman/Al, 3.873 palavras), modelada frase a frase, seção a seção: Product Presentation (o nome; "até 3 frascos de graça, já chego nisso"; a primeira e única fórmula; os 4 verbos numa goma; os benefícios por verbo; "pra quem quer fazer qualquer mulher gozar"; 3 polegadas; "não importa quem você é"; o Al/os 117/os 3.000; sem genérico por 5 anos; como tomar; a fabricação e os "sem"; o Dr. Oz e o voluntário de 79; os atores pornôs: a atriz e o Mick Blue; vazou pra Hollywood: Harrison Ford e Van Damme; a esposa Diane; os 67 frascos, os 5.000 inscritos, o próximo lote em 90–120 dias; a oferta 3 + 3; o aviso honesto dos 4 e 6 meses; a uróloga) → Pitch (a condição do sócio; $500, $400, $300, $147; 6 por $294, $49; por que o kit de 6; o vídeo explodiu, 5 milhões; os que voltaram; a vaga trava por 15 minutos; 6, 3 e 2 frascos; "se pode pagar mais, pague mais pelo seu próprio pau") → a interrupção do Al (o Prêmio Nobel de Saúde Masculina; os primeiros 20 com reembolso total; o fim de semana no iate; a modelo; o ganhador) → Bonus (Johnny Sins; posições brasileiras; orgasmo prolongado; o truque das lésbicas; a consulta por Zoom; o 6º bônus; $3.977) → Guarantee (abra a caixa; se não acontecer, devolvo e mando $200; 60 dias; a GOAT Guarantee; o Dale de Chicago; "quando a Pfizer te devolveu um dólar?"; "ouça do próprio Al").
 > O que troca pra nossa VSL (só o necessário): o produto é **Stallion Soda** e a goma é "do garanhão"; cimento → lama cavernosa; os 4 verbos = dissolver, hidratar (com os receptores acordando, bônus do sal), reconstruir, proteger; o chifre → o tendão; o bode velho na monta → o garanhão velho na cobertura; o Al → o Don; os 117 e os 3.000 como no Build Up; o genérico: o tendão de Percheron só em Lexington e o sal celta só colhido no verão na Bretanha; a fabricação: o laboratório federal, em solo americano, 21 CFR 111; **o Dr. Oz** fica (é "o homem que o Presidente colocou pra cuidar da saúde dos americanos mais velhos", D7); os estúdios pornôs: o Dana vai com **o produtor de Vegas** que já tinha vazado a cópia (a origem assinada), a atriz e o **Mick Blue** ficam; vazou pra Hollywood pelo Don e pelo Randy: **Stallone (79) e Van Damme (65)**, os dois de Os Mercenários, no lugar de Harrison Ford e do Van Damme; a esposa **Diane e o Earl Baker**, 62, contador aposentado em Tulsa (renomeados: "Holloway" já é o Dr. Holloway e "Ray" já é o sargento); a uróloga = **Dra. Annika Ackerman**; a condição do preço é a do Dana (não do sócio); **quem narra a Big Offer é o Dr. Drew; o Dana interrompe** no papel do Al (o Nobel, os 20 reembolsos, **o fim de semana em Las Vegas na noite de luta** no lugar do iate: primeira fila ao lado do Dana, suíte, festa pós-luta, uma modelo da festa, nunca uma ring girl real); a consulta por Zoom é com o Dr. Drew; a garantia vira **Stallion Guarantee**; o Dale pede desculpas ao Dana; o fecho entrega pro Dana ("ouça do próprio Dana").
 > v1.1 (14/11): divisão de vozes refeita: o Dr. Drew faz só a Product Presentation até os 'sem' (a fórmula, os verbos, como tomar); da fabricação em diante é o **Dana** (o Oz, os estúdios, Stallone e Van Damme, a Diane, os 67 frascos, o aviso, o Pitch, o Bonus, a Guarantee), porque o produto é dele. O Dr. Drew interrompe uma vez, com o Nobel; a consulta por Zoom é com ele; a Dra. Annika 'cuida dos meus lutadores há 12 anos'; o fecho entrega pro Don ('o homem que estava pior do que você').
+> v1.2 (14/11): as conexões e os depoimentos (Hollywood, Stallone, Van Damme, a Diane) ficam com o Dana ('o meu telefone não parava'); o Dr. Drew volta em 'mas antes de te mostrar como conseguir' (os 67 frascos, o aviso dos 4 e 6 meses, a Dra. Annika 'grande amiga minha'); o Pitch, o Bonus e a Guarantee seguem com o Dana.
 > Tamanho-alvo: controle ≈ 3.870 palavras.
 
 ---
@@ -71,7 +72,7 @@ Eu dependia do Viagra, e era um pesadelo. Tontura, palpitação, medo de infarta
 
 E a notícia não ficou no set pornô. Vazou pra Hollywood.
 
-Em duas semanas, o telefone do Don e do Randy não parava: os amigos deles de Os Mercenários queriam saber o que os caras do pornô estavam tomando pra foder duas horas aos 60. Homens que podem pagar qualquer coisa neste mundo, e que até então não tinham nada que funcionasse. O primeiro que testou foi o Sylvester Stallone.
+Em duas semanas, o meu telefone não parava: os amigos do Don e do Randy de Os Mercenários queriam saber o que os caras do pornô estavam tomando pra foder duas horas aos 60. Homens que podem pagar qualquer coisa neste mundo, e que até então não tinham nada que funcionasse. O primeiro que testou foi o Sylvester Stallone.
 
 [Depoimento — Sylvester Stallone]
 
@@ -91,7 +92,7 @@ O segundo a ligar foi Jean-Claude Van Damme.
 
 [Dana White]
 
-Agora ouça de uma mulher, porque é a mulher que sente, que percebe. Diane Baker, esposa de Earl Baker, 62 anos, contador aposentado em Tulsa, Oklahoma. O Earl entrou no ensaio dos 3.000. A Diane gravou pra mim na semana passada.
+Agora ouça de uma mulher, porque é a mulher que sente, que percebe. Diane Baker, esposa de Earl Baker, 62 anos, contador aposentado em Tulsa, Oklahoma. O Earl entrou no ensaio dos 3.000. A Diane me mandou isso na semana passada.
 
 [Depoimento — Diane]
 
@@ -99,7 +100,7 @@ Meu nome é Diane, 56 anos, casada com o Earl há 32. O Earl ficou 6 anos sem me
 
 Em 6 anos, aquilo não tinha acontecido. Ele botou em mim de lado e me fodeu por 40 minutos. Eu chorei. Não de dor. De saudade. Ele ficou maior, mais grosso, mais duro, aos 62 anos. Eu não sou paga pra dizer isso. O Stallion Soda me devolveu o meu marido.
 
-[Dana White]
+[Dr. Drew Pinsky]
 
 Mas antes de te mostrar como conseguir o Stallion Soda hoje, você precisa saber de uma coisa. Enquanto gravo isto, temos exatamente 67 frascos em estoque pra distribuição imediata. 5.000 homens já se inscreveram antes de o vídeo ir ao ar.
 
@@ -113,7 +114,7 @@ Por isso o uso contínuo por pelo menos 4 meses, o tempo que o corpo leva pra de
 
 100% dos homens que completaram 6 meses mantiveram ereções de mais de 50 minutos, com ganhos de comprimento e grossura, cargas enormes de esperma, recuperação mais rápida, e uma libido tão intensa que só de ver a esposa já ficaram duros como aço.
 
-E nunca mais decepcionaram as esposas ou namoradas com desculpa esfarrapada sobre virilidade, independente da idade. Não é coincidência que uma das principais urologistas dos Estados Unidos, a Dra. Annika Ackerman, que cuida dos meus lutadores há 12 anos, classificou isto como a fórmula mais segura e mais eficaz.
+E nunca mais decepcionaram as esposas ou namoradas com desculpa esfarrapada sobre virilidade, independente da idade. Não é coincidência que uma das principais urologistas dos Estados Unidos, a Dra. Annika Ackerman, uma grande amiga minha, classificou isto como a fórmula mais segura e mais eficaz.
 
 [Depoimento — Dra. Annika Ackerman]
 
