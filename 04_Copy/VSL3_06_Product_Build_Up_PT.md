@@ -87,7 +87,7 @@ São 4 da manhã e eu desci pra pegar água porque não sinto mais as minhas per
 
 [Dana White]
 
-E não parou na cama de casa deles.
+E não parou na cama de casa deles. Um dos 117 era o Mark Coleman, o Hammer, primeiro campeão peso-pesado da história do UFC, que você já ouviu no começo deste vídeo. Ele me mandou esse áudio do churrasco, e eu pedi pra ele repetir na câmera. Olha o que o velho martelo anda fazendo em Ohio.
 
 [Depoimento 03 — Mark Coleman, 61, lenda do UFC]
 
