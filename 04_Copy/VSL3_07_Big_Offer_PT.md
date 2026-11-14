@@ -7,6 +7,7 @@
 > v1.3 (14/11): divisão final de vozes (decisão do Marcos): Dr. Drew = apresentação até os 'sem'; Dana = da fabricação até a Diane/Statham (o Oz, os estúdios, Lundgren, Van Damme, a mulher do Statham); Dr. Drew volta nos 67 frascos e conduz o Pitch, o Bonus e a Guarantee, como no controle; o Dana aparece interrompendo o vídeo (o Nobel, os 20 reembolsos, Vegas); o fecho 'ouça do próprio Dana'.
 > v1.4 (14/11): o prêmio de Vegas na versão do Marcos: suíte no The Cosmopolitan, 5 mil em dinheiro pro cassino, a luta opcional (primeira fila ao lado do Dana, ou cassino/clube de stripper na conta dele), uma ring girl de 28 (sem nome, personagem) em vez da modelo, sexo na sacada com a torre do lado olhando de binóculo; o ganhador atualizado. Nota: The Cosmopolitan é marca de terceiro nomeada (regra de ad: não usar marcas; aqui é dentro da VSL, decisão do Marcos).
 > v1.5 (14/11): na Guarantee o Dr. Drew abre ('abra a caixa, veja a ereção matinal') e o Dana entra pra dar força ('aí entro eu': devolve tudo, os $200, 'eu sou o cara que processa gente por esporte e estou me obrigando por contrato', a Stallion Guarantee, os 60 dias), o Dale pede desculpas ao Dana, e o Dana fecha ('eu não boto o meu nome em merda nenhuma, boto nisso') entregando pro Don.
+> v1.6 (14/11): entra a esposa UGC que comprou escondido (ponto M do arquivo 16), modelada no depoimento do controle (Goat Honey Rock) e enxuta, depois da mulher do Statham e antes de o Dr. Drew voltar nos 67 frascos.
 > Tamanho-alvo: controle ≈ 3.870 palavras.
 
 ---
@@ -102,6 +103,18 @@ Agora ouça de uma mulher, porque é a mulher que sente, que percebe. A mulher d
 Dana, eu precisava te agradecer na câmera. 15 anos com o Jason, dois filhos. Pro mundo ele arrebenta 10 caras numa cena. Em casa, nos últimos 2 anos, não dava mais conta de mim, e eu não vou mentir: eu estava a um treino de trocar ele pelo personal de 40 que vinha em casa três vezes por semana.
 
 No 12º dia da sua fórmula, o Jason me acordou às 4 da manhã, duro como pedra contra a minha bunda, e me fodeu de lado por 40 minutos. Eu chorei de saudade. Ele ficou maior, mais grosso, mais duro, aos 58. No dia seguinte eu demiti o personal. Eu sou paga pra não dizer essas coisas. O Stallion Soda me devolveu o meu homem. Obrigada, Dana.
+
+[Dana White]
+
+E essa aqui comprou escondido do marido. Chegou na minha caixa de entrada sem nome, só com o vídeo.
+
+[Depoimento — Esposa, UGC]
+
+Comprei isso pro meu marido sem ele saber. Eu já não aguentava mais. Dois anos sem sexo, dois anos dele virando pro outro lado à noite. Quase traí ele com o vizinho. Mas antes decidi experimentar o Stallion Soda. Dei uma goma pra ele sem explicar nada, ele achou que era um doce.
+
+Naquela noite ele chegou do trabalho, jogou a pasta na mesa e olhou pra mim como se não me visse há anos. Me segurou pelo pescoço, me curvou na pia da cozinha, levantou o vestido e puxou a calcinha pro lado. Senti o pau dele pressionando, grosso e pesado, parecia de outro homem. Entrou com tudo na primeira estocada e eu gritei. Me comeu ali mesmo, com tanta força que eu arranhei a bancada. Gozei duas vezes antes de ele gozar. Depois me levou pro quarto e foi de novo, e de novo.
+
+Rapazes, usem o Stallion Soda se não quiserem que a esposa de vocês acabe transando com outro cara. Podem me agradecer depois.
 
 [Dr. Drew Pinsky]
 
