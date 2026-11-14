@@ -94,11 +94,11 @@ O segundo a ligar foi Jean-Claude Van Damme.
 
 Agora ouça de uma mulher, porque é a mulher que sente, que percebe. A mulher do Jason Statham, o Transportador, 58 anos, o cara mais durão do cinema de ação, que entrou no ensaio dos 3.000 pelo Randy. Ela me mandou isso na semana passada, e pediu pra eu mostrar.
 
-[Depoimento — a mulher do Jason Statham]
+[Depoimento — a mulher do Jason Statham, vídeo de agradecimento]
 
-Eu tenho 38 anos, 15 anos com o Jason, dois filhos. Pro mundo ele é o homem que arrebenta 10 caras numa cena. Em casa, nos últimos 2 anos, ele não dava mais conta de mim. A gente dormia no mesmo quarto, mas era amizade. E eu tinha um personal trainer de 40 anos vindo em casa três vezes por semana. Eu não vou mentir: eu estava a um treino de trocar o Jason por ele.
+Dana, eu precisava te agradecer na câmera. 15 anos com o Jason, dois filhos. Pro mundo ele arrebenta 10 caras numa cena. Em casa, nos últimos 2 anos, não dava mais conta de mim, e eu não vou mentir: eu estava a um treino de trocar ele pelo personal de 40 que vinha em casa três vezes por semana.
 
-No 12º dia do ensaio, o Jason me acordou às 4 da manhã, duro como pedra contra a minha bunda. Em 2 anos, aquilo não tinha acontecido. Ele botou em mim de lado e me fodeu por 40 minutos. Eu chorei. Não de dor. De saudade. Ele ficou maior, mais grosso, mais duro, aos 58 anos. No dia seguinte eu demiti o personal. Eu não sou paga pra dizer isso, eu sou paga pra não dizer essas coisas. O Stallion Soda me devolveu o meu homem.
+No 12º dia da sua fórmula, o Jason me acordou às 4 da manhã, duro como pedra contra a minha bunda, e me fodeu de lado por 40 minutos. Eu chorei de saudade. Ele ficou maior, mais grosso, mais duro, aos 58. No dia seguinte eu demiti o personal. Eu sou paga pra não dizer essas coisas. O Stallion Soda me devolveu o meu homem. Obrigada, Dana.
 
 [Dr. Drew Pinsky]
 
