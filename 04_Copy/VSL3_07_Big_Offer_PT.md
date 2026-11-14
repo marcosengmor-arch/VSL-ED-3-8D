@@ -172,7 +172,7 @@ No momento em que o seu pagamento for aprovado, a minha equipe processa um reemb
 
 Além disso, você é convidado pessoalmente pra um fim de semana em Las Vegas, na próxima noite de luta. Voo de primeira classe, suíte no topo do The Cosmopolitan com tudo pago, e 5 mil dólares em dinheiro vivo na sua mão pra torrar no cassino como quiser.
 
-Se você é casado, traz a sua mulher. No sábado vocês sentam na primeira fila do octógono, do lado da minha cadeira, e se ela não for fã de luta, vocês somem no cassino com os 5 mil. Depois, a festa é no meu camarote, e o que acontecer entre vocês dois atrás da porta da suíte, com esse pau novo, não é da conta de ninguém além de vocês.
+Se você é casado, traz a sua mulher. No sábado vocês sentam na primeira fila do octógono, do lado da minha cadeira, e se ela não for fã de luta, vocês somem no cassino com os 5 mil, ou jantam no melhor restaurante da Strip, mesa com vista, vinho que ela escolher, na minha conta. Depois, a festa é no meu camarote, e o que acontecer entre vocês dois atrás da porta da suíte, com esse pau novo, não é da conta de ninguém além de vocês.
 
 Se você é solteiro, vem sozinho que eu garanto o resto: uma ring girl gostosa de 28 anos cuidando de você a estadia inteira, e o melhor clube de stripper da cidade na minha conta. Imagina ver o sol nascer sobre a Strip da sacada do Cosmopolitan, fodendo essa novinha dobrada na grade, com o pau novo enterrado fundo nela, enquanto ela implora pra não parar e os caras da torre do lado assistem de binóculo. Parece bom demais pra ser verdade? Escuta o último sortudo que aproveitou tudo isso.
 
