@@ -6,6 +6,7 @@
 > v1.2 (14/11): as conexões e os depoimentos (Hollywood, Stallone, Van Damme, a Diane) ficam com o Dana ('o meu telefone não parava'); o Dr. Drew volta em 'mas antes de te mostrar como conseguir' (os 67 frascos, o aviso dos 4 e 6 meses, a Dra. Annika 'grande amiga minha'); o Pitch, o Bonus e a Guarantee seguem com o Dana.
 > v1.3 (14/11): divisão final de vozes (decisão do Marcos): Dr. Drew = apresentação até os 'sem'; Dana = da fabricação até a Diane/Statham (o Oz, os estúdios, Lundgren, Van Damme, a mulher do Statham); Dr. Drew volta nos 67 frascos e conduz o Pitch, o Bonus e a Guarantee, como no controle; o Dana aparece interrompendo o vídeo (o Nobel, os 20 reembolsos, Vegas); o fecho 'ouça do próprio Dana'.
 > v1.4 (14/11): o prêmio de Vegas na versão do Marcos: suíte no The Cosmopolitan, 5 mil em dinheiro pro cassino, a luta opcional (primeira fila ao lado do Dana, ou cassino/clube de stripper na conta dele), uma ring girl de 28 (sem nome, personagem) em vez da modelo, sexo na sacada com a torre do lado olhando de binóculo; o ganhador atualizado. Nota: The Cosmopolitan é marca de terceiro nomeada (regra de ad: não usar marcas; aqui é dentro da VSL, decisão do Marcos).
+> v1.5 (14/11): na Guarantee o Dr. Drew abre ('abra a caixa, veja a ereção matinal') e o Dana entra pra dar força ('aí entro eu': devolve tudo, os $200, 'eu sou o cara que processa gente por esporte e estou me obrigando por contrato', a Stallion Guarantee, os 60 dias), o Dale pede desculpas ao Dana, e o Dana fecha ('eu não boto o meu nome em merda nenhuma, boto nisso') entregando pro Don.
 > Tamanho-alvo: controle ≈ 3.870 palavras.
 
 ---
@@ -242,11 +243,11 @@ Assim que você garantir o seu pacote de Stallion Soda e receber em casa nos pr�
 
 Veja a sua ereção matinal dando oi pra você de novo. Sinta o seu membro ficar duro feito pedra quando você quiser, como se tivesse 20 anos de novo, e experimente ereções firmes e potentes que duram a noite inteira em sexo selvagem.
 
-Se isso não acontecer, se por qualquer motivo você não recuperar ereções rígidas nas primeiras 4 semanas, se não sentir um desejo sexual insaciável pela sua esposa…
+[Dana White]
 
-Se não satisfizer a sua esposa toda noite com sexo intenso e selvagem, ou até se não gostar da cor do frasco, eu devolvo cada centavo do seu dinheiro, e você pode ficar com todas as gomas e frascos restantes.
+E se isso não acontecer, aí entro eu. Se por qualquer motivo você não recuperar ereções rígidas nas primeiras 4 semanas, se não sentir um desejo sexual insaciável pela sua esposa, se não satisfizer ela toda noite com sexo intenso e selvagem, ou até se não gostar da cor do frasco, eu devolvo cada centavo do seu dinheiro, e você fica com todas as gomas e frascos restantes.
 
-E mais: eu te mando $200 a mais direto pra sua conta, só pelo trabalho de ter testado. Fica com os frascos, fica com os $200. É assim que eu tenho certeza.
+E mais: eu te mando $200 a mais direto pra sua conta, só pelo trabalho de ter testado. Fica com os frascos, fica com os $200. É assim que eu tenho certeza. Eu sou o cara que processa gente por esporte, e eu estou me obrigando por contrato a te pagar se isso não funcionar.
 
 É só mandar um e-mail pra minha equipe de suporte, ou dar uma ligação, em até 60 dias da compra, e você recebe o reembolso instantaneamente. Sem perguntas, sem ressentimentos, risco zero. Essa é a Stallion Guarantee.
 
@@ -260,8 +261,8 @@ Eu devo um pedido de desculpas ao Dana. Quando os meus 6 frascos chegaram, a min
 
 Isso me desarmou. Abri o frasco. No quarto dia, acordei com uma ereção que eu não sentia há anos. Fodi a minha esposa ali mesmo. Duas vezes antes do café. 14 anos de casamento, e hoje ela goza toda noite.
 
-[Dr. Drew Pinsky]
+[Dana White]
 
 Me diz uma coisa: quantas vezes um médico te deu uma garantia dessas? Quantas vezes a indústria farmacêutica ofereceu isso pros remédios cheios de efeitos colaterais que ela empurra pra você? Quando foi que a Pfizer te devolveu um dólar? Nunca.
 
-Se eu não tivesse certeza absoluta, eu iria à falência. E antes de você escolher, eu quero que você ouça isto do próprio Dana.
+Se eu não tivesse certeza absoluta, eu iria à falência. Eu não boto o meu nome em merda nenhuma. Boto nisso. E antes de você escolher, eu quero que você ouça isto do homem que estava pior do que você.
