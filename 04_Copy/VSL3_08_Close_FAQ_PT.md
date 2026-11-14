@@ -2,6 +2,7 @@
 
 > Molde: o Close e o FAQ da VSL 2 (`00_base/vsl2_ironpulsex/EN_VSL_Completa_IronPulseX.md`, do "[Al Pacino] I put my name on this" até "Thanks for watching"), que é o bloco 24 da Soda Horse com o Al no lugar do Kevin. Frase a frase: o primeiro homem abre ("botei o meu nome nisso porque fui o primeiro que ele consertou; tem outro filho a caminho; duas escolhas: fecha o vídeo e dorme de costas, ou clica e faz o que eu fiz") → "o Al tem razão: dois caminhos" → o primeiro (18 meses, 5 anos, 10 anos, o jantar de família) → o segundo (desce a página, o kit de 6, o botão verde, 72 horas, caixa discreta, 4 dias, 14, 30, 3 meses) → "um caminho leva à rendição, o outro ao homem que ela escolheu; você é o homem que clica ou não é" → "eu já fiz a minha parte" (o recap) → "o único risco é não fazer nada; outro homem já está clicando" → "imagina daqui a 3 meses" (future pacing) → as 3 razões (lógica, mecânica, identidade) → o CTA → FAQ (Travis, Ray, Dwayne, Robert Miller, Brian, Joseph Garcia) → despedida.
 > O que troca pra nossa VSL (só o necessário): o Al → **o Don** abre ("fui o primeiro homem que o Dana consertou; 60 anos; o terceiro filho a caminho, e desta vez não precisei de teste"); **quem narra o close e o FAQ é o Dana** (decisão registrada: FAQ e CTA na voz dele), então o recap vira "o Dr. Drew te mostrou a ciência, eu te levei ao rancho e a Lexington"; cimento → lama cavernosa; o bode → o garanhão; Hill Country → Lexington; a Donna/Diane → a mulher do Statham; os nomes do FAQ ficam, com as respostas na voz do Dana (palavrão e piada dele); "a energia de um bode" → "de um garanhão"; a Stallion Guarantee.
+> v1.1 (14/11): vozes do Close: o Don abre; o Dr. Drew faz os dois caminhos ('o Don tem razão' até 'pega de volta o seu pau, a sua mulher e a sua vida'); o Dana do 'eu já fiz a minha parte' até o CTA (as partes médicas atribuídas ao Dr. Drew em menção). FAQ: o Dana abre e passa pro Dr. Drew responder; o Dana fecha ('bom, é isso... obrigado por assistir').
 > Tamanho-alvo: controle ≈ 1.500 palavras (close ≈ 1.050 + FAQ ≈ 450).
 
 ---
@@ -14,7 +15,7 @@ Eu botei o meu nome e o meu bigode nisso porque fui o primeiro homem que o Dana 
 
 Você tem duas escolhas agora. Fechar este vídeo e continuar dormindo de costas pra sua mulher, esperando o próximo lutador de 40 aparecer no seu celeiro. Ou clicar no botão e fazer o que eu fiz. Eu fiz. Aos 60, com o coração descompassado e dez anos de pau morto. Se funcionou pra mim, vai funcionar pra você.
 
-[Dana White]
+[Dr. Drew Pinsky]
 
 O Don tem razão. Deste ponto em diante, você tem dois caminhos. Só dois. No primeiro, você fecha este vídeo e segue com a sua vida do jeito que estava. A lama continua secando dentro de você, em silêncio.
 
@@ -26,7 +27,11 @@ Você coloca os seus dados numa página segura, e em 72 horas o Stallion Soda ch
 
 E em três meses, ela parou de olhar pra qualquer outro homem. Um caminho leva à rendição. O outro leva de volta ao homem que ela escolheu um dia. Você é o homem que clica, ou não é.
 
-Clica no botão verde, escolhe o seu kit, e pega de volta o seu pau, a sua mulher e a sua vida. Olha, eu já fiz a minha parte. O Dr. Drew te mostrou a ciência: o glifosato, a lama cavernosa, o barro secando a sua esponja por dentro.
+Clica no botão verde, escolhe o seu kit, e pega de volta o seu pau, a sua mulher e a sua vida.
+
+[Dana White]
+
+Olha, eu já fiz a minha parte. O Dr. Drew te mostrou a ciência: o glifosato, a lama cavernosa, o barro secando a sua esponja por dentro.
 
 Eu te levei ao rancho do Don e a Lexington, e te mostrei o segredo do garanhão. O cocho, o bloco de sal, a pasta. Te mostrei o Don. A ressonância dele. Te mostrei o Lundgren, o Van Damme, a mulher do Statham, a um treino de trocar o marido. O trial de 3.000 homens e os 94% de reversão.
 
@@ -44,11 +49,11 @@ Você vai foder a noite inteira sem amolecer. Vai fazer ela esguichar, fazer ela
 
 Ela vai te olhar com aquele desejo do começo, e com um medo novo: te perder pra outra. É isso que está do outro lado desta decisão, a um clique de distância, e enquanto você desce a página, eu vou te dar 3 motivos pra clicar antes de fechar.
 
-O primeiro é lógico. Você assistiu até aqui. Viu a ciência, o glifosato, o cocho de Lexington, o laboratório federal. Viu o Don, o trial de 3.000 homens, os 94% de reversão. Cada número que eu te dei, cada rosto que eu te mostrei tem nome. Faça a única escolha que um homem inteligente faria diante de tanta prova.
+O primeiro é lógico. Você assistiu até aqui. Viu a ciência do Dr. Drew, o glifosato, o cocho de Lexington, o laboratório federal. Viu o Don, o trial de 3.000 homens, os 94% de reversão. Cada número que a gente te deu, cada rosto que eu te mostrei tem nome. Faça a única escolha que um homem inteligente faria diante de tanta prova.
 
-O segundo é mecânico. O kit de 6 frascos dissolve toda a lama e trava o resultado pra ela não voltar. Não é o kit de 3 frascos, não é o kit de 2 frascos, é o kit de 6 frascos, porque o protocolo é de 6 meses.
+O segundo é mecânico. O kit de 6 frascos dissolve toda a lama e trava o resultado pra ela não voltar. Não é o kit de 3 frascos, não é o kit de 2 frascos, é o kit de 6 frascos, porque o protocolo do Dr. Drew é de 6 meses.
 
-É o tempo que leva pra dissolver 30 anos de barro, molhar e acordar a esponja, reconstruir ela inteira e blindar contra o glifosato. 3 meses trazem resultado, mas a lama volta a assentar, e você está de volta nesta página em 90 dias, pagando frete e um preço maior, se ainda tiver estoque.
+É o tempo que ele te mostrou que leva pra dissolver 30 anos de barro, molhar e acordar a esponja, reconstruir ela inteira e blindar contra o glifosato. 3 meses trazem resultado, mas a lama volta a assentar, e você está de volta nesta página em 90 dias, pagando frete e um preço maior, se ainda tiver estoque.
 
 Faça uma vez. Termine o ciclo. Escolha o kit de 6 frascos.
 
@@ -62,7 +67,9 @@ Você tem 3 motivos pra clicar: lógica, mecânica, identidade. Escolha um, esco
 
 [Dana White]
 
-Alô? Ainda aí? Beleza. Eu sei que você ainda pode ter uma ou duas perguntas, então eu vou responder as que os clientes mais fazem.
+Alô? Ainda aí? Beleza. Eu sei que você ainda pode ter uma ou duas perguntas, e como são perguntas de médico, eu vou deixar o Dr. Drew responder as que os clientes mais fazem.
+
+[Dr. Drew Pinsky]
 
 O Travis, de Phoenix, perguntou: "Comecei o Stallion Soda há três dias e não sei se estou ficando louco, mas estou acordando com uma barraca armada, e o meu pênis está claramente duro feito pedra. A cueca mal segura o peso. Isso é normal? Não está funcionando rápido demais?"
 
@@ -87,6 +94,8 @@ Que bom que gostou, Brian. O Stallion Soda tem uma parceria exclusiva com aquela
 O Joseph Garcia, de Los Angeles, perguntou: "Eu durava 5 minutos na cama e agora estou indo a 50. Pelo amor de Deus, isso é normal? A minha mulher quer foder o dia inteiro. Ela nem me deixa ir trabalhar."
 
 Sim, Joseph, isso é 100% normal. A minha dica: sai de fininho antes que a sua mulher perceba. É exatamente o que eu tenho que fazer também. Haha.
+
+[Dana White]
 
 Bom, é isso. Eu sei que você é um homem inteligente, e sabe qual é a decisão certa aqui, certo? Eu espero sinceramente que você faça o que é certo pra você e pro seu pau, que é clicar no botão abaixo.
 
