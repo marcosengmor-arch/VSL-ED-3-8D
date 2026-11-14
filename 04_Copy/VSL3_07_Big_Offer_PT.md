@@ -4,6 +4,7 @@
 > O que troca pra nossa VSL (só o necessário): o produto é **Stallion Soda** e a goma é "do garanhão"; cimento → lama cavernosa; os 4 verbos = dissolver, hidratar (com os receptores acordando, bônus do sal), reconstruir, proteger; o chifre → o tendão; o bode velho na monta → o garanhão velho na cobertura; o Al → o Don; os 117 e os 3.000 como no Build Up; o genérico: o tendão de Percheron só em Lexington e o sal celta só colhido no verão na Bretanha; a fabricação: o laboratório federal, em solo americano, 21 CFR 111; **o Dr. Oz** fica (é "o homem que o Presidente colocou pra cuidar da saúde dos americanos mais velhos", D7); os estúdios pornôs: o Dana vai com **o produtor de Vegas** que já tinha vazado a cópia (a origem assinada), a atriz e o **Mick Blue** ficam; vazou pra Hollywood pelo Don e pelo Randy: **Dolph Lundgren (68, esposa de 30) e Van Damme (65)**, parceiros de Os Mercenários e de Soldado Universal, no lugar de Harrison Ford e do Van Damme (o Stallone já foi usado na Soda Horse); a esposa Diane → **a mulher do Jason Statham** (58, 'o Transportador'), sem nome, 38 anos, 15 anos juntos, dois filhos, quase trocou ele pelo personal de 40 (o personal da VSL 2 como eco); 'sou paga pra não dizer essas coisas'; a uróloga = **Dra. Annika Ackerman**; a condição do preço é a do Dana (não do sócio); **quem narra a Big Offer é o Dr. Drew; o Dana interrompe** no papel do Al (o Nobel, os 20 reembolsos, **o fim de semana em Las Vegas na noite de luta** no lugar do iate: primeira fila ao lado do Dana, suíte, festa pós-luta, uma modelo da festa, nunca uma ring girl real); a consulta por Zoom é com o Dr. Drew; a garantia vira **Stallion Guarantee**; o Dale pede desculpas ao Dana; o fecho entrega pro Dana ("ouça do próprio Dana").
 > v1.1 (14/11): divisão de vozes refeita: o Dr. Drew faz só a Product Presentation até os 'sem' (a fórmula, os verbos, como tomar); da fabricação em diante é o **Dana** (o Oz, os estúdios, Stallone e Van Damme, a Diane, os 67 frascos, o aviso, o Pitch, o Bonus, a Guarantee), porque o produto é dele. O Dr. Drew interrompe uma vez, com o Nobel; a consulta por Zoom é com ele; a Dra. Annika 'cuida dos meus lutadores há 12 anos'; o fecho entrega pro Don ('o homem que estava pior do que você').
 > v1.2 (14/11): as conexões e os depoimentos (Hollywood, Stallone, Van Damme, a Diane) ficam com o Dana ('o meu telefone não parava'); o Dr. Drew volta em 'mas antes de te mostrar como conseguir' (os 67 frascos, o aviso dos 4 e 6 meses, a Dra. Annika 'grande amiga minha'); o Pitch, o Bonus e a Guarantee seguem com o Dana.
+> v1.3 (14/11): divisão final de vozes (decisão do Marcos): Dr. Drew = apresentação até os 'sem'; Dana = da fabricação até a Diane/Statham (o Oz, os estúdios, Lundgren, Van Damme, a mulher do Statham); Dr. Drew volta nos 67 frascos e conduz o Pitch, o Bonus e a Guarantee, como no controle; o Dana aparece interrompendo o vídeo (o Nobel, os 20 reembolsos, Vegas); o fecho 'ouça do próprio Dana'.
 > Tamanho-alvo: controle ≈ 3.870 palavras.
 
 ---
@@ -124,9 +125,9 @@ Já vi pacientes de 70 anos com disfunção crônica recuperarem a vida sexual d
 
 ## Pitch
 
-[Dana White]
+[Dr. Drew Pinsky]
 
-Por isso eu preparei esta oferta especial pra você aproveitar agora. Lembra da condição que eu impus pro laboratório antes de botar o meu nome nisso? Nada de preço predatório de farmacêutica. Cobra o que custa pra fabricar, ponto.
+Por isso o Dana preparou esta oferta especial pra você aproveitar agora. Lembra da condição que ele impôs pro laboratório antes de botar o nome dele nisso? Nada de preço predatório de farmacêutica. Cobra o que custa pra fabricar, ponto.
 
 Foi só por causa dela que o Stallion Soda não vai te custar os $500 por mês que a farmacêutica cobraria por algo que curasse de verdade. Nem $400, nem $300. O preço de um frasco é $147. Mas, porque você assistiu até aqui, fica muito melhor.
 
@@ -136,13 +137,13 @@ E por que o kit de 6 frascos é a escolha certa? Porque, além de custar menos, 
 
 Mas antes de escolher o seu kit, eu preciso te avisar de uma coisa, porque o que aconteceu nas últimas semanas mudou tudo.
 
-Quando eu anunciei os frascos grátis, em menos de 24 horas o vídeo explodiu, 5 milhões de visualizações, e milhares de homens caíram em cima ao mesmo tempo, disputando os últimos frascos deste lote de Lexington.
+Quando o Dana anunciou os frascos grátis, em menos de 24 horas o vídeo explodiu, 5 milhões de visualizações, e milhares de homens caíram em cima ao mesmo tempo, disputando os últimos frascos deste lote de Lexington.
 
 E a parte mais louca? Boa parte já tinha comprado o Stallion Soda no primeiro lote. Muitos nem tinham completado 30 dias, e já lotava a minha caixa de entrada. Um me mandou uma foto do pau 3 polegadas maior, medido com régua.
 
 Outro contou que a esposa, que dormia de costas pra ele há 6 anos, agora acorda ele às 3 da manhã pra sentar com força, esguichando na cama feito uma garota de 20. Um de 68 anos escreveu que fodeu a esposa de quatro por 40 minutos sem amolecer, e foi ela quem implorou pra parar.
 
-Homens que já tinham desistido do próprio pau, fodendo feito garanhão. E quando me viram anunciar mais frascos grátis, voltaram correndo, com medo de ficar de fora. Em menos de uma hora, quase todo o estoque evaporou. Só sobrou pra pouquíssimos.
+Homens que já tinham desistido do próprio pau, fodendo feito garanhão. E quando viram o Dana anunciar mais frascos grátis, voltaram correndo, com medo de ficar de fora. Em menos de uma hora, quase todo o estoque evaporou. Só sobrou pra pouquíssimos.
 
 Presta atenção, porque existe uma chance real de você ser um dos últimos a conseguir o Stallion Soda por este preço, com os frascos grátis.
 
@@ -156,13 +157,15 @@ A lama volta a assentar, e em 90 dias você estará de volta a esta página. Se 
 
 Você vai sentir o seu pau ficando mais cheio na primeira semana, e a sua ereção matinal voltando, mas 30 dias são apenas uma amostra, não um tratamento. Olha, quanto antes você dissolver a lama, mais esponja viva sobra pra reconstruir. Se você pode pagar mais, pague mais pelo seu próprio pau.
 
-[Dr. Drew Pinsky]
-
-Desculpa interromper, Dana. Se este vídeo apareceu pra você hoje, você é um dos poucos sortudos pra receber a maior oferta que a gente já fez com essa fórmula. Enquanto a gente fala com você, o Stallion Soda está sendo submetido como candidato ao Prêmio Nobel de Saúde Masculina. O Oscar da saúde. E pra garantir essa indicação, precisamos transformar a vida do máximo de homens possível. Homens de verdade, de idades e condições de saúde diferentes, passando pelo tratamento completo, do jeito certo, por 180 dias. Não adianta tomar só 1 ou 2 gomas e ficar satisfeito por ter as ereções de volta. Precisamos do quadro completo de melhora.
-
 [Dana White]
 
-E é aí que você entra. Se você for um dos primeiros 20 homens a pegar o tratamento completo de 6 frascos hoje, eu não vou pagar só os 3 frascos. Eu vou pagar cada um deles.
+Então, ei. Desculpa interromper o Dr. Drew aqui. Se este vídeo apareceu pra você hoje, você é um dos poucos sortudos pra receber a maior oferta que a gente já fez com essa fórmula.
+
+Enquanto eu falo com você, o Stallion Soda está sendo submetido como candidato ao Prêmio Nobel de Saúde Masculina. O Oscar da saúde. E pra garantir essa indicação, precisamos transformar a vida do máximo de homens possível.
+
+Homens de verdade, de idades e condições de saúde diferentes, passando pelo tratamento completo, do jeito certo, por 180 dias. Não adianta tomar só 1 ou 2 gomas e ficar satisfeito por ter as ereções de volta. Precisamos do quadro completo de melhora. E é aí que você entra.
+
+Se você for um dos primeiros 20 homens a pegar o tratamento completo de 6 frascos hoje, eu não vou pagar só os 3 frascos. Eu vou pagar cada um deles.
 
 No momento em que o seu pagamento for aprovado, a minha equipe processa um reembolso total direto na sua conta. 6 frascos, 6 meses de tratamento, você paga zero.
 
@@ -190,7 +193,7 @@ Se você não estiver entre os primeiros 20, ainda sai com o negócio da sua vid
 
 ## Bonus
 
-[Dana White]
+[Dr. Drew Pinsky]
 
 E porque eu quero que você entre no quarto da sua esposa hoje à noite e domine ela como ela nunca foi dominada antes, qualquer um que garantir o pacote de 6 frascos hoje sai com 5 presentes exclusivos, todos grátis.
 
@@ -202,7 +205,7 @@ Eu sou o Johnny Sins, 46 anos, com mais de 2.000 horas de experiência. Eu escre
 
 Aqui está o que eu realmente uso, sem papo furado. As técnicas, as posições que importam e o método que me faz durar sem tomar nada.
 
-[Dana White]
+[Dr. Drew Pinsky]
 
 Só esse bônus valeria $697.
 
@@ -222,19 +225,19 @@ Já se perguntou por que lésbicas conseguem manter mulheres loucamente apaixona
 
 Vamos te ensinar a encontrar e estimular os botões de prazer que fazem qualquer mulher gozar 2, 3, até 4 vezes seguidas, até as que juram que nunca tiveram um orgasmo na vida. E tudo isso sem precisar durar horas, só com a técnica certa no momento certo.
 
-[Dana White]
+[Dr. Drew Pinsky]
 
 O valor desse curso é inestimado, mas geralmente custa $697.
 
-E por fim, o 5º bônus é exclusivo pros primeiros 10 homens que fecharem o kit de 6 frascos hoje. Uma consulta individual de 45 minutos por Zoom com o Dr. Drew. Ele vai avaliar pessoalmente o seu caso e personalizar o protocolo junto com você para o seu resultado ser antecipado e definitivo.
+E por fim, o 5º bônus é exclusivo pros primeiros 10 homens que fecharem o kit de 6 frascos hoje. Uma consulta individual de 45 minutos por Zoom comigo. Eu vou avaliar pessoalmente o seu caso e personalizar o protocolo junto com você para o seu resultado ser antecipado e definitivo.
 
-Esse bônus normalmente custaria $1.500, e estamos oferecendo de graça pros primeiros 10. E se você garantir os seis frascos nos próximos 10 minutos, eu vou te enviar separadamente um 6º bônus surpresa avaliado em $389, algo exclusivo para homem que decide rápido.
+Esse bônus normalmente custaria $1.500, e estou oferecendo de graça pros primeiros 10. E se você garantir os seis frascos nos próximos 10 minutos, eu vou te enviar separadamente um 6º bônus surpresa avaliado em $389, algo exclusivo para homem que decide rápido.
 
 Somando os bônus, o valor total chega a $3.977 em material extra, tudo grátis hoje, junto com o seu pacote de 3 ou 6 frascos. E ainda tem mais uma última coisa.
 
 ## Guarantee
 
-[Dana White]
+[Dr. Drew Pinsky]
 
 Assim que você garantir o seu pacote de Stallion Soda e receber em casa nos próximos 7 dias, eu quero que você abra a caixa imediatamente e comece a tomar uma goma todo dia.
 
@@ -258,8 +261,8 @@ Eu devo um pedido de desculpas ao Dana. Quando os meus 6 frascos chegaram, a min
 
 Isso me desarmou. Abri o frasco. No quarto dia, acordei com uma ereção que eu não sentia há anos. Fodi a minha esposa ali mesmo. Duas vezes antes do café. 14 anos de casamento, e hoje ela goza toda noite.
 
-[Dana White]
+[Dr. Drew Pinsky]
 
 Me diz uma coisa: quantas vezes um médico te deu uma garantia dessas? Quantas vezes a indústria farmacêutica ofereceu isso pros remédios cheios de efeitos colaterais que ela empurra pra você? Quando foi que a Pfizer te devolveu um dólar? Nunca.
 
-Se eu não tivesse certeza absoluta, eu iria à falência. E antes de você escolher, eu quero que você ouça isto do homem que estava pior do que você.
+Se eu não tivesse certeza absoluta, eu iria à falência. E antes de você escolher, eu quero que você ouça isto do próprio Dana.
