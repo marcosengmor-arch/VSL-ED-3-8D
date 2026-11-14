@@ -170,13 +170,11 @@ Se você for um dos primeiros 20 homens a pegar o tratamento completo de 6 frasc
 
 No momento em que o seu pagamento for aprovado, a minha equipe processa um reembolso total direto na sua conta. 6 frascos, 6 meses de tratamento, você paga zero.
 
-Além disso, você é convidado pessoalmente pra um fim de semana em Las Vegas, na próxima noite de luta. Voo de primeira classe pra você e uma acompanhante. Suíte no topo do The Cosmopolitan, tudo que quiser do serviço de quarto, 24 horas por dia, todas as despesas pagas. E 5 mil dólares em dinheiro vivo na sua mão quando você desce do avião, pra torrar no cassino como quiser.
+Além disso, você é convidado pessoalmente pra um fim de semana em Las Vegas, na próxima noite de luta. Voo de primeira classe pra você e uma acompanhante, suíte no topo do The Cosmopolitan com tudo pago, e 5 mil dólares em dinheiro vivo na sua mão pra torrar no cassino como quiser.
 
-No sábado, você senta na primeira fila do octógono, na cadeira do lado da minha. E se você não for fã de luta, tudo bem: pega os 5 mil e some no cassino, ou passa a noite no melhor clube de stripper da cidade, com a conta no meu nome. Depois, a festa é no meu camarote, e o que acontecer entre vocês dois atrás da porta da suíte não é da conta de ninguém além de vocês.
+No sábado, você senta na primeira fila do octógono, na cadeira do lado da minha. Não é fã de luta? Some no cassino com os 5 mil, ou passa a noite no melhor clube de stripper da cidade, na minha conta. E se preferir vir sozinho, eu garanto que uma ring girl gostosa de 28 anos cuide muito bem de você a estadia inteira.
 
-E se preferir vir sozinho, eu pessoalmente vou garantir que uma ring girl gostosa de 28 anos cuide muito bem de você durante toda a estadia.
-
-Você pode ver o sol nascer sobre a Strip da sacada do Cosmopolitan enquanto fode essa novinha dobrada na grade, aquele pau novo enterrado fundo dentro dela, enquanto ela implora pra você não parar e os caras da torre do lado assistem com o binóculo do quarto. Parece bom demais pra ser verdade? Escuta o último sortudo que aproveitou tudo isso.
+Imagina ver o sol nascer sobre a Strip da sacada do Cosmopolitan, fodendo essa novinha dobrada na grade, com o pau novo enterrado fundo nela, enquanto ela implora pra não parar e os caras da torre do lado assistem de binóculo. Parece bom demais pra ser verdade? Escuta o último sortudo que aproveitou tudo isso.
 
 [Depoimento — Ganhador da Promo em Vegas]
 
