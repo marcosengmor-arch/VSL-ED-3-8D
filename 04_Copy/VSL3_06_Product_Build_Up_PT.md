@@ -89,9 +89,9 @@ São 4 da manhã e eu desci pra pegar água porque não sinto mais as minhas per
 
 E não parou na cama de casa deles.
 
-[Depoimento 03 — veterano, 61]
+[Depoimento 03 — Mark Coleman, 61, lenda do UFC]
 
-Chegou um ponto em que os meus próprios amigos começaram a me oferecer as esposas no churrasco. As mulheres não conseguiam tirar os olhos do volume na minha calça, e confesso que aceitei mais de uma. Esta aqui. Aquele homem nas fotos é marido dela. Hoje, ela foge de casa 3 vezes por semana pra me ver e sempre volta pedindo mais.
+Chegou um ponto em que os meus próprios vizinhos, lá em Ohio, começaram a me oferecer as esposas no churrasco de domingo. As mulheres não conseguiam tirar os olhos do volume na minha bermuda, e confesso que aceitei mais de uma. Esta aqui. Aquele homem na foto é o marido dela, vizinho de porta há 15 anos. Hoje, ela pula a cerca 3 vezes por semana pra me ver e sempre volta pedindo mais. Aos 61. The Hammer voltou a bater.
 
 [Dana White]
 
