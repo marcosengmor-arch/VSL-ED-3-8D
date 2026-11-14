@@ -178,11 +178,11 @@ Se você é solteiro, vem sozinho que eu garanto o resto: uma ring girl gostosa 
 
 [Depoimento — Ganhador da Promo em Vegas]
 
-Dana, eu tenho que te agradecer. A primeira fila, a suíte, os 5 mil no cassino, a festa: insano. Mas o que me pegou foi a Nicole, a ring girl loira de 28 que você mandou pra mim. Ela entrou na minha suíte na primeira noite só de roupão e disse que o senhor White mandou ela cuidar de mim.
+Dana, seu filho da puta, eu tenho que te agradecer. A primeira fila, a suíte, os 5 mil no cassino, a festa. Insano, cara. Mas o que me pegou foi a Nicole, a ring girl loira de 28 que você mandou pra mim. Ela entrou na minha suíte na primeira noite só de roupão, disse que o senhor White tinha mandado ela cuidar de mim, e eu nem quis saber do clube de stripper.
 
-Fodi ela na sacada com o sol nascendo sobre a Strip, dobrada na grade, exatamente como você disse no vídeo. Ela gozou tão forte que as pernas cederam, tive que segurar ela pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Nunca pensei que tocaria uma mulher daquelas. Dois caras da torre do lado assistiram tudo de binóculo, e eu nem me importei. A vida inteira eu fui o cara do binóculo. Agora eles que batam punheta olhando pra mim.
+Fodi ela na sacada com o sol nascendo sobre a Strip, dobrada na grade, até as pernas dela cederem e eu ter que segurar pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Dois caras da torre do lado assistiram tudo de binóculo, e eu nem me importei. A vida inteira eu fui o cara do binóculo. Ali eu estava provando o verdadeiro sabor da vida, e ela tem gosto de buceta bem cuidada.
 
-Eu tenho 61 anos e fazia 4 anos que não ficava duro sem pílula. Aquele foi o melhor fim de semana da minha vida, e só aconteceu por causa do Stallion Soda.
+Tenho 61 anos e fazia 4 anos que não ficava duro sem pílula. Foi o melhor fim de semana da minha vida, e só aconteceu por causa do Stallion Soda.
 
 [Dana White]
 
