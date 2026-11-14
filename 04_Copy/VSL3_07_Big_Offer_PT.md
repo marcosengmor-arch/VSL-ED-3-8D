@@ -180,7 +180,7 @@ Se você é solteiro, vem sozinho que eu garanto o resto: uma ring girl gostosa 
 
 Dana, eu tenho que te agradecer. A primeira fila, a suíte, os 5 mil no cassino, a festa: insano. Mas o que me pegou foi a Nicole, a ring girl loira de 28 que você mandou pra mim. Ela entrou na minha suíte na primeira noite só de roupão e disse que o senhor White mandou ela cuidar de mim.
 
-Fodi ela na sacada com o sol nascendo sobre a Strip, dobrada na grade, com dois caras da torre do lado olhando de binóculo, exatamente como você disse no vídeo. Ela gozou tão forte que as pernas cederam, tive que segurar ela pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Nunca pensei que tocaria uma mulher daquelas.
+Fodi ela na sacada com o sol nascendo sobre a Strip, dobrada na grade, exatamente como você disse no vídeo. Ela gozou tão forte que as pernas cederam, tive que segurar ela pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Nunca pensei que tocaria uma mulher daquelas. Dois caras da torre do lado assistiram tudo de binóculo, e eu nem me importei. A vida inteira eu fui o cara do binóculo. Agora eles que batam punheta olhando pra mim.
 
 Eu tenho 61 anos e fazia 4 anos que não ficava duro sem pílula. Aquele foi o melhor fim de semana da minha vida, e só aconteceu por causa do Stallion Soda.
 
