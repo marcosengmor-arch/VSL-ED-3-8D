@@ -5,6 +5,7 @@
 > v1.1 (14/11): divisão de vozes refeita: o Dr. Drew faz só a Product Presentation até os 'sem' (a fórmula, os verbos, como tomar); da fabricação em diante é o **Dana** (o Oz, os estúdios, Stallone e Van Damme, a Diane, os 67 frascos, o aviso, o Pitch, o Bonus, a Guarantee), porque o produto é dele. O Dr. Drew interrompe uma vez, com o Nobel; a consulta por Zoom é com ele; a Dra. Annika 'cuida dos meus lutadores há 12 anos'; o fecho entrega pro Don ('o homem que estava pior do que você').
 > v1.2 (14/11): as conexões e os depoimentos (Hollywood, Stallone, Van Damme, a Diane) ficam com o Dana ('o meu telefone não parava'); o Dr. Drew volta em 'mas antes de te mostrar como conseguir' (os 67 frascos, o aviso dos 4 e 6 meses, a Dra. Annika 'grande amiga minha'); o Pitch, o Bonus e a Guarantee seguem com o Dana.
 > v1.3 (14/11): divisão final de vozes (decisão do Marcos): Dr. Drew = apresentação até os 'sem'; Dana = da fabricação até a Diane/Statham (o Oz, os estúdios, Lundgren, Van Damme, a mulher do Statham); Dr. Drew volta nos 67 frascos e conduz o Pitch, o Bonus e a Guarantee, como no controle; o Dana aparece interrompendo o vídeo (o Nobel, os 20 reembolsos, Vegas); o fecho 'ouça do próprio Dana'.
+> v1.4 (14/11): o prêmio de Vegas na versão do Marcos: suíte no The Cosmopolitan, 5 mil em dinheiro pro cassino, a luta opcional (primeira fila ao lado do Dana, ou cassino/clube de stripper na conta dele), uma ring girl de 28 (sem nome, personagem) em vez da modelo, sexo na sacada com a torre do lado olhando de binóculo; o ganhador atualizado. Nota: The Cosmopolitan é marca de terceiro nomeada (regra de ad: não usar marcas; aqui é dentro da VSL, decisão do Marcos).
 > Tamanho-alvo: controle ≈ 3.870 palavras.
 
 ---
@@ -169,19 +170,19 @@ Se você for um dos primeiros 20 homens a pegar o tratamento completo de 6 frasc
 
 No momento em que o seu pagamento for aprovado, a minha equipe processa um reembolso total direto na sua conta. 6 frascos, 6 meses de tratamento, você paga zero.
 
-Além disso, você é convidado pessoalmente pra um fim de semana em Las Vegas, na próxima noite de luta. Voo de primeira classe pra você e uma acompanhante. Suíte no topo do hotel, tudo que quiser do serviço de quarto, 24 horas por dia, todas as despesas pagas. E no sábado, você senta na primeira fila do octógono, na cadeira do lado da minha.
+Além disso, você é convidado pessoalmente pra um fim de semana em Las Vegas, na próxima noite de luta. Voo de primeira classe pra você e uma acompanhante. Suíte no topo do The Cosmopolitan, tudo que quiser do serviço de quarto, 24 horas por dia, todas as despesas pagas. E 5 mil dólares em dinheiro vivo na sua mão quando você desce do avião, pra torrar no cassino como quiser.
 
-Depois da luta, a festa é no meu camarote, e o que acontecer entre vocês dois atrás da porta da suíte não é da conta de ninguém além de vocês.
+No sábado, você senta na primeira fila do octógono, na cadeira do lado da minha. E se você não for fã de luta, tudo bem: pega os 5 mil e some no cassino, ou passa a noite no melhor clube de stripper da cidade, com a conta no meu nome. Depois, a festa é no meu camarote, e o que acontecer entre vocês dois atrás da porta da suíte não é da conta de ninguém além de vocês.
 
-E se preferir vir sozinho, eu pessoalmente vou garantir que uma das modelos da minha festa cuide muito bem de você durante toda a estadia.
+E se preferir vir sozinho, eu pessoalmente vou garantir que uma ring girl gostosa de 28 anos cuide muito bem de você durante toda a estadia.
 
-Você pode ver o sol nascer sobre a Strip pela janela da suíte enquanto fode uma mulher linda dobrada no vidro, aquele pau novo enterrado fundo dentro dela, enquanto ela implora pra você não parar. Parece bom demais pra ser verdade? Escuta o último sortudo que aproveitou tudo isso.
+Você pode ver o sol nascer sobre a Strip da sacada do Cosmopolitan enquanto fode essa novinha dobrada na grade, aquele pau novo enterrado fundo dentro dela, enquanto ela implora pra você não parar e os caras da torre do lado assistem com o binóculo do quarto. Parece bom demais pra ser verdade? Escuta o último sortudo que aproveitou tudo isso.
 
 [Depoimento — Ganhador da Promo em Vegas]
 
-Dana, eu tenho que te agradecer. A primeira fila, a suíte, a festa: insano. Mas o que me pegou foi a Nicole, a modelo loira que você mandou pra mim. Ela entrou na minha suíte na primeira noite só de roupão e disse que o senhor White mandou ela cuidar de mim.
+Dana, eu tenho que te agradecer. A primeira fila, a suíte, os 5 mil no cassino, a festa: insano. Mas o que me pegou foi a Nicole, a ring girl loira de 28 que você mandou pra mim. Ela entrou na minha suíte na primeira noite só de roupão e disse que o senhor White mandou ela cuidar de mim.
 
-Fodi ela contra o vidro com o sol nascendo sobre a Strip, exatamente como você disse no vídeo. Ela gozou tão forte que as pernas cederam, tive que segurar ela pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Nunca pensei que tocaria uma mulher daquelas.
+Fodi ela na sacada com o sol nascendo sobre a Strip, dobrada na grade, com dois caras da torre do lado olhando de binóculo, exatamente como você disse no vídeo. Ela gozou tão forte que as pernas cederam, tive que segurar ela pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Nunca pensei que tocaria uma mulher daquelas.
 
 Eu tenho 61 anos e fazia 4 anos que não ficava duro sem pílula. Aquele foi o melhor fim de semana da minha vida, e só aconteceu por causa do Stallion Soda.
 
