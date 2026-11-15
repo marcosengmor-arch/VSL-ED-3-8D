@@ -115,3 +115,15 @@ f. Eco literal da promessa no fecho: Phoenix promete "vai sair daqui com um pau 
 a. Dois depoimentos de 8 s depois do beat do Exército: "fiquei trancado no banheiro do trabalho 2 horas porque não baixava"; "fiz no carro e a passageira pediu pra chupar no banco de trás".
 b. Kayla, a frase com objeto: "no dia seguinte eu segurei a placa do round 3 com as pernas tremendo".
 c. Dana no podcast: "que porra" como intensificador e "Depois me agradecem." no fecho.
+
+## M. Rotação de vocabulário (APROVADO 15/11): "como na HoneyFil, rotacionando as menções a pau"
+Limite de 3–4 repetições por palavra na VSL inteira; cada ideia repetida distribuída pelas variações do banco D; registro por voz (vulgar nas atrizes, no Dana e nos depoentes 50–60; pudico nos 70+; franqueza no Dr. Drew). Tabela de rotação: ver análise de 15/11 (dor, potência, sexo, reação dela, bordões, franqueza, humor lateral, eufemismos 70+, identidade social).
+
+## N. Decisões fechadas em 15/11 (entram na passada de cada bloco)
+- Idade do Dana: 57.
+- "Bobby" quando o Dana fala com proximidade; "RFK Jr." quando é formal (telejornal, Dr. Drew).
+- Pfizer, o chão do octógono: 50 milhões por ano.
+- Lead 01 fica com o Don, o Dr. Drew e o Rogan; sem o veredito curto do feno.
+- Ganhador de Vegas (Big Offer): "e ela tem gosto de buceta de capa de revista, apertada, cheirosa."
+- Fim da linha do tempo do MUS: "E no dia 30 a esponja está de volta à vida, com as polegadas que a lama tóxica roubou de volta, e a sua esposa de bruços, dizendo "para", mas com a bunda empinando pra te sentir por completo."
+- Aplicação: bloco a bloco, só quando o Marcos mandar.
