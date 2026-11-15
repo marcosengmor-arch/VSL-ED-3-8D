@@ -92,3 +92,26 @@
 1. Dois micro-picos de 15 s dentro do vale, na voz do Dana: (a) Discovery, depois de "não é idade, estresse nem circulação": "e a ring girl de 28 saindo do camarim dele de manhã, andando torto, sem conseguir abotoar a saia"; (b) Tese, depois das 7 polegadas: "e é esse tamanho que faz ela congelar por três segundos quando você tira a calça, você vai ouvir isso da boca de uma ring girl daqui a pouco".
 3. Comprimir a credibilidade da Discovery em um terço: memo da Bayer + FDA viram duas frases do Dana ("em 1998 a Bayer já sabia; a FDA aprovou contra 7 cientistas e demitiu os 7"); sai o ex-revisor da FDA.
 4. Loop numérico na entrada do vale (Discovery, "três descobertas"): "me dá 4 minutos nisso, porque no fim deles você vai entender por que o Don comeu uma ring girl de 28 no dia 14, e vai ver ela contar".
+
+## L. Leads (APROVADO 15/11)
+### L1. Comuns às 3 leads (7)
+1. Sinal verificável (01 e 02): "no dia 4 você acorda com o pau levantando o lençol feito barraca, antes de abrir os olhos".
+2. Qualificação por sintoma (01 e 02): "qualquer homem que não aguenta 5 minutos precisa ouvir isto", depois do "fecha a porta".
+3. As duas falas dela (01 e 02), na promessa final: "nunca mais ouvir 'tudo bem, a gente tenta outra hora'; em vez disso, toda noite, 'me fode forte como da última vez'".
+4. Aviso ao casado com a lista do cotidiano + as esposas andando torto (01: ring girl depois da promessa em 4; 02: Phoenix depois das DMs).
+5. Loop de fim de vídeo (01: "e a ring girl que o Dana levou pro rancho você vai ver no fim deste vídeo"; 02: "e o que a Cory fez com o Walt depois da câmera desligar, você vai ver no fim").
+6. As expressões do módulo 12 (J) na boca certa: "que porra é essa fórmula?" (o homem testado), "oh meu Deus, ficou enorme e cheio de veia" (a atriz na aplicação), "essa parada é real" (depoimento), "preciso te contar uma loucura" (a atriz abrindo a história pessoal), "é normal? completamente normal" (a dose).
+7. Passe de oralidade nas três (Olha, / pensa comigo / cara / meu Deus no meio da frase / "depois me agradece").
+### L2. Lead 01 (aprovados b e d; NÃO aprovados: a = limpar Don/Dr. Drew/Rogan, c = veredito curto do feno → confirmar)
+b. Idade cruzada com verbo sensorial, ring girl: "o pau dele latejou mais forte aos 50 do que qualquer lutador de 25 que eu levei pro quarto".
+d. Depoimento 03 (a namorada): "chorei e gozei ao mesmo tempo" → acrescentar "Lágrimas de verdade. E ele não parou."
+### L3. Lead 02 (aprovados b, c, d, e, f)
+b. Humor lateral, NA MULHER: "e no dia seguinte fui eu que reguei o jardim andando torto, com o Walt na varanda, de braços cruzados, rindo".
+c. A micro-dor no olhar dele (já em A13).
+d. Ressurreição na voz dela: "o pau dele voltou dos mortos na minha boca".
+e. Cory, idade cruzada: "aos 58 esse homem me abriu mais do que qualquer ator de 30 que eu gravei este ano".
+f. Eco literal da promessa no fecho: Phoenix promete "vai sair daqui com um pau que não cabe na cueca"; depois do corte: "Olha ele. Não coube."
+### L4. Lead 03 (aprovados a, b, c)
+a. Dois depoimentos de 8 s depois do beat do Exército: "fiquei trancado no banheiro do trabalho 2 horas porque não baixava"; "fiz no carro e a passageira pediu pra chupar no banco de trás".
+b. Kayla, a frase com objeto: "no dia seguinte eu segurei a placa do round 3 com as pernas tremendo".
+c. Dana no podcast: "que porra" como intensificador e "Depois me agradecem." no fecho.
