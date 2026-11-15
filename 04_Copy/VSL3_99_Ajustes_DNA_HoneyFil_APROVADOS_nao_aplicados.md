@@ -53,3 +53,20 @@
 6. "E foi exatamente isso que eu encontrei no cocho." (MUS, entre o cocho e o verbo 1).
 7. Eco do loop: MUS, "Lembra do bloco de sal que o tratador do Don trocava enquanto ele chorava na varanda? É este."
 8. Open loops com número: "nos próximos 2 minutos" (Discovery, antes dos 73 estudos), "fica comigo 3 minutos" (MUS, antes do verbo 1).
+
+## E. Módulo 6, metáforas (APROVADO 15/11; fora: materiais do UFC)
+1. Hidráulica: "entupido feito cano velho de fazenda" (tese, nos vasos que se fecham); "o bicarbonato libera a estrada e o sangue inunda" (MUS, verbo 1); a mangueira em dia de fogo (já em A7).
+2. Vida e morte: "o pau do Don voltou dos mortos no dia 4" (Build Up, Dana).
+3. Caça e combate: "aos 40 minutos ela bateu na lona" (ring girl do Don); "elas sentem o cheiro e te encurralam" (junto de B4); close: "ela vai pedir arrego, e no dia seguinte vem pedir revanche".
+4. Concorrente rebaixado: a maquiagem pro pau (A6) + o sistema que medica (A5); "os porteiros do sistema" uma vez na Discovery (os 14 laboratórios ou a Pfizer).
+5. Origem e sagrado (MUS, cocho): "no haras, aquilo nunca foi ração. Era o seguro de 30 milhões de dólares."
+
+## F. Módulo 7, voz (APROVADO 15/11; fora: cortes de temperatura na Discovery e na tese)
+1. Registro pudico dos 70+: o voluntário de 79 do Dr. Oz e o depoente do olhar (B3) falam "minha ferramenta", "não colaborava direito", "uma coisa que eu não sentia há anos".
+2. Comando físico no CTA (close, Dana): "Pega o cartão. Desce a página. 3, 2, 1."
+3. Humor lateral: "quebrando a cama e a esposa" (Build Up, 98%); "andando torto" (as esposas dos 117); Don: "o único exame que eu reprovei em 30 anos foi o de pau mole".
+4. Segunda pessoa em três modos: o comando (F2) completa identificação + future pacing já existentes.
+5. Oralidade: "É normal? Completamente normal." como padrão de resposta no FAQ e no Dr. Drew.
+
+## G. Módulo 8, emoções (APROVADO 15/11; fora: medo de censura no fecho)
+1. Pertencimento com número: "40 milhões de homens acima de 50 estão ficando moles neste país" (Discovery, junto da ClinCalc); Dr. Drew antes da oferta: "o Dana e eu não temos superpoder; somos dois homens que passaram por isso".
