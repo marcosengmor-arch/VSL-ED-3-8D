@@ -1,9 +1,10 @@
-# VSL 3 — Lead 02: Phoenix Marie e Cory Chase testam no vizinho que broxou (carcaça da lead 02 / Goat Honey lead 01) — v2.1 PT, registro BLACK
+# VSL 3 — Lead 02: Phoenix Marie e Cory Chase testam no vizinho que broxou (carcaça da lead 02 / Goat Honey lead 01) — v3 PT, registro BLACK
 
 > Carcaça: a lead 02 do Texas Bull Trick e a lead 01 do Goat Honey Ritual (a atriz abre com o nome do ritual, "fecha a porta antes dela te pegar", as DMs dos fãs, "é a mistura dos atores", a amiga vai testar na frente da câmera → a segunda atriz prepara, passa, "agora é só esperar", pega no pau por cima da calça, o homem de 61 com 4 anos sem ereção, a promessa de 3 a 4 polegadas em 12 dias, as DMs de vídeos, "recusei dinheiro e recebi ameaça" → a história pessoal com prova → o famoso que falou em público → "não é genética, é veneno" → "ganhou 3,5" → a dose e o pai na escola → a promessa → "nunca foi aberto de graça", o servidor, sem replay, $97 → "leva ele; produção, solta o vídeo"). Função a função, outra escrita.
 > O que troca (decisão do Marcos, 15/11): **Phoenix Marie** conduz e **Cory Chase** ajuda; o homem testado é **o vizinho de 58 que não parava de olhar pra casa da Phoenix**; ela chamou ele, ele broxou; ela pegou o truque novo, ele aguentou tanto que ela não deu conta e chamou a Cory; o vídeo é o teste na frente da câmera ("na primeira vez ele broxou, depois do truque vamos ver"); as duas passam a pasta no pau dele (a Cory esfrega na haste, a Phoenix põe embaixo da própria língua e chupa); no fim a Phoenix mostra a Cory já em cima dele, duro e maior, com barulho de sexo enquanto ela termina de falar. **Regra da lead: nada do corpo da VSL** (sem Don, Dr. Drew, Rogan, Vegas, lama cavernosa pelo nome, laboratório): o Dana White entra só como fonte ("foi pra rede nacional dizer que está processando quem vazou a receita errada e que ia mostrar a certa"); a tese fica genérica ("uma toxina que endurece o tecido por dentro"). Ingredientes citados de leve (bicarbonato, sal e mais dois); a lead explícita é a 01.
 > v2 (15/11): registro mais vulgar e sensorial, na boca da mulher (o que ela sente e fala: molhada, latejando, me abrindo, pulsando no fundo, escorrendo pela perna), fluido, pra ele visualizar e sentir tesão ouvindo; mesma carcaça, mesmas funções, mesmo tamanho.
 > v2.1 (15/11): o teste fica no futuro até o fim (a Cory só com a mão nele, 'já está pronto'); a Phoenix fecha com 'chega de falar, vamos testar' → corte rápido de 5 a 8 segundos com o vídeo real das duas com o cara (a Cory montada, ele duro e maior, gemidos) → volta pra Phoenix: 'viu? na primeira vez ele broxou na minha boca; agora olha ele' → 'produção, solta o vídeo do Dana White'.
+> v3 (15/11): passada do DNA HoneyFil (arquivo 99): L1 (sinal do lençol no dia 4; 'qualquer homem que não aguenta 5 minutos'; as duas falas dela na promessa; o aviso ao casado com a lista do cotidiano e as esposas andando torto; o loop de fim de vídeo; 'que porra é essa' no Walt, 'oh meu Deus, ficou enorme e cheio de veia' na Cory, 'preciso te contar uma loucura' e 'é normal? completamente normal' na Phoenix; passe de oralidade), L3 (a Phoenix regando andando torto; a micro-dor no olhar do Walt; 'voltou dos mortos na minha boca'; a Cory com a idade cruzada; o eco 'Não coube.') e M (rotação: 'duro feito pedra' 2x, o resto distribuído em cabo de pá, barra de aço, latejando, levantando o lençol, pronto pra outra; 'implorar' e 'esguichar' 2x cada, o resto em olhos revirados, pernas cedendo, lençol até o colchão, mordendo o travesseiro, pedindo arrego).
 > Tamanho-alvo: ≈ 1.100 palavras.
 
 ---
@@ -14,17 +15,17 @@
 
 *(Phoenix Marie na cozinha da casa dela, de biquíni e camisa aberta, janela dando pra casa do vizinho; na bancada, um pote de pasta cinza, uma caixa de bicarbonato e um pote de sal grosso)*
 
-Este é o verdadeiro ritual da pasta salgada do garanhão que faz um pau de 58 anos ficar de pé a noite inteira dentro de uma buceta e não cair nem depois de gozar lá dentro. Você já gozou olhando pra mim mais vezes do que olhando pra sua própria mulher, eu sei, então fecha a porta antes dela te pegar com a mão na calça.
+Este é o verdadeiro ritual da pasta salgada do garanhão que faz um pau de 58 anos ficar de pé a noite inteira dentro de uma buceta e não cair nem depois de gozar lá dentro. Você já gozou olhando pra mim mais vezes do que olhando pra sua própria mulher, eu sei, então fecha a porta antes dela te pegar com a mão na calça. E se você não aguenta 5 minutos, ou nem levanta mais, você precisa ouvir isto até o fim.
 
 Hoje eu vou te mostrar isso num homem de verdade, na minha casa, com a câmera ligada. Porque toda semana chega a mesma mensagem na minha DM: "minha esposa foi embora com um moleque de 20 porque eu broxei". Broxou uma, broxou duas, e na terceira ela já estava sentando na rola de outro. Jesus Cristo. É por eles que eu estou gravando isto.
 
-Depois dessa pasta, é a sua esposa que vai implorar por misericórdia, com você em cima dela hora após hora, duro no mesmo lugar, a buceta dela latejando em volta do seu pau enquanto ela encharca o lençol até o colchão. É a mesma mistura que os atores de 50 anos botam embaixo da língua antes de entrar no set pra manter o pau grande, grosso e duro cena atrás de cena. E eles não inventaram. Roubaram do vestiário do UFC, das lendas de 60 que saem da arena com a ring girl no braço e a cueca já apertada.
+Depois dessa pasta, é a sua esposa que vai pedir arrego, com você em cima dela hora após hora, duro no mesmo lugar, a buceta dela latejando em volta do seu pau enquanto ela encharca o lençol até o colchão. É a mesma mistura que os atores de 50 anos botam embaixo da língua antes de entrar no set pra manter o pau grande, grosso e duro cena atrás de cena. E eles não inventaram. Roubaram do vestiário do UFC, das lendas de 60 que saem da arena com a ring girl no braço e a cueca já apertada.
 
 *(corte: a janela; o vizinho, 58, grisalho, de camisa xadrez, na varanda da casa ao lado)*
 
-Esse é o Walt. 58 anos, divorciado, vizinho de porta. Durante um ano inteiro esse homem não tirou os olhos da minha bunda: eu regava o jardim de biquíni, me abaixava devagar só pra ele ver, e ele esquecia a mangueira ligada na mão. Aí num sábado eu chamei ele pra entrar. Tirei a roupa dele, deitei ele na minha cama, sentei no rosto dele já pingando, e quando fui descer pro pau, ele não saiu do lugar. Mole na minha mão, com a buceta que ele olhou por um ano babando em cima dele. Ele pediu desculpa, vestiu a calça e foi embora sem olhar pra trás. Eu fiquei molhada e sozinha, terminando no dedo.
+Olha, eu preciso te contar uma loucura. Esse é o Walt. 58 anos, divorciado, vizinho de porta. Durante um ano inteiro esse homem não tirou os olhos da minha bunda: eu regava o jardim de biquíni, me abaixava devagar só pra ele ver, e ele esquecia a mangueira ligada na mão. Aí num sábado eu chamei ele pra entrar. Tirei a roupa dele, deitei ele na minha cama, sentei no rosto dele já pingando, e quando fui descer pro pau, ele não saiu do lugar. Mole na minha mão, com a buceta que ele olhou por um ano babando em cima dele. Ele pediu desculpa, vestiu a calça e foi embora sem olhar pra trás. E eu vi nos olhos dele aquela mistura de vergonha e pena de si mesmo, que é pior que qualquer xingamento. Eu fiquei molhada e sozinha, terminando no dedo.
 
-E duas semanas depois eu descobri essa pasta num set de Vegas, com um ator de 61 que gravou 4 cenas no mesmo dia e saiu duro. Chamei o Walt de novo, fiz ele botar embaixo da língua, e eu vou ser honesta com você: eu não aguentei. Ele me abriu feito eu tivesse 18, me fodeu 2 horas, gozou três vezes dentro de mim e continuou duro, pulsando lá no fundo. Eu tive que ligar pra minha amiga Cory Chase pra me ajudar a terminar o que eu comecei.
+E duas semanas depois eu descobri essa pasta num set de Vegas, com um ator de 61 que gravou 4 cenas no mesmo dia e saiu duro. Chamei o Walt de novo, fiz ele botar embaixo da língua, e eu vou ser honesta com você: eu não aguentei. O pau dele voltou dos mortos na minha boca. Me abriu feito eu tivesse 18, me fodeu 2 horas, gozou três vezes dentro de mim e continuou em pé, pulsando lá no fundo, pronto pra outra. E no dia seguinte fui eu que reguei o jardim andando torto, com o Walt na varanda, de braços cruzados, rindo. Eu tive que ligar pra minha amiga Cory Chase pra me ajudar a terminar o que eu comecei.
 
 Então hoje a gente vai fazer na sua frente. Na primeira vez ele broxou na minha boca. Depois do ritual, vamos ver como ele fica.
 
@@ -38,7 +39,7 @@ Todo mundo tem isso em casa: uma colher de bicarbonato, uma pitada de sal e mais
 
 *(a Cory pega a pasta com dois dedos, puxa a cueca dele, esfrega na haste de cima a baixo e fecha a mão)*
 
-Arde um pouquinho. Está sentindo esquentar na minha mão? É o sangue chegando onde estava seco. 13 segundos de mão fechada. Isso. Já está pesando.
+Arde um pouquinho. Está sentindo esquentar na minha mão? É o sangue chegando onde estava seco. 13 segundos de mão fechada. Isso. Já está pesando. Oh meu Deus, olha isso, ficou enorme e cheio de veia na minha mão.
 
 [Phoenix Marie]
 
@@ -48,19 +49,19 @@ E a minha parte é essa: embaixo da língua, 30 segundos, até arder e a boca en
 
 *(ela chupa ele por alguns segundos, devagar; levanta, limpa a boca com as costas da mão, e segura o pau dele)*
 
-Olha isso. Já cresceu na minha boca. Agora é só esperar fazer efeito. Esse homem chegou aqui há duas semanas mole, com 5 polegadas e 3 anos sem uma ereção decente. Hoje ele vai sair desta casa com um pau que não cabe na cueca que trouxe, e com a minha buceta e a da Cory marcadas nele. Quem vai medir o tempo de cama dele desta vez é a Cory, porque eu já sei como termina: eu sem conseguir fechar as pernas.
+Pronto. Agora é só esperar fazer efeito. Esse homem chegou aqui há duas semanas mole, com 5 polegadas e 3 anos sem uma ereção decente. Hoje ele vai sair desta casa com um pau que não cabe na cueca que trouxe, e com a minha buceta e a da Cory marcadas nele. Quem vai medir o tempo de cama dele desta vez é a Cory, porque eu já sei como termina: eu sem conseguir fechar as pernas.
 
-Nos próximos minutos você vai ver o que homens comuns estão botando embaixo da língua pra ficar duros feito pedra por horas, com a esposa gritando, revirando os olhos e esguichando 3 vezes numa noite, e ganhando de 3 a 4 polegadas em menos de 12 dias.
+Nos próximos 3 minutos você vai ver o que homens comuns estão botando embaixo da língua pra ficar duros feito cabo de pá por horas, com a esposa gritando, revirando os olhos e esguichando 3 vezes numa noite, e ganhando de 3 a 4 polegadas em menos de 12 dias. E no dia 4 você acorda com o pau levantando o lençol feito barraca, antes de abrir os olhos.
 
 *(ela pega o celular e mostra a DM pra câmera)*
 
-Não passa um dia sem eu receber vídeo de homem de 40, 50 anos querendo entrar na indústria, arrombando uma garota de 20 de quatro, três orgasmos seguidos, com um pau que não tinha mês passado. Não é bomba, não é comprimido, não é cirurgia. É o que os atores fazem todo dia, e ninguém fora do set sabia. Eu já recusei dinheiro e já recebi ameaça pra não abrir isto de graça. Que se fodam.
+Não passa um dia sem eu receber vídeo de homem de 40, 50 anos querendo entrar na indústria, arrombando uma garota de 20 de quatro, três orgasmos seguidos, com um pau que não tinha mês passado. E se você é casado, cuidado com a mulher da academia, a amiga da sua esposa, a vizinha divorciada, a mãe que deixa o filho na escola: elas sentem o cheiro e dão um jeito de te encurralar sozinho. As esposas desses homens estão tirando folga do trabalho, andando torto, mandando mensagem pras amigas perguntando o que foi que o marido tomou. Não é bomba, não é comprimido, não é cirurgia. É o que os atores fazem todo dia, e ninguém fora do set sabia. Eu já recusei dinheiro e já recebi ameaça pra não abrir isto de graça. Que se fodam.
 
 *(stocks: o Dana White numa coletiva, sem áudio; manchete "Dana White processa sites que vendem a receita errada")*
 
 E isso explodiu de vez no dia em que o próprio Dana White foi pra rede nacional dizer que está processando cada site que vende a versão errada, o bicarbonato no copo d'água, e que ia mostrar ele mesmo a receita certa, a que as lendas dele usam. Porque a errada só funciona pela metade, e a metade é o que te faz arrotar e continuar mole na mão dela.
 
-Quase todo homem acha que pau mole e pau pequeno é idade ou herança de família, e é mentira. O pau do Walt foi sabotado, como o de todo americano nascido depois dos anos 70, por um veneno que está em 97% do que você come e endurece o tecido por dentro. O sangue quer entrar e não consegue. Você devia estar fodendo a sua mulher até ela não conseguir sentar, mas o seu pau foi travado por dentro aos 15 anos e nunca mais cresceu.
+Pensa comigo: quase todo homem acha que pau mole e pau pequeno é idade ou herança de família, e é mentira. O pau do Walt foi sabotado, como o de todo americano nascido depois dos anos 70, por um veneno que está em 97% do que você come e endurece o tecido por dentro. O sangue quer entrar e não consegue. Você devia estar fodendo a sua mulher até ela não conseguir sentar, mas o seu pau foi travado por dentro aos 15 anos e nunca mais cresceu.
 
 *(stocks: antes e depois com régua; a Cory ao fundo, sentada ao lado do Walt na cama, com a mão no pau dele por cima da cueca, já marcando)*
 
@@ -70,22 +71,22 @@ Com essa pasta, o pau do Walt ganhou 3 polegadas em duas semanas e ficou duro de
 
 *(da cama, com a mão dentro da cueca dele, olhando pra câmera)*
 
-Mas vai com calma na dose, senão você passa vergonha de outro jeito: tem homem que dobrou a pitada, fez de manhã e de noite, e foi buscar o neto na escola com uma anaconda marcando na calça. Foi tão fora do normal que vazou, e todo mundo entendeu que não era genética. Tinha alguma coisa a mais, e essa coisa estava no vestiário do UFC. Phoenix, anda logo. Esse aqui já está pronto.
+Mas vai com calma na dose, senão você passa vergonha de outro jeito: tem homem que dobrou a pitada, fez de manhã e de noite, e foi buscar o neto na escola com uma anaconda marcando na calça. É normal? Completamente normal. Foi tão fora do normal que vazou, e todo mundo entendeu que não era genética. Tinha alguma coisa a mais, e essa coisa estava no vestiário do UFC. Phoenix, anda logo. Aos 58 esse homem já está me abrindo a mão mais do que qualquer ator de 30 que eu gravei este ano.
 
 [Phoenix Marie]
 
 *(na cozinha, de costas pra porta do quarto)*
 
-Vou te mostrar como aguentar em pé por horas, duro como aço, e dobrar o tamanho do seu pau pra nunca mais se encolher no vestiário. E se gozar nos primeiros 20 minutos, o sangue continua entrando com tanta força que você emenda a segunda e a terceira rodada com ela ainda tremendo, a buceta ainda apertando o seu pau. De manhã, a ereção matinal te acorda antes do despertador, encostada na bunda dela.
+Vou te mostrar como aguentar em pé por horas, duro feito uma barra de aço, e dobrar o tamanho do seu pau pra nunca mais se encolher no vestiário. E se gozar nos primeiros 20 minutos, o sangue continua entrando com tanta força que você emenda a segunda e a terceira rodada com ela ainda tremendo, as pernas cedendo, a buceta ainda apertando o seu pau. Nunca mais ouvir "tudo bem, amor, a gente tenta outra hora". Em vez disso, toda noite: "me fode forte como da última vez". E de manhã, a ereção matinal te acorda antes do despertador, encostada na bunda dela.
 
 Se você quer 8, 9 polegadas aí embaixo, sem risco e sem ninguém saber, presta atenção: isto nunca foi aberto de graça na internet, não do jeito certo. E se alguém entrar no quarto agora, não fecha esta página: não sei por quanto tempo este site fica de pé.
 
-Quando o vídeo original foi postado, bateu quase 30 milhões de visualizações em menos de uma semana, e o servidor caiu. Por sorte eu baixei, e estou compartilhando aqui pra você. Presta bastante atenção, porque é o próprio Dana White que monta esse ritual na sua frente, e conta de onde ele vem. E aviso: este vídeo não tem segunda vez. Se sair e tentar voltar, paga 97 dólares pra ver de novo.
+Quando o vídeo original foi postado, bateu quase 30 milhões de visualizações em menos de uma semana, e o servidor caiu. Por sorte eu baixei, e estou compartilhando aqui pra você. Presta bastante atenção, porque é o próprio Dana White que monta esse ritual na sua frente, e conta de onde ele vem. E aviso: este vídeo não tem segunda vez. Se sair e tentar voltar, paga 97 dólares pra ver de novo. E o que a Cory fez com o Walt depois que a câmera desligou, você vai ver no fim.
 
 Agora chega de falar. Vamos testar.
 
-*(CORTE RÁPIDO, 5 a 8 segundos: o vídeo real. A Cory montada no Walt, ele duro e visivelmente maior, os gemidos dela, a cama batendo. Sem fala.)*
+*(CORTE RÁPIDO, 5 a 8 segundos: o vídeo real. A Cory montada no Walt, ele duro e visivelmente maior, os gemidos dela, a cama batendo. O Walt, rindo: "Que porra é essa, Phoenix?")*
 
 *(volta pra Phoenix na cozinha, olhando pra porta do quarto, o som da cama continuando por baixo)*
 
-Viu? Na primeira vez ele broxou na minha boca. Agora olha ele. Enquanto você assiste o Dana, eu volto pra lá. Cory, não goza nele antes de eu chegar. Produção, solta o vídeo do Dana White.
+Viu? Na primeira vez ele broxou na minha boca. Eu disse que ele ia sair daqui com um pau que não cabe na cueca. Olha ele. Não coube. Enquanto você assiste o Dana, eu volto pra lá. Cory, não goza nele antes de eu chegar. Produção, solta o vídeo do Dana White. Depois me agradece.
