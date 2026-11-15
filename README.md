@@ -29,7 +29,7 @@ Terceira VSL de disfunção erétil (mercado EUA). Repositório de trabalho: ide
 | Soda Horse | bicarbonato, cavalo | transcrição EN + PT |
 | Horse Jelly | gelatina, cavalo | transcrição EN + PT |
 | Alpha Erec | expert sozinho, régua e ressonância | transcrição EN + PT |
-| HoneyFil Male | mel, Elon Musk + Dr. Carter, 52 min | transcrição EN + PT, docx com prints, 281 frames, dissecação Atlas |
+| HoneyFil Male | mel, Elon Musk + Dr. Carter, 52 min | transcrição EN + PT, docx com prints, 281 frames, dissecação Atlas, DNA persuasivo (182 frases sexuais, 48 benefícios, 36 visualizações, 118 expressões, 64 transições, 52 metáforas, DNA de voz, swipe file A–J, rankings) |
 | Red Horse | lead de atriz na cozinha (0:00–5:13) | lead transcrita (MD/docx), JSON completo, 26 frames |
 | Horse Fill / Horse Boost | gringa (preju no front) / aumento | transcrições PT (fora da análise, ver `01_Ideias/02`) |
 | Horse Trick (produtor pornô) | Endopower Pro, Terry Williams, Spin Thrift Farm, cGMP | transcrição PT (docx + txt) |
