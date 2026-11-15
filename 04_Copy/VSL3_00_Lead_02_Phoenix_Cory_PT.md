@@ -90,3 +90,59 @@ Agora chega de falar. Vamos testar.
 *(volta pra Phoenix na cozinha, olhando pra porta do quarto, o som da cama continuando por baixo)*
 
 Viu? Na primeira vez ele broxou na minha boca. Eu disse que ele ia sair daqui com um pau que não cabe na cueca. Olha ele. Não coube. Enquanto você assiste o Dana, eu volto pra lá. Cory, não goza nele antes de eu chegar. Produção, solta o vídeo do Dana White. Depois me agradece.
+
+---
+
+## Rascunhos adaptados (15/11), aguardando encaixe na v4
+
+### R1. Abertura da Phoenix (molde: abertura da Julia Ann, lead 02 do Texas Bull Trick)
+
+Eu acabei de gravar um vídeo com o meu vizinho de 58 anos, aqui na minha cozinha, depois que eu vi o pau dele duro marcando feito uma anaconda no jeans, do outro lado da cerca.
+
+*(cenas da cozinha: o Walt botando a pasta salgada embaixo da língua, fechando a mão no pau; a Phoenix de quatro na bancada)*
+
+Eu pensei que ele não ia aguentar 2 minutos. Duas semanas antes, na minha cama, ele não aguentou nem isso: ficou mole na minha mão, pediu desculpa e foi embora. Mas desta vez esse velho desgraçado me surpreendeu. Ele botou uma pitada da pasta salgada embaixo da língua, esperou arder, e logo em seguida me curvou na bancada da cozinha, puxou a calcinha pro lado e socou a minha buceta com tanta força que eu tive que pedir arrego, arranhando o mármore.
+
+*(cenas explícitas da Phoenix com o Walt)*
+
+Depois de duas horas o pau dele ainda estava latejando dentro de mim, duro feito cabo de pá, depois de gozar três vezes. Ele não parava. Me virou e fodeu a minha bunda com tanta força que eu tremia, gozando uma atrás da outra, escorrendo pela coxa, arrepio do pescoço até o pé. Uma das melhores fodas da minha vida, de um homem de 58 que não levantava há 3 anos.
+
+Sério, eu nunca vi nada igual. Parecia um garanhão em cima de égua, e eu já gravei com muitos atores. Quinze anos na frente de uma câmera com os maiores homens desse ramo, e eu nunca pedi pra um homem parar. Mas com ele, eu implorei pra parar, porque o segredo dele era uma pasta de bicarbonato com sal embaixo da língua.
+
+E a melhor parte é que esse ritual caseiro funciona em qualquer homem, não importa há quanto tempo ele está morto nem quantas pílulas você já tentou.
+
+Se o seu não levanta mais, ele volta duro feito pedra. Se desiste no meio, ele fica em pé até ela terminar. Se você acaba em 2 minutos, você dura 2 horas. E sim, se você é pequeno aí embaixo, ele fica maior também. Da próxima vez que a sua mulher abaixar a sua calça, ela não vai encontrar ele mole. Vai encontrar ele já de pé, levantando a cueca.
+
+Eu sei que isso parece bom demais pra ser verdade. Principalmente se você já torrou dinheiro com bomba, pílula e injeção de testosterona que só serviram pra detonar o seu coração. Mas me escuta.
+
+Se você fizer isso hoje, no dia 4 você acorda duro, levantando o lençol feito barraca, e em duas semanas a sua mulher está de joelhos com o seu pau na boca, fazendo coisas que ela jurou que nunca faria pra homem nenhum.
+
+### R2. A origem, o Dana no Rogan, o carro, o veneno, a prova e a dose (molde: atriz 2 da Red Horse, blocos 4 e 5)
+
+[Phoenix Marie]
+
+*(stocks: trecho do podcast do Joe Rogan, Dana White de fone, luz vermelha; lettering "VAZARAM O SEGREDO DAS LENDAS DO UFC")*
+
+E sabe de onde aquele ator de 61 tirou essa pasta? Eu só entendi quando vi um trecho do podcast do Joe Rogan. Você conhece o convidado: Dana White, o dono do UFC, o careca que senta do lado do Presidente em toda luta. Essa pasta tomou conta da internet desde que o Dana sentou com o Rogan e contou tudo, puto da vida. Que é o segredo que as lendas do UFC comem depois dos 50 pra continuar levando ring girl pro quarto. Que ele passou a receita completa pros maiores estúdios de Vegas testarem nos atores de 50, com contrato de sigilo assinado. E que alguém do set quebrou o contrato e saiu vendendo pela metade na internet: o bicarbonato no copo d'água, que só te faz arrotar e continuar mole na mão dela.
+
+[Dana White, clipe do podcast]
+
+Eu vou processar cada um desses filhos da puta. E a receita certa, eu mesmo vou mostrar.
+
+[Phoenix Marie]
+
+*(stocks: carro em chamas num estacionamento à noite, viaturas da polícia de Las Vegas; manchete "CARRO DE DANA WHITE EXPLODE DIAS DEPOIS DE ENTREVISTA")*
+
+Quatro dias depois, o carro dele explodiu no estacionamento do UFC Apex. Ele saiu andando. O motorista não. A polícia fechou o caso em 72 horas, chamando de falha elétrica. Bizarro, né?
+
+Pensa comigo: muito homem acha que pau mole e pau pequeno é idade ou culpa da genética. Nunca foi. O pau do Walt tinha sido sabotado. Na verdade, o de todo americano nascido depois dos anos 70, por um veneno que está em 97% do que você come, que endurece o tecido do pau por dentro, trava o crescimento ainda na adolescência e, aos 50, não deixa mais o sangue entrar. Isso significa que você podia estar fodendo a sua esposa até ela não conseguir sair da cama sozinha, mas o seu pau foi travado por dentro.
+
+*(stocks: antes e depois com régua)*
+
+A pasta fez o pau do Walt voltar a levantar em 4 dias e crescer 3,8 polegadas em duas semanas, eu juro. Eu gravo com os maiores do ramo há 15 anos e nunca tinha visto um pau tão grosso e tão duro num homem de 58. Hoje a rua inteira sabe: a divorciada da esquina já bateu na minha porta perguntando o que foi que eu dei pro Walt. E nos sets de Vegas, desde que vazou, virou rotina: todo camarim de ator de 50 tem um pote dessa pasta. Era óbvio o que ele precisava fazer, e você vai ver exatamente o mesmo passo a passo nos próximos 3 minutos.
+
+[Cory Chase]
+
+*(da cama, com a mão dentro da cueca dele, olhando pra câmera)*
+
+Mas não exagera na dose dessa coisa, senão você vai ter problema. Não é brincadeira. Tem ator que dobrou a pitada, fez de manhã e de noite, e passou a semana com a anaconda marcando na calça. Me ligou desesperado: "Cory, isso é normal?" Completamente normal. Só não faz isso. Ficou assustador, parecendo garanhão de exposição. Até mulher trans ficou famosa de tanto que cresceu. Foi tão absurdo que vazou de vez, e todo mundo percebeu que não tinha nada a ver com genética. Tinha alguma coisa a mais.
