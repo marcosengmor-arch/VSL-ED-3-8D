@@ -88,4 +88,7 @@
 5. "A resposta é simples, direta, e ninguém tem colhão pra dizer." (Dr. Drew antes do cocho; nas leads, a atriz antes da receita)
 + Regra geral pras 3 leads: um passe de oralidade com os marcadores do banco D (Olha, / vou ser direto / pensa comigo / cara / meu Deus no meio da frase / "é normal? completamente normal" / "depois me agradece" / "você ainda está aí").
 
-## K. Módulo 10, mapa de intensidade: PENDENTE (explicação e opções em 15/11; aguardando escolha)
+## K. Módulo 10, mapa de intensidade (APROVADO 15/11: opções 1, 3 e 4; fora: a confissão do Dana movida pra Discovery)
+1. Dois micro-picos de 15 s dentro do vale, na voz do Dana: (a) Discovery, depois de "não é idade, estresse nem circulação": "e a ring girl de 28 saindo do camarim dele de manhã, andando torto, sem conseguir abotoar a saia"; (b) Tese, depois das 7 polegadas: "e é esse tamanho que faz ela congelar por três segundos quando você tira a calça, você vai ouvir isso da boca de uma ring girl daqui a pouco".
+3. Comprimir a credibilidade da Discovery em um terço: memo da Bayer + FDA viram duas frases do Dana ("em 1998 a Bayer já sabia; a FDA aprovou contra 7 cientistas e demitiu os 7"); sai o ex-revisor da FDA.
+4. Loop numérico na entrada do vale (Discovery, "três descobertas"): "me dá 4 minutos nisso, porque no fim deles você vai entender por que o Don comeu uma ring girl de 28 no dia 14, e vai ver ela contar".
