@@ -70,3 +70,22 @@
 
 ## G. Módulo 8, emoções (APROVADO 15/11; fora: medo de censura no fecho)
 1. Pertencimento com número: "40 milhões de homens acima de 50 estão ficando moles neste país" (Discovery, junto da ClinCalc); Dr. Drew antes da oferta: "o Dana e eu não temos superpoder; somos dois homens que passaram por isso".
+
+## H. Módulo 9, as 30 frases (APROVADO 15/11)
+1. Mantra + corte, abertura do Don (antes de "não desabou de uma vez"): "Por 30 anos essa foi a minha vida. Lutar, foder, dormir, cavalgar. O meu pau nunca me decepcionou, nem uma vez. Até 2012."
+2. Pergunta com verbos opostos, Don, depois do "tudo bem": "Como diabos eu comia ring girl no auge e agora amolecia em cima da única que importava?"
+3. Reação antes do número, com decimal, NA VOZ DO DON (sem o Dr. Drew medindo): "quando eu me medi, quase deixei a fita cair: de 5,2 pra 7,7. Mais grosso. Mais pesado."
+4. Reação involuntária, esposa UGC: "Gozei tão forte que chorei. Lágrimas de verdade. E ele não parou."
+5. Homem comum x rico: Wade: "e o cara que a Lisa estava olhando era um dentista de 40 com uma Tesla na garagem"; Coleman: o vizinho marido dela é rico (ex.: "dono de 3 concessionárias em Columbus, com a Mercedes na garagem e o pau mole no quarto").
+
+## I. Módulo 11 (CONFIRMADO 15/11): sem ajuste além do dentista do Wade (H5).
+
+## J. Módulo 12, expressões naturais que faltam (APROVADO 15/11; VALE PRA TODAS AS LEADS TAMBÉM, "precisa MUITO disso")
+1. "Essa parada é real." (Wade ou Ray, fim do depoimento; e nas leads, na boca de um depoente/fã)
+2. "Que porra é essa fórmula, cara?" (um dos 117 na voz do Dana; nas leads, o fã testado)
+3. "Oh meu Deus, ficou enorme e cheio de veia" (esposa UGC; nas leads, a atriz no meio da frase)
+4. "Dana, preciso te contar uma loucura." (Coleman abrindo o churrasco; nas leads, a atriz abrindo a história pessoal)
+5. "A resposta é simples, direta, e ninguém tem colhão pra dizer." (Dr. Drew antes do cocho; nas leads, a atriz antes da receita)
++ Regra geral pras 3 leads: um passe de oralidade com os marcadores do banco D (Olha, / vou ser direto / pensa comigo / cara / meu Deus no meio da frase / "é normal? completamente normal" / "depois me agradece" / "você ainda está aí").
+
+## K. Módulo 10, mapa de intensidade: PENDENTE (explicação e opções em 15/11; aguardando escolha)
