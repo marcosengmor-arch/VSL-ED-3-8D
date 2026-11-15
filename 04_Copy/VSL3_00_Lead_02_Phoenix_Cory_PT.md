@@ -1,8 +1,9 @@
-# VSL 3 — Lead 02: Phoenix Marie e Cory Chase testam no vizinho que broxou (carcaça da lead 02 / Goat Honey lead 01) — v2 PT, registro BLACK
+# VSL 3 — Lead 02: Phoenix Marie e Cory Chase testam no vizinho que broxou (carcaça da lead 02 / Goat Honey lead 01) — v2.1 PT, registro BLACK
 
 > Carcaça: a lead 02 do Texas Bull Trick e a lead 01 do Goat Honey Ritual (a atriz abre com o nome do ritual, "fecha a porta antes dela te pegar", as DMs dos fãs, "é a mistura dos atores", a amiga vai testar na frente da câmera → a segunda atriz prepara, passa, "agora é só esperar", pega no pau por cima da calça, o homem de 61 com 4 anos sem ereção, a promessa de 3 a 4 polegadas em 12 dias, as DMs de vídeos, "recusei dinheiro e recebi ameaça" → a história pessoal com prova → o famoso que falou em público → "não é genética, é veneno" → "ganhou 3,5" → a dose e o pai na escola → a promessa → "nunca foi aberto de graça", o servidor, sem replay, $97 → "leva ele; produção, solta o vídeo"). Função a função, outra escrita.
 > O que troca (decisão do Marcos, 15/11): **Phoenix Marie** conduz e **Cory Chase** ajuda; o homem testado é **o vizinho de 58 que não parava de olhar pra casa da Phoenix**; ela chamou ele, ele broxou; ela pegou o truque novo, ele aguentou tanto que ela não deu conta e chamou a Cory; o vídeo é o teste na frente da câmera ("na primeira vez ele broxou, depois do truque vamos ver"); as duas passam a pasta no pau dele (a Cory esfrega na haste, a Phoenix põe embaixo da própria língua e chupa); no fim a Phoenix mostra a Cory já em cima dele, duro e maior, com barulho de sexo enquanto ela termina de falar. **Regra da lead: nada do corpo da VSL** (sem Don, Dr. Drew, Rogan, Vegas, lama cavernosa pelo nome, laboratório): o Dana White entra só como fonte ("foi pra rede nacional dizer que está processando quem vazou a receita errada e que ia mostrar a certa"); a tese fica genérica ("uma toxina que endurece o tecido por dentro"). Ingredientes citados de leve (bicarbonato, sal e mais dois); a lead explícita é a 01.
 > v2 (15/11): registro mais vulgar e sensorial, na boca da mulher (o que ela sente e fala: molhada, latejando, me abrindo, pulsando no fundo, escorrendo pela perna), fluido, pra ele visualizar e sentir tesão ouvindo; mesma carcaça, mesmas funções, mesmo tamanho.
+> v2.1 (15/11): o teste fica no futuro até o fim (a Cory só com a mão nele, 'já está pronto'); a Phoenix fecha com 'chega de falar, vamos testar' → corte rápido de 5 a 8 segundos com o vídeo real das duas com o cara (a Cory montada, ele duro e maior, gemidos) → volta pra Phoenix: 'viu? na primeira vez ele broxou na minha boca; agora olha ele' → 'produção, solta o vídeo do Dana White'.
 > Tamanho-alvo: ≈ 1.100 palavras.
 
 ---
@@ -61,19 +62,19 @@ E isso explodiu de vez no dia em que o próprio Dana White foi pra rede nacional
 
 Quase todo homem acha que pau mole e pau pequeno é idade ou herança de família, e é mentira. O pau do Walt foi sabotado, como o de todo americano nascido depois dos anos 70, por um veneno que está em 97% do que você come e endurece o tecido por dentro. O sangue quer entrar e não consegue. Você devia estar fodendo a sua mulher até ela não conseguir sentar, mas o seu pau foi travado por dentro aos 15 anos e nunca mais cresceu.
 
-*(stocks: antes e depois com régua; a Cory ao fundo já sentada no colo do Walt, descendo devagar)*
+*(stocks: antes e depois com régua; a Cory ao fundo, sentada ao lado do Walt na cama, com a mão no pau dele por cima da cueca, já marcando)*
 
-Com essa pasta, o pau do Walt ganhou 3 polegadas em duas semanas e ficou duro de um jeito que eu não vejo nem em ator de 25. Grosso o bastante pra eu sentir ele me abrindo cada vez que entra. Na segunda noite ele me fez gozar até escorrer pela perna e eu pedir pra parar, e eu nunca peço. Hoje é a Cory que está descobrindo isso.
+Com essa pasta, o pau do Walt ganhou 3 polegadas em duas semanas e ficou duro de um jeito que eu não vejo nem em ator de 25. Grosso o bastante pra eu sentir ele me abrindo cada vez que entra. Na segunda noite ele me fez gozar até escorrer pela perna e eu pedir pra parar, e eu nunca peço. Hoje é a Cory que vai descobrir isso.
 
 [Cory Chase]
 
-*(da cama, montada nele, ofegante, a voz falhando)*
+*(da cama, com a mão dentro da cueca dele, olhando pra câmera)*
 
-Mas vai com calma na dose, senão você passa vergonha de outro jeito: tem homem que dobrou a pitada, fez de manhã e de noite, e foi buscar o neto na escola com uma anaconda marcando na calça. Foi tão fora do normal que vazou, e todo mundo entendeu que não era genética. Tinha alguma coisa a mais, e essa coisa estava no vestiário do UFC. Meu Deus, Phoenix, ele não para.
+Mas vai com calma na dose, senão você passa vergonha de outro jeito: tem homem que dobrou a pitada, fez de manhã e de noite, e foi buscar o neto na escola com uma anaconda marcando na calça. Foi tão fora do normal que vazou, e todo mundo entendeu que não era genética. Tinha alguma coisa a mais, e essa coisa estava no vestiário do UFC. Phoenix, anda logo. Esse aqui já está pronto.
 
 [Phoenix Marie]
 
-*(na cozinha, de costas pra porta do quarto; o som da cama e os gemidos da Cory entram por baixo da fala e sobem até o fim)*
+*(na cozinha, de costas pra porta do quarto)*
 
 Vou te mostrar como aguentar em pé por horas, duro como aço, e dobrar o tamanho do seu pau pra nunca mais se encolher no vestiário. E se gozar nos primeiros 20 minutos, o sangue continua entrando com tanta força que você emenda a segunda e a terceira rodada com ela ainda tremendo, a buceta ainda apertando o seu pau. De manhã, a ereção matinal te acorda antes do despertador, encostada na bunda dela.
 
@@ -81,6 +82,10 @@ Se você quer 8, 9 polegadas aí embaixo, sem risco e sem ninguém saber, presta
 
 Quando o vídeo original foi postado, bateu quase 30 milhões de visualizações em menos de uma semana, e o servidor caiu. Por sorte eu baixei, e estou compartilhando aqui pra você. Presta bastante atenção, porque é o próprio Dana White que monta esse ritual na sua frente, e conta de onde ele vem. E aviso: este vídeo não tem segunda vez. Se sair e tentar voltar, paga 97 dólares pra ver de novo.
 
-*(ela olha pra porta do quarto; a Cory gemendo alto; o Walt rindo)*
+Agora chega de falar. Vamos testar.
 
-Escuta isso. Na primeira vez ele broxou na minha boca. Agora olha ele. Cory, não goza nele antes de eu chegar. Produção, solta o vídeo do Dana White.
+*(CORTE RÁPIDO, 5 a 8 segundos: o vídeo real. A Cory montada no Walt, ele duro e visivelmente maior, os gemidos dela, a cama batendo. Sem fala.)*
+
+*(volta pra Phoenix na cozinha, olhando pra porta do quarto, o som da cama continuando por baixo)*
+
+Viu? Na primeira vez ele broxou na minha boca. Agora olha ele. Enquanto você assiste o Dana, eu volto pra lá. Cory, não goza nele antes de eu chegar. Produção, solta o vídeo do Dana White.
