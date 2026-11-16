@@ -1,10 +1,10 @@
 # VSL 3 — Stallion Soda Ritual — VERSÃO ENXUTA (aplicação da proposta de corte v2 sobre o docx final do Marcos, 16/11)
 
-> Base: o docx "Copy VSL 8D - Stallion Soda Ritual - Stallion Soda 2" (22.850 palavras de fala). Cortes conforme `VSL3_98_Proposta_de_Corte_bloco_a_bloco.md` (v2): sai repetição, recap e explicação dupla; fica toda prova, toda cena e todo beat do DNA HoneyFil. Cada bloco traz a contagem antes → depois (só fala). Resultado do corpo: 18.637 → 14.833 (−3.804, −20%). Nada do docx original foi alterado; este arquivo é a versão pra análise.
+> Base: o docx "Copy VSL 8D - Stallion Soda Ritual - Stallion Soda 2" (22.850 palavras de fala). Cortes conforme `VSL3_98_Proposta_de_Corte_bloco_a_bloco.md` (v2): sai repetição, recap e explicação dupla; fica toda prova, toda cena e todo beat do DNA HoneyFil. Cada bloco traz a contagem antes → depois (só fala). Resultado do corpo: 18.637 → 15.086 (−3.551. −19%). Nada do docx original foi alterado; este arquivo é a versão pra análise.
 
 | Bloco | Antes | Depois |
 |---|---|---|
-| Background | 1.113 | 737 |
+| Background | 1.113 | 990 |
 | Emotional | 2.064 | 1.383 |
 | Discovery | 1.900 | 1.563 |
 | Tese | 2.014 | 1.694 |
@@ -12,12 +12,12 @@
 | Build Up | 2.205 | 1.836 |
 | Big Offer | 4.594 | 3.930 |
 | Close + FAQ | 1.877 | 1.529 |
-| **Corpo** | **18.637** | **14.833** |
+| **Corpo** | **18.637** | **15.086** |
 | Lead 01 / 02 / 03 | 1.331 / 1.595 / 1.287 | 1.169 / 1.276 / 1.132 |
 
 ---
 
-## Background Story (1.113 → 737)
+## Background Story (1.113 → 990)
 
 [Dana White]
 
@@ -57,11 +57,19 @@ Eu nocauteei gente na frente de 20 mil pessoas e ninguém nunca soube que eu pre
 
 [Dana White]
 
-Mas antes de te revelar a receita e o único modo correto de preparo, preciso te mostrar o verdadeiro inimigo, o que está impedindo milhões de americanos de ter a dureza e o tamanho que a natureza programou. Porque a receita só funciona quando você sabe o que ela ataca.
+Mas antes de te revelar a receita completa e o único modo correto de preparo, preciso te mostrar o verdadeiro inimigo, o que está impedindo milhões de americanos, como você, de ter a dureza e o tamanho que a natureza programou. Porque a receita só funciona quando você sabe o que ela ataca.
 
-E eu só descobri esse inimigo por causa do caso mais improvável que eu já vi na vida. Em janeiro deste ano, numa tarde de sábado, o meu telefone tocou. Don Frye. Sim, aquele Don Frye: o bigode, a voz, o Predador, o cara que venceu o UFC 8 inteiro numa noite. E se você nunca assistiu uma luta na vida, imagina o cowboy mais durão que você já viu num filme. É ele.
+E eu só descobri esse inimigo por causa do caso mais improvável que eu já vi na vida. Em janeiro deste ano, numa tarde de sábado, o meu telefone tocou. Do outro lado da linha, um homem que você conhece desde antes do começo do UFC.
 
-O que eu ouvi do outro lado da linha foi a confissão de um homem que tinha chegado ao fundo do poço. E você vai ouvir da boca dele.
+Don Frye. Sim, aquele Don Frye. O bigode, a voz, o Predador. O cara que venceu o UFC 8 inteiro numa noite e nocauteou o Takayama em 6 minutos trocando soco sem dar um passo pra trás. E se você nunca assistiu uma luta na vida, imagina o cowboy mais durão que você já viu num filme: o bigode, o chapéu, a voz de motor de Harley. É ele. Ex-bombeiro, dono de rancho, pai de duas filhas, o capitão do filme Godzilla.
+
+Esse esporte passou 30 anos vendendo esse homem como o macho mais duro que já pisou num octógono. Mas naquela tarde, o que eu ouvi do outro lado da linha foi a confissão de um homem no fundo do poço.
+
+Aquela ligação mudou os 6 meses seguintes da minha vida. Cancelei evento, mandei a equipe pra casa e mergulhei em pesquisas que eu nunca tinha ligado uma à outra. E é por isso que eu quero ser cristalino com você: o que eu vou te mostrar é diferente de tudo que você já tentou ou já ouviu falar.
+
+O que eu e a minha equipe médica descobrimos sobre o tecido do cacete de um homem nunca foi revelado na história da medicina. E essa pasta salgada ataca a substância castradora que sabotou o pau de praticamente todo homem americano acima dos 40, e destrava o tamanho que foi travado em você na puberdade.
+
+Esse é o único motivo pelo qual o Don Frye aceitou me receber no rancho dele e contar tudo com a câmera ligada. Não foi por dinheiro, não foi por vaidade. Foi porque ele descobriu tarde demais, e o preço que pagou por não saber foi um casamento de 20 anos. Ele não quer que outro americano decente e trabalhador pague esse mesmo preço. Por isso, você vai ouvir da boca dele.
 
 ---
 
