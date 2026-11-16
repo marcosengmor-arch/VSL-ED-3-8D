@@ -12,6 +12,8 @@
 
 > v2 (16/11): passada do DNA HoneyFil (arquivo 99): A11 + C6 + C7 (mulher do Statham: 'Esse era o meu casamento', molhada antes de ele encostar, briga resolvida na bancada), J3 + B1 + H4 + B7 (esposa UGC: 'oh meu Deus, ficou enorme e cheio de veia', a louça chacoalhando 40 minutos, chorei de gozar, 'não amoleceu, estava pronto de novo'), A9 (Dr. Drew antes dos $147: pro homem que vai falhar hoje à noite), D5 (Dana: 'Vou ser direto com você' antes do preço final), N (Vegas: buceta de capa de revista, apertada, cheirosa), A10 (Dana: a pior humilhação, antes de 'aí entro eu'), M (rotação: rola x3, cacete x2, esponja x2).
 
+> v2.1 (16/11): bloco de checkout (voz do Dr. Drew, versão do Marcos) encaixado entre o preço final do Dana e os bônus; ponte 'o frasco é só metade do que vai chegar na sua porta' → 'A outra metade são 5 presentes.'
+
 ---
 
 ## Product Presentation
@@ -206,11 +208,29 @@ Mas entenda: só os primeiros 20 levam tudo isso. 6 frascos pagos por mim, reemb
 
 Vou ser direto com você. Se você não estiver entre os primeiros 20, ainda sai com o negócio da sua vida. Em vez de pagar $147 por frasco, o que daria $882, você vai pagar $294. $49 por frasco, 66% de desconto sobre o menor preço que a gente já cobrou. Esse é o negócio.
 
+## Checkout (instruções de compra, voz do Dr. Drew)
+
+[Dr. Drew Pinsky]
+
+Então, escolha o seu kit de Stallion Soda aqui embaixo. Vou ser direto com você: é o menor investimento que você vai fazer na vida, e o único que devolve o seu pau sem depender de pílula nunca mais.
+
+O Stallion Soda original só existe nesta página. Não está na Amazon, não está na farmácia, não está em loja de suplemento. O Dana cortou todo intermediário pra você pegar a fórmula de Lexington direto da fábrica, pelo preço que custa fazer, sem margem de farmacêutica.
+
+Agora olha o que você faz.
+
+Logo abaixo deste vídeo estão os kits. Ao clicar, você cai na página de pagamento, protegida por criptografia de nível militar, a mesma que o Federal Reserve e a Casa Branca usam. Ninguém vê o seu cartão. Ninguém vê o seu nome.
+
+Lá são 3 passos. Primeiro, rola a página pra baixo: nome completo, telefone e e-mail. Segundo, o endereço onde o kit chega. Terceiro, os dados do cartão, clica em "Comprar Agora", e pronto. 2 minutos.
+
+Nossa equipe, aqui nos Estados Unidos, despacha no mesmo dia numa caixa discreta, sem nome de produto por fora. Nem a sua mulher, nem o carteiro vão saber do que se trata. Em 3 a 5 dias úteis está na sua porta, e no dia 4 você vai ver a diferença no seu lençol.
+
+Mas não desce ainda. Porque o frasco é só metade do que vai chegar na sua porta.
+
 ## Bonus
 
 [Dr. Drew Pinsky]
 
-E porque eu quero que você entre no quarto da sua esposa hoje à noite e domine ela como ela nunca foi dominada antes, qualquer um que garantir o pacote de 6 frascos hoje sai com 5 presentes exclusivos, todos grátis.
+A outra metade são 5 presentes. Porque eu quero que você entre no quarto da sua esposa hoje à noite e domine ela como ela nunca foi dominada antes, qualquer um que garantir o pacote de 6 frascos hoje sai com 5 presentes exclusivos, todos grátis.
 
 O primeiro é o Manual Johnny Sins: Como Usar o Seu Novo Pau, um guia técnico feito com o maior astro pornô do mundo.
 
@@ -281,19 +301,3 @@ Isso me desarmou. Abri o frasco. No quarto dia, acordei com uma ereção que eu 
 Me diz uma coisa: quantas vezes um médico te deu uma garantia dessas? Quantas vezes a indústria farmacêutica ofereceu isso pros remédios cheios de efeitos colaterais que ela empurra pra você? Quando foi que a Pfizer te devolveu um dólar? Nunca.
 
 Se eu não tivesse certeza absoluta, eu iria à falência. Eu não boto o meu nome em merda nenhuma. Boto nisso. E antes de você escolher, eu quero que você ouça isto do homem que estava pior do que você.
-
-## Checkout (instruções de compra, voz do Dr. Drew)
-
-> Adaptado do bloco Neurocept. Posição a definir (depois da garantia ou depois das 3 razões do Close). v3 (16/11): versão do Marcos na voz do Dr. Drew, com o DNA HoneyFil (comando físico, veredito curto, número no lugar de adjetivo, promessa colhida no dia 4, "é normal? completamente normal") e mais compacta.
-
-[Dr. Drew Pinsky]
-
-Então, escolhe o seu kit de Stallion Soda aqui embaixo. Vou ser direto com você: é o menor investimento que você vai fazer na vida, e o único que devolve o seu pau sem depender de pílula nunca mais.
-
-O Stallion Soda original só existe nesta página. Não está na Amazon, não está na farmácia, não está em loja de suplemento. O Dana cortou todo intermediário pra você pegar a fórmula de Lexington direto da fábrica, pelo preço que custa fazer, sem margem de farmacêutica.
-
-Agora olha o que você faz. Logo abaixo deste vídeo estão os kits. Ao clicar, você cai na página de pagamento, protegida por criptografia de nível militar, a mesma que o Federal Reserve e a Casa Branca usam. Ninguém vê o seu cartão. Ninguém vê o seu nome.
-
-Lá são 3 passos. Primeiro, rola a página pra baixo: nome completo, telefone e e-mail. Segundo, o endereço onde o kit chega. Terceiro, os dados do cartão, "Comprar Agora", e pronto. 2 minutos.
-
-A equipe do Dana, aqui nos Estados Unidos, despacha no mesmo dia numa caixa discreta, sem nome de produto por fora. Nem a sua mulher, nem o carteiro. Em 3 a 5 dias úteis está na sua porta, e no dia 4 está no seu lençol. É normal ficar nervoso agora? Completamente normal. Desce a página.
