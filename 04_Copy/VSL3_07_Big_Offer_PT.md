@@ -294,7 +294,7 @@ O Stallion Soda original está disponível única e exclusivamente nesta página
 
 Agora olha exatamente o que você precisa fazer pra concluir o seu pedido com segurança.
 
-Logo abaixo deste vídeo você encontra as opções de kit. Ao clicar, você é levado pra nossa página de pagamento, 100% segura, protegida pela mesma criptografia que os grandes bancos internacionais usam. As suas informações ficam totalmente protegidas. Lá, é só seguir estes passos:
+Logo abaixo deste vídeo você encontra as opções de kit. Ao clicar, você é levado pra nossa página de pagamento, 100% segura, protegida por criptografia de nível militar, a mesma tecnologia que o Federal Reserve e a Casa Branca usam pra proteger os dados deles. Nem o Dana White consegue ver o número do seu cartão. As suas informações ficam totalmente protegidas. Lá, é só seguir estes passos:
 
 Primeiro, rola a página pra baixo e preenche o seu nome completo, telefone e e-mail.
 
