@@ -54,3 +54,35 @@ Graças a essa pasta do garanhão, eu tenho o mesmo fôlego que tinha aos 20 e p
 Vou ser sincero: achei que essa pasta de bicarbonato com sal fosse bobagem de lutador. Mas a pitada arde embaixo da língua, a mão esquenta, e em 4 dias as minhas ereções ficaram 20 vezes mais intensas do que antes. Até recuperei 3 polegadas lá embaixo que tinham me roubado nos últimos 30 anos.
 
 Agora, aos 82, eu faço a minha esposa, 25 anos mais nova que eu, molhar o lençol de prazer toda noite com a pasta do Dana. É uma loucura, porra!
+
+## Bloco social + Dr. Oz (emenda nos depoimentos)
+
+> Adaptado da VSL 1. Pasta cinza (não creme); Dana no lugar do Huberman; números alinhados ao corpo (3.000 homens do ensaio, 70 e poucos estudos); causa raiz em linguagem de lead ("barro seco dentro de um cano", sem "lama cavernosa"); Dr. Oz com 40 anos de medicina.
+
+[Savannah Reed]
+
+*(Ela fora do celeiro, com chapéu de cowboy e sem camisa, bancada à frente com o resultado da mistura dentro do pilão, uma pasta cinza e grossa, enquanto mexe com uma das mãos)*
+
+E não é só a velha guarda de Hollywood que está se divertindo. Mais de 36.000 homens já testaram esse ritual por conta própria, no banheiro de casa, sem contar pra ninguém. De 40 a 79 anos. Magro, gordo, diabético, cardíaco, 20 anos de Viagra no armário, não importa.
+
+E praticamente todos contam a mesma história: pau duro feito pedra em 13 segundos de mão fechada. Sob demanda. Não importa há quanto tempo o seu não levanta. Não importa o quanto ele parece morto hoje. Essa pasta acorda os mortos.
+
+Eles estão economizando milhares de dólares e jogando no lixo aquelas bombas embaraçosas, as cartelas de Viagra e o tadalafil que só prejudicam a saúde, causando ataque cardíaco e derrame.
+
+Não acredita? Esse ritual do garanhão surpreendeu até os melhores urologistas do país.
+
+*(Ela pega a pasta cinza com dois dedos, põe embaixo da língua de forma sexy, fecha os olhos e a boca enche de água)*
+
+[Depoimento - Dr. Oz]
+
+Atendo homens todo dia preocupados com a perda da ereção. Por 40 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nenhum deles devolvia o pau duro de verdade. Devolvia por uma hora, com dor de cabeça.
+
+Até o Dana White, que eu conheço há 20 anos, comprar briga de frente com as grandes farmacêuticas e provar que essas soluções não tocam na causa principal que está deixando o seu cacete adormecido.
+
+Mais de 70 estudos de universidades como Stanford e Johns Hopkins, junto com o ensaio clínico que ele mesmo bancou do próprio bolso com 3.000 homens americanos, provaram que a raiz da disfunção não tem nada a ver com idade, testosterona, estresse ou a cerveja do fim de semana.
+
+É um acúmulo de depósitos rígidos, uma espécie de placa que vai se formando dentro do tecido esponjoso do pênis ao longo de 30 anos, feito barro secando dentro de um cano. O sangue quer entrar, mas não consegue. E o que entra, não fica.
+
+E a pasta salgada do garanhão, com o bicarbonato e o sal preparados do jeito certo, é a única coisa que eu vi em 40 anos de medicina que dissolve isso.
+
+Depois que comecei a recomendar, até paciente com disfunção erétil crônica, homem de 74 a quem eu mesmo disse na cara que nunca mais teria uma ereção, voltou ao consultório em 4 dias com a esposa do lado, pedindo pra eu explicar pra ela o que ele tinha tomado.
