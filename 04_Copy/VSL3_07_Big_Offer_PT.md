@@ -12,7 +12,7 @@
 
 > v2 (16/11): passada do DNA HoneyFil (arquivo 99): A11 + C6 + C7 (mulher do Statham: 'Esse era o meu casamento', molhada antes de ele encostar, briga resolvida na bancada), J3 + B1 + H4 + B7 (esposa UGC: 'oh meu Deus, ficou enorme e cheio de veia', a louça chacoalhando 40 minutos, chorei de gozar, 'não amoleceu, estava pronto de novo'), A9 (Dr. Drew antes dos $147: pro homem que vai falhar hoje à noite), D5 (Dana: 'Vou ser direto com você' antes do preço final), N (Vegas: buceta de capa de revista, apertada, cheirosa), A10 (Dana: a pior humilhação, antes de 'aí entro eu'), M (rotação: rola x3, cacete x2, esponja x2).
 
-> v2.1 (16/11): bloco de checkout (voz do Dr. Drew, versão do Marcos) encaixado entre o preço final do Dana e os bônus; ponte 'o frasco é só metade do que vai chegar na sua porta' → 'A outra metade são 5 presentes.'
+> v2.2 (16/11): checkout refeito na voz do Dana, modelado no bloco da HoneyFil (os dois preços como sinal, o contador, 3 minutos, 'pega o cartão / 3, 2, 1, vai', a saída dos não-20 com frete grátis e envio em 2 dias); substitui a versão do Dr. Drew e o parágrafo antigo do preço final. Ponte pros bônus mantida.
 
 ---
 
@@ -206,23 +206,23 @@ Tenho 61 anos e fazia 4 anos que não ficava duro sem pílula. Foi o melhor fim 
 
 Mas entenda: só os primeiros 20 levam tudo isso. 6 frascos pagos por mim, reembolso total instantâneo, zero do seu bolso, mais o fim de semana em Vegas.
 
-Vou ser direto com você. Se você não estiver entre os primeiros 20, ainda sai com o negócio da sua vida. Em vez de pagar $147 por frasco, o que daria $882, você vai pagar $294. $49 por frasco, 66% de desconto sobre o menor preço que a gente já cobrou. Esse é o negócio.
+## Checkout (passo a passo da compra, voz do Dana)
 
-## Checkout (instruções de compra, voz do Dr. Drew)
+> Modelado no bloco de checkout da HoneyFil (botão verde, os dois preços como sinal, o contador no canto da tela, criptografia, reembolso em 3 minutos, "pega o cartão / 3, 2, 1, vai", e a saída pra quem não está entre os 20). Neuralink → "a minha equipe"; iate → Vegas; JPMorgan → criptografia militar / Federal Reserve / Casa Branca.
 
-[Dr. Drew Pinsky]
+Abaixo deste vídeo você vai ver um botão verde. É ali que você garante o seu pacote de 6 frascos. Se você vir 294 dólares, o meu subsídio ainda está ativo. Você ainda está a tempo. Se vir 882, os primeiros 20 já foram e eu parei de pagar.
 
-Então, escolha o seu kit de Stallion Soda aqui embaixo. Vou ser direto com você: é o menor investimento que você vai fazer na vida, e o único que devolve o seu pau sem depender de pílula nunca mais.
+Agora olha pro canto superior direito da sua tela. Está vendo aquele número caindo? Toda vez que ele cai, outro homem acabou de pegar uma vaga que podia ser sua. E o segundo número? É quantos homens estão nesta página com você, neste exato segundo, decidindo se clicam antes de você. É por isso que você não espera. Tem homem clicando antes de eu terminar esta frase.
 
-O Stallion Soda original só existe nesta página. Não está na Amazon, não está na farmácia, não está em loja de suplemento. O Dana cortou todo intermediário pra você pegar a fórmula de Lexington direto da fábrica, pelo preço que custa fazer, sem margem de farmacêutica.
+No instante em que você clica, cai numa página de checkout protegida por criptografia de nível militar, a mesma que o Federal Reserve e a Casa Branca usam pra guardar os dados deles. Ninguém vê o seu cartão. Ninguém vê o seu nome. Preenche o seu nome, o endereço de entrega, o pagamento. 3 minutos no total.
 
-Agora olha o que você faz.
+No momento em que o seu pedido é aprovado, se você for um dos primeiros 20, a minha equipe processa o seu reembolso em 3 minutos. O dinheiro volta pra sua conta antes de o Stallion Soda sair do galpão.
 
-Logo abaixo deste vídeo estão os kits. Ao clicar, você cai na página de pagamento, protegida por criptografia de nível militar, a mesma que o Federal Reserve e a Casa Branca usam. Ninguém vê o seu cartão. Ninguém vê o seu nome.
+Então aqui está o que eu preciso que você faça. Pega o seu cartão agora. Quando eu disser "vai", rola pra baixo, clica no botão verde do pacote de 6 frascos e finaliza o checkout. Se você estiver entre os primeiros 20, o dinheiro volta, o fim de semana em Vegas fica garantido e 6 frascos saem discretamente pra sua porta, sem nome de produto na caixa.
 
-Lá são 3 passos. Primeiro, rola a página pra baixo: nome completo, telefone e e-mail. Segundo, o endereço onde o kit chega. Terceiro, os dados do cartão, clica em "Comprar Agora", e pronto. 2 minutos.
+3, 2, 1, vai! Clica no botão abaixo agora mesmo e garante os seus 6 frascos antes que os primeiros 20 acabem.
 
-Nossa equipe, aqui nos Estados Unidos, despacha no mesmo dia numa caixa discreta, sem nome de produto por fora. Nem a sua mulher, nem o carteiro vão saber do que se trata. Em 3 a 5 dias úteis está na sua porta, e no dia 4 você vai ver a diferença no seu lençol.
+Vou ser direto com você. Se você não estiver entre os primeiros 20, ainda sai com o negócio da sua vida. Em vez de pagar $147 por frasco, o que daria $882, você vai pagar $294. $49 por frasco, 66% de desconto sobre o menor preço que a gente já cobrou. E além de custar menos, você tem prioridade máxima no envio, em até 2 dias, com frete 100% grátis. Esse é o negócio.
 
 Mas não desce ainda. Porque o frasco é só metade do que vai chegar na sua porta.
 
