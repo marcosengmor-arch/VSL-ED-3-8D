@@ -284,14 +284,24 @@ Se eu não tivesse certeza absoluta, eu iria à falência. Eu não boto o meu no
 
 ## Checkout (instruções de compra, voz do Dana)
 
-> Adaptado do bloco Neurocept, enxuto. Posição a definir (depois da garantia ou depois das 3 razões do Close).
+> Adaptado do bloco Neurocept. Posição a definir (depois da garantia ou depois das 3 razões do Close). v2: um pouco mais explicado (passo a passo numerado, o porquê da exclusividade, a caixa discreta).
 
 [Dana White]
 
-Escolhe o seu kit de Stallion Soda aqui embaixo. É o menor investimento que você vai fazer na vida, e o único que devolve o seu pau.
+Escolhe o seu kit de Stallion Soda aqui embaixo. Considera isso o menor investimento que você vai fazer na vida, e o mais poderoso, porque é o único que devolve o seu pau e a sua independência na cama, sem depender de pílula nunca mais.
 
-O Stallion Soda original só existe nesta página. Não está na Amazon, não está na farmácia, não está em loja de suplemento. Eu cortei todo intermediário pra você pegar a fórmula de Lexington direto da fábrica, pelo preço que custa fazer, sem margem de farmacêutica.
+O Stallion Soda original está disponível única e exclusivamente nesta página. Não está na Amazon, não está na farmácia, não está em loja de suplemento, e se você vir por aí, é cópia. Eu cortei todo intermediário pra você pegar a fórmula de Lexington direto da fábrica, pelo preço que custa fazer, sem margem de farmacêutica. Esta é a sua única oportunidade de ter a fórmula completa, os 4 ingredientes na proporção certa, feita pra dissolver a lama cavernosa e reconstruir a esponja, atacando a causa raiz da moleza, e não o sintoma.
 
-Logo abaixo do vídeo estão os kits. Clicou, você cai na página de pagamento, 100% segura, com a mesma criptografia dos grandes bancos. Lá é simples: nome, telefone e e-mail. O endereço onde o frasco chega. O cartão. Clica em "Comprar Agora" e pronto.
+Agora olha exatamente o que você precisa fazer pra concluir o seu pedido com segurança.
 
-A minha equipe, aqui nos Estados Unidos, despacha no mesmo dia, em caixa discreta, sem nada escrito por fora, e em 3 a 5 dias úteis o Stallion Soda está na sua porta. No dia 4, está no seu lençol.
+Logo abaixo deste vídeo você encontra as opções de kit. Ao clicar, você é levado pra nossa página de pagamento, 100% segura, protegida pela mesma criptografia que os grandes bancos internacionais usam. As suas informações ficam totalmente protegidas. Lá, é só seguir estes passos:
+
+Primeiro, rola a página pra baixo e preenche o seu nome completo, telefone e e-mail.
+
+Segundo, informa o endereço onde você quer receber o seu kit.
+
+Terceiro, insere os dados do cartão.
+
+Clica em "Comprar Agora" e pronto.
+
+A minha equipe, aqui nos Estados Unidos, prepara o seu envio imediatamente, numa caixa discreta, sem nome de produto por fora, e você recebe no conforto da sua casa em 3 a 5 dias úteis, dentro dos EUA. No dia 4, o Stallion Soda está no seu lençol.
