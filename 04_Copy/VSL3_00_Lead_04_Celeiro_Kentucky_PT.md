@@ -34,3 +34,23 @@ Porque é assim que eles mantêm um garanhão de 2.000 libras cobrindo 200 égua
 Arde. Trinta segundos embaixo da língua e a boca enche de água. E quando é preparado do jeito certo, esse velho me disse que bate 14 vezes mais forte do que a pílula azul inteira. Sem a cara vermelha, sem a dor de cabeça e sem esperar uma hora pra fazer efeito. Pitada, 13 segundos de mão, levantou. Depois de ontem à noite, eu acredito nele. Minhas coxas ainda tremem quando eu lembro.
 
 Foi o Dana White quem levou isso dos haras de Kentucky pros veteranos aposentados do UFC, e é por isso que homem de 55 que apanhou a vida inteira hoje come a mulher de 30 sem pílula. Depois virou segredinho de corredor entre homens de 60, 70 anos que escondiam o pau mole da esposa há anos… e voltaram a acordar com a ereção levantando o lençol, 40 minutos de pau duro feito aço. Mas você não precisa acreditar em mim. Acredita neles.
+
+## Depoimentos de famosos (emendam no "Acredita neles.")
+
+> Adaptados da VSL 1 (Gibson / Clooney / Douglas). Gimmick rotacionado: ritual da pasta salgada do garanhão, pasta do garanhão, pasta do Dana. Parceiras sem nome (mesmo critério da mulher do Statham). Idades reais em 2026: Gibson 70, Clooney 65, Douglas 82.
+
+[Depoimento - Mel Gibson]
+
+Esse ritual da pasta salgada do garanhão que o Dana me passou na beira do octógono é uma loucura! Acordo toda manhã com o pau tão duro que dá pra pendurar uma toalha nele, e a toalha fica lá.
+
+Aos 70 anos, eu como a minha namorada de 27 a noite inteira, duro feito pedra, sem amolecer uma vez, todas as noites. Me empolguei tanto que engravidei a garota. Uma vida inteira no cinema, e quem diria que o melhor papel ia ser esse.
+
+[Depoimento - George Clooney]
+
+Graças a essa pasta do garanhão, eu tenho o mesmo fôlego que tinha aos 20 e poucos, lá quando ninguém sabia o meu nome. Ontem à noite deixei a minha mulher encharcada 3 vezes e não baixei uma vez, por mais de duas horas. Ela olhou pra mim e disse: "quem é você e o que fez com o meu marido?". Nada mal pra um cara de 65, né?
+
+[Depoimento - Michael Douglas]
+
+Vou ser sincero: achei que essa pasta de bicarbonato com sal fosse bobagem de lutador. Mas a pitada arde embaixo da língua, a mão esquenta, e em 4 dias as minhas ereções ficaram 20 vezes mais intensas do que antes. Até recuperei 3 polegadas lá embaixo que tinham me roubado nos últimos 30 anos.
+
+Agora, aos 82, eu faço a minha esposa, 25 anos mais nova que eu, molhar o lençol de prazer toda noite com a pasta do Dana. É uma loucura, porra!
