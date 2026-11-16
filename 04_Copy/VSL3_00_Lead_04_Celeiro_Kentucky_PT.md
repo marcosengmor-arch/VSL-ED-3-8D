@@ -55,9 +55,9 @@ Vou ser sincero: achei que essa pasta de bicarbonato com sal fosse bobagem de lu
 
 Agora, aos 82, eu faço a minha esposa, 25 anos mais nova que eu, molhar o lençol de prazer toda noite com a pasta do Dana. É uma loucura, porra!
 
-## Bloco social + Dr. Oz (emenda nos depoimentos)
+## Bloco social + Dra. Annika Ackerman (emenda nos depoimentos)
 
-> Adaptado da VSL 1. Pasta cinza (não creme); Dana no lugar do Huberman; números alinhados ao corpo (3.000 homens do ensaio, 70 e poucos estudos); causa raiz em linguagem de lead ("barro seco dentro de um cano", sem "lama cavernosa"); Dr. Oz com 40 anos de medicina.
+> Adaptado da VSL 1. Pasta cinza (não creme); Dana no lugar do Huberman; números alinhados ao corpo (3.000 homens do ensaio, 70 e poucos estudos); causa raiz em linguagem de lead ("barro seco dentro de um cano", sem "lama cavernosa"); Dra. Annika Ackerman (uróloga, 22 anos de consultório) no lugar do Dr. Oz.
 
 [Savannah Reed]
 
@@ -73,16 +73,16 @@ Não acredita? Esse ritual do garanhão surpreendeu até os melhores urologistas
 
 *(Ela pega a pasta cinza com dois dedos, põe embaixo da língua de forma sexy, fecha os olhos e a boca enche de água)*
 
-[Depoimento - Dr. Oz]
+[Depoimento - Dra. Annika Ackerman, uróloga]
 
-Atendo homens todo dia preocupados com a perda da ereção. Por 40 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nenhum deles devolvia o pau duro de verdade. Devolvia por uma hora, com dor de cabeça.
+Atendo homens todo dia preocupados com a perda da ereção, e as esposas que vêm junto, calada, no banco de trás. Por 22 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nenhum deles devolvia o pau duro de verdade. Devolvia por uma hora, com dor de cabeça.
 
-Até o Dana White, que eu conheço há 20 anos, comprar briga de frente com as grandes farmacêuticas e provar que essas soluções não tocam na causa principal que está deixando o seu cacete adormecido.
+Até o Dana White, que eu conheço há 10 anos, comprar briga de frente com as grandes farmacêuticas e provar que essas soluções não tocam na causa principal que está deixando o seu cacete adormecido.
 
 Mais de 70 estudos de universidades como Stanford e Johns Hopkins, junto com o ensaio clínico que ele mesmo bancou do próprio bolso com 3.000 homens americanos, provaram que a raiz da disfunção não tem nada a ver com idade, testosterona, estresse ou a cerveja do fim de semana.
 
 É um acúmulo de depósitos rígidos, uma espécie de placa que vai se formando dentro do tecido esponjoso do pênis ao longo de 30 anos, feito barro secando dentro de um cano. O sangue quer entrar, mas não consegue. E o que entra, não fica.
 
-E a pasta salgada do garanhão, com o bicarbonato e o sal preparados do jeito certo, é a única coisa que eu vi em 40 anos de medicina que dissolve isso.
+E a pasta salgada do garanhão, com o bicarbonato e o sal preparados do jeito certo, é a única coisa que eu vi em 22 anos de consultório que dissolve isso.
 
-Depois que comecei a recomendar, até paciente com disfunção erétil crônica, homem de 74 a quem eu mesmo disse na cara que nunca mais teria uma ereção, voltou ao consultório em 4 dias com a esposa do lado, pedindo pra eu explicar pra ela o que ele tinha tomado.
+Depois que comecei a recomendar, até paciente com disfunção erétil crônica, homem de 74 a quem eu mesma disse na cara que nunca mais teria uma ereção, voltou ao consultório em 4 dias com a esposa do lado. Foi ela quem pediu pra eu explicar o que ele tinha tomado, porque não dormia há três noites.
