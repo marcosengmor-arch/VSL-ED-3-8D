@@ -5,6 +5,8 @@
 > v1.1 (14/11): vozes do Close: o Don abre; o Dr. Drew faz os dois caminhos ('o Don tem razão' até 'pega de volta o seu pau, a sua mulher e a sua vida'); o Dana do 'eu já fiz a minha parte' até o CTA (as partes médicas atribuídas ao Dr. Drew em menção). FAQ: o Dana abre e passa pro Dr. Drew responder; o Dana fecha ('bom, é isso... obrigado por assistir').
 > Tamanho-alvo: controle ≈ 1.500 palavras (close ≈ 1.050 + FAQ ≈ 450).
 
+> v2 (16/11): passada do DNA HoneyFil (arquivo 99): D4 ('Agora imagina a cena.' antes do caminho 1), A12 (talvez ela já esteja num quarto de hotel), B5 + C12 (mês 6: o tipo de homem que a ring girl olha duas vezes), E3 (pedir arrego / pedir revanche), C15 (future pacing anafórico 'Imagina...' x3 antes das 3 razões), D1 ('Mas o terceiro'), F2 ('Pega o cartão. Desce a página. 3, 2, 1.'), F5 ('É normal? Completamente normal.' no Travis e no Joseph), C13 (nova pergunta do Carl: a fatura do cartão), M (rotação: rola x2, cacete x2).
+
 ---
 
 ## Close
@@ -17,15 +19,17 @@ Você tem duas escolhas agora. Fechar este vídeo e continuar dormindo de costas
 
 [Dr. Drew Pinsky]
 
-O Don tem razão. Deste ponto em diante, você tem dois caminhos. Só dois. No primeiro, você fecha este vídeo e segue com a sua vida do jeito que estava. A lama continua secando dentro de você, em silêncio.
+O Don tem razão. Deste ponto em diante, você tem dois caminhos. Só dois. No primeiro, você fecha este vídeo e segue com a sua vida do jeito que estava. Agora imagina a cena. A lama continua secando dentro de você, em silêncio.
 
 Em 18 meses, você está dormindo de costas pra ela por escolha própria. Em 5 anos, a perda é permanente. Em 10, é rendição total. E um belo dia, num jantar de família, você vai ver a sua esposa rindo pra outro homem do outro lado da mesa e fingir que está tudo normal.
 
-Você sabe que não está. No segundo caminho, você desce esta página, escolhe o kit de 6 frascos e clica no botão verde abaixo.
+Você sabe que não está. Talvez ela já esteja pensando em outro. Talvez já tenha o número dele. Talvez já esteja num quarto de hotel com um homem cujo pau funciona.
+
+No segundo caminho, você desce esta página, escolhe o kit de 6 frascos e clica no botão verde abaixo.
 
 Você coloca os seus dados numa página segura, e em 72 horas o Stallion Soda chega na sua casa numa caixa discreta, sem nome no rótulo nem na fatura do cartão. Em 4 dias, você acorda duro feito pedra pela primeira vez em anos. Em 14, joga o Viagra no lixo. Em 30, ela solta um gemido assustado quando você coloca.
 
-E em três meses, ela parou de olhar pra qualquer outro homem. Um caminho leva à rendição. O outro leva de volta ao homem que ela escolheu um dia. Você é o homem que clica, ou não é.
+E em três meses, ela parou de olhar pra qualquer outro homem. Em 6 meses você é outro homem: maior, mais duro, no comando, o tipo de homem que a ring girl olha duas vezes. Um caminho leva à rendição. O outro leva de volta ao homem que ela escolheu um dia. Você é o homem que clica, ou não é.
 
 Clica no botão verde, escolhe o seu kit, e pega de volta o seu pau, a sua mulher e a sua vida.
 
@@ -37,17 +41,17 @@ Eu te levei ao rancho do Don e a Lexington, e te mostrei o segredo do garanhão.
 
 Te dei a escada de kits, o reembolso total pros 20 primeiros, o fim de semana em Vegas, a ring girl, os bônus, a Stallion Guarantee de 60 dias com os meus 200 dólares. Eu te dei tudo que eu tinha pra te dar. Agora me escuta com atenção. O único risco real aqui é não fazer nada.
 
-Porque enquanto você hesita aí no sofá, outro homem já está clicando no botão verde e garantindo exatamente o que você passou esta última hora assistindo: um pau maior, uma ereção firme, a esposa dele voltando pra cama chorando de desejo. Ele está fazendo.
+Porque enquanto você hesita aí no sofá, outro homem já está clicando no botão verde e garantindo exatamente o que você passou esta última hora assistindo: uma rola maior, uma ereção firme, a esposa dele voltando pra cama chorando de desejo. Ele está fazendo.
 
-Você está se perguntando se tem alguma pegadinha. Não tem. Imagina daqui a três meses. O seu pau na sua mão logo de manhã, mais grosso, mais pesado, mais duro do que era aos 25, latejando antes mesmo de você abrir os olhos.
+Você está se perguntando se tem alguma pegadinha. Não tem. Imagina daqui a três meses. O seu cacete na sua mão logo de manhã, mais grosso, mais pesado, mais duro do que era aos 25, latejando antes mesmo de você abrir os olhos.
 
 Uma ereção dura feito pedra toda noite, cutucando as costas dela até ela acordar e sentar sem você nem pedir. A energia dos seus 40 de volta, o seu corpo respondendo na academia, e quando você goza… goza, o seu jato triplicado.
 
 E a sua mulher, a que vinha virando as costas pra você há 5 anos, que já tinha desistido de você, voltando a molhar a calcinha só de ouvir o chuveiro desligar, porque ela sabe que você vai sair daquele banheiro duro feito pedra e foder ela até ela não aguentar mais.
 
-Você vai foder a noite inteira sem amolecer. Vai fazer ela esguichar, fazer ela implorar pra você parar, e no dia seguinte é ela que vai vir te procurar pedindo mais.
+Você vai foder a noite inteira sem amolecer. Vai fazer ela esguichar, pedir arrego, e no dia seguinte é ela que vem pedir revanche.
 
-Ela vai te olhar com aquele desejo do começo, e com um medo novo: te perder pra outra. É isso que está do outro lado desta decisão, a um clique de distância, e enquanto você desce a página, eu vou te dar 3 motivos pra clicar antes de fechar.
+Ela vai te olhar com aquele desejo do começo, e com um medo novo: te perder pra outra. Imagina acordar duro feito pedra. Imagina o rosto dela quando você entra. Imagina entrar na arena ao meu lado e as ring girls olhando duas vezes. É isso que está do outro lado desta decisão, a um clique de distância, e enquanto você desce a página, eu vou te dar 3 motivos pra clicar antes de fechar.
 
 O primeiro é lógico. Você assistiu até aqui. Viu a ciência do Dr. Drew, o glifosato, o cocho de Lexington, o laboratório federal. Viu o Don, o trial de 3.000 homens, os 94% de reversão. Cada número que a gente te deu, cada rosto que eu te mostrei tem nome. Faça a única escolha que um homem inteligente faria diante de tanta prova.
 
@@ -57,11 +61,11 @@ O segundo é mecânico. O kit de 6 frascos dissolve toda a lama e trava o result
 
 Faça uma vez. Termine o ciclo. Escolha o kit de 6 frascos.
 
-E o terceiro é o que realmente importa. Aquela mulher que vai dormir do seu lado hoje à noite já te escolheu uma vez, lá atrás, quando você ainda era o homem que molhava ela antes de encostar.
+Mas o terceiro é o que realmente importa. Aquela mulher que vai dormir do seu lado hoje à noite já te escolheu uma vez, lá atrás, quando você ainda era o homem que molhava ela antes de encostar.
 
 O homem que fazia ela esquecer o próprio nome na cama. Esse homem não morreu. Está enterrado embaixo de 30 anos de lama, de glifosato, de 200 jantares em que ela desviou o olhar achando que você não percebia. Mas ele ainda está lá dentro, inteiro. Seja ele de novo.
 
-Você tem 3 motivos pra clicar: lógica, mecânica, identidade. Escolha um, escolha os 3. Não importa qual te tira do sofá, o que importa é você levantar dele. Então clica no botão verde abaixo, escolhe o seu kit, e vira o homem de quem ela não consegue tirar os olhos. Hoje.
+Você tem 3 motivos pra clicar: lógica, mecânica, identidade. Escolha um, escolha os 3. Não importa qual te tira do sofá, o que importa é você levantar dele. Então clica no botão verde abaixo, escolhe o seu kit, e vira o homem de quem ela não consegue tirar os olhos. Hoje. Pega o cartão. Desce a página. 3, 2, 1.
 
 ## FAQ
 
@@ -73,9 +77,9 @@ Alô? Ainda aí? Beleza. Eu sei que você ainda pode ter uma ou duas perguntas, 
 
 O Travis, de Phoenix, perguntou: "Comecei o Stallion Soda há três dias e não sei se estou ficando louco, mas estou acordando com uma barraca armada, e o meu pênis está claramente duro feito pedra. A cueca mal segura o peso. Isso é normal? Não está funcionando rápido demais?"
 
-Travis, você não está louco. Isso é completamente normal. A lama que estava travando o tecido do seu pau está sendo dissolvida pelo pó preparado, o sal molhou a esponja e acordou os receptores, e o seu corpo está correndo atrás do que perdeu. E você não está sozinho. Mais de 76% dos homens relatam ereções mais firmes nos primeiros dias.
+Travis, você não está louco. É normal? Completamente normal. A lama que estava travando o tecido da sua rola está sendo dissolvida pelo pó preparado, o sal molhou a esponja e acordou os receptores, e o seu corpo está correndo atrás do que perdeu. E você não está sozinho. Mais de 76% dos homens relatam ereções mais firmes nos primeiros dias.
 
-O Ray, de Chicago, perguntou: "Tenho 62 anos, e desde que comecei a tomar o Stallion Soda, estou fodendo a minha mulher 3 vezes por dia até ela implorar por misericórdia. O meu pau simplesmente não amolece mais. Isso pode ser ruim pra minha saúde?"
+O Ray, de Chicago, perguntou: "Tenho 62 anos, e desde que comecei a tomar o Stallion Soda, estou fodendo a minha mulher 3 vezes por dia até ela implorar por misericórdia. O meu cacete simplesmente não amolece mais. Isso pode ser ruim pra minha saúde?"
 
 Não, Ray, é totalmente normal e bom pra sua saúde. A única coisa em risco aqui é quanto tempo a sua cama aguenta. O seu corpo finalmente acordou a potência que sempre teve, e agora você tem a energia de um garanhão. Só tenta não exagerar pra não ter que trocar o colchão todo mês.
 
@@ -91,9 +95,13 @@ O Brian, de Nova York, perguntou: "O presente surpresa que veio com o Stallion S
 
 Que bom que gostou, Brian. O Stallion Soda tem uma parceria exclusiva com aquela empresa, e é por isso que a gente consegue te oferecer esse presente totalmente de graça.
 
+O Carl, de Ohio, perguntou: "A minha mulher confere a fatura do cartão todo mês. O que vai aparecer lá?"
+
+Nada que ela entenda, Carl. O nome na fatura do cartão não tem nenhuma referência ao Stallion Soda, e a caixa chega sem nome de produto por fora. O que ela vai perceber é outra coisa, no dia 4, e aí você explica como quiser.
+
 O Joseph Garcia, de Los Angeles, perguntou: "Eu durava 5 minutos na cama e agora estou indo a 50. Pelo amor de Deus, isso é normal? A minha mulher quer foder o dia inteiro. Ela nem me deixa ir trabalhar."
 
-Sim, Joseph, isso é 100% normal. A minha dica: sai de fininho antes que a sua mulher perceba. É exatamente o que eu tenho que fazer também. Haha.
+É normal, Joseph? Completamente normal. A minha dica: sai de fininho antes que a sua mulher perceba. É exatamente o que eu tenho que fazer também. Haha.
 
 [Dana White]
 
