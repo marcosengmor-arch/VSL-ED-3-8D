@@ -5,6 +5,8 @@
 > v2.1 (13/11): Depoimento 04 = Sargento Ray, 54, Exército, duas missões no Iraque (tiro em Fallujah; 'servi esse país, o país me devolveu o pau'); Depoimento 05 = Mark Coleman, 61, depoimento sobre o Dana devolvendo a dignidade das lendas (sem desafio, sem tela dividida, sem o martelo do Background). O sargento sem o teste do selo.
 > Tamanho-alvo: controle ≈ 1.870 palavras.
 
+> v3 (16/11): passada do DNA HoneyFil (arquivo 99): B6 (lençol feito barraca), E2 (voltou dos mortos no dia 4), E3 (bateu na lona aos 40 minutos), A8 (barra de aço, pronto pra outra), H3 (quase deixei a fita cair: 5,2 → 7,7, na voz do Don), H5 (dentista de 40 com Tesla; vizinho do Coleman com 3 concessionárias e Mercedes), B3 + F1 (depoimento 01b, Earl, 74, registro pudico: ferramenta, o olhar), B2 (esposa das 4h: joguei o vibrador no lixo), J4 (Coleman: preciso te contar uma loucura), B4 + C8 + F3 (Waffle House, vizinha, ring girl; as esposas ligaram andando torto), J2 (que porra é essa fórmula), D1 (3 'E' viram 'Mas'), D2 ('Foi assim que nasceu.'), J1 (Ray: essa parada é real), G1 (Dr. Drew: dois homens que passaram por isso), M (rotação: ferramenta x2, cacete x2, rola x2, pênis x2 no clínico).
+
 ---
 
 ## Product Build Up
@@ -15,29 +17,31 @@ O Dr. Drew voltou de Lexington com um pote de vidro no bolso do casaco. O sal ci
 
 Eu liguei pro Don naquela noite. "Don, eu não tenho remédio. Tenho uma pasta pra misturar na mão, do jeito que o tratador ensinou. Sem rótulo, sem certificação. Quer ser o primeiro?" "O ritual do lutador?" "O ritual do garanhão. O lutador só pegou emprestado."
 
-Ele disse sim antes de eu terminar. "Dana, eu não quero outra promessa. Quero o meu pau de volta. Agora." Se ia morrer com o pau morto, preferia morrer tentando. 14 de julho, 7 da manhã, no celeiro do rancho dele, na frente do mesmo cocho que ele passou 20 anos sem olhar.
+Ele disse sim antes de eu terminar. "Dana, eu não quero outra promessa. Quero o meu pau de volta. Agora." Se ia morrer com a ferramenta morta, preferia morrer tentando. 14 de julho, 7 da manhã, no celeiro do rancho dele, na frente do mesmo cocho que ele passou 20 anos sem olhar.
 
 Primeira dose numa colher comum. Bicarbonato, uma pitada do sal celta, o extrato do tendão do garanhão e Pycnogenol, nas proporções corretas. Botou embaixo da língua na minha frente, fez careta com o ardor, a boca encheu de água, engoliu. Dia 1, nada. Dia 2, nada. No dia 4, me ligou às 6:15.
 
 [Don Frye, ao telefone]
 
-Dana. Quatro da manhã. Acordei duro. Sem mão. Sem nada. Grosso, pesado, pulsando contra o lençol. Eu não acordava assim desde 1996.
+Dana. Quatro da manhã. Acordei duro. Sem mão. Sem nada. Grosso, pesado, levantando o lençol feito barraca. Eu não acordava assim desde 1996.
 
 [Dana White]
 
-E não parou aí. No 14º dia, ele não ligou pra ex. Ligou pra uma ring girl que tinha pedido foto com ele num evento. Primeira vez em dez anos. O homem que tinha me ligado chorando num sábado virou outro. Pedi pra gravar.
+O pau do Don voltou dos mortos no dia 4. Mas não parou aí. No 14º dia, ele não ligou pra ex. Ligou pra uma ring girl que tinha pedido foto com ele num evento. Primeira vez em dez anos. O homem que tinha me ligado chorando num sábado virou outro. Pedi pra gravar.
 
 [Don Frye]
 
 Ontem à noite eu fodi uma ring girl safada de 28 anos, metade da idade da minha ex. Primeira vez em dez anos, sem Viagra, sem Cialis, sem relógio. Entrei nela na primeira tentativa, Dana. Ela congelou por três segundos, porque tinha vindo pro rancho de um velho de 60 achando que ia tirar foto com a lenda e cuidar dele. Mas eu que cuidei.
 
-Ela gemia que nem uma atriz pornô em cima do meu pau. Fodi ela por quase duas horas. Na cama, contra a parede, no feno do celeiro, no mesmo lugar. Gozou até implorar pra eu parar, encharcando o lençol.
+Ela gemia que nem uma atriz pornô em cima do meu cacete. Fodi ela por quase duas horas. Na cama, contra a parede, no feno do celeiro, no mesmo lugar. Aos 40 minutos ela bateu na lona, gozou até implorar pra eu parar, encharcando o lençol.
 
-E quando inundei aquela buceta quente, não amoleci. Aos 60 anos, ela sentou na minha cara e esguichou como as mulheres esguichavam pra mim em 1996. De manhã me disse que nunca tinha sido fodida daquele jeito. Nem pelos lutadores de 30.
+E quando inundei aquela buceta quente, não amoleci. Continuei duro feito uma barra de aço, como se estivesse pronto pra outra. Porque estava. Aos 60 anos, ela sentou na minha cara e esguichou como as mulheres esguichavam pra mim em 1996. De manhã me disse que nunca tinha sido fodida daquele jeito. Nem pelos lutadores de 30.
+
+E no dia 21, quando eu me medi, quase deixei a fita cair: de 5,2 pra 7,7. Mais grosso. Mais pesado.
 
 [Dana White]
 
-No 21º dia ele tinha ganhado 2,5 polegadas, medidas em laboratório certificado. Mas eu sei o que você está pensando: é o Don Frye falando do próprio pau, e lenda conta história. Eu também não compro depoimento. Eu compro exame. Por isso eu pedi pro Dr. Drew provar na sua frente, e ele trouxe três coisas que não mentem.
+2,5 polegadas, confirmadas em laboratório certificado. Mas eu sei o que você está pensando: é o Don Frye falando do próprio pau, e lenda conta história. Eu também não compro depoimento. Eu compro exame. Por isso eu pedi pro Dr. Drew provar na sua frente, e ele trouxe três coisas que não mentem.
 
 [Dr. Drew Pinsky]
 
@@ -47,9 +51,9 @@ A primeira é a ressonância do Don. Dia 1, 60% de lama. Aquele exame que você 
 
 Todo mundo me pergunta o que eu estou fazendo com um homem da idade do meu pai. Que se danem. Fui pro rancho do Don Frye achando que ia tirar uma foto com a lenda e cuidar de um velho: ele tem 60, teve problema no coração, dorme cedo.
 
-Na primeira noite ele me colocou de quatro e me fodeu por duas horas. Jesus Cristo. Eu não fui cuidar de ninguém. Fui ser cuidada. Ele acorda toda manhã duro, encostando aquele pau na minha bunda, procurando a minha buceta que já está molhada antes de eu abrir os olhos.
+Na primeira noite ele me colocou de quatro e me fodeu por duas horas. Jesus Cristo. Eu não fui cuidar de ninguém. Fui ser cuidada. Ele acorda toda manhã duro, encostando aquela rola na minha bunda, procurando a minha buceta que já está molhada antes de eu abrir os olhos.
 
-E o mais bizarro: semana após semana o pau dele ficou mais grosso e mais comprido. Senti a diferença no maxilar e na buceta, cada vez mais preenchida. Cada polegada. Deus, estou gozando mais de duas vezes por dia, encharcando o lençol até o chão. Os lutadores de 30 que eu namorei não eram nada perto disso.
+E o mais bizarro: semana após semana a rola dele ficou mais grossa e mais comprida. Senti a diferença no maxilar e na buceta, cada vez mais preenchida. Cada polegada. Deus, estou gozando mais de duas vezes por dia, encharcando o lençol até o chão. Os lutadores de 30 que eu namorei não eram nada perto disso.
 
 E ele não só me fodeu. Ele me engravidou. Aos 60 anos. Aqui está o teste de gravidez. Eu tenho 28 e estou carregando o terceiro filho do Don Frye. Esse é o meu homem. E eu não troco ele por nenhum de 30.
 
@@ -67,13 +71,13 @@ No 3º dia, 110 dos 117 me ligaram dizendo que tinham fodido a esposa sem Viagra
 
 [Depoimento 01 — Wade, 58, bombeiro aposentado de Tucson]
 
-Eu tinha aceitado que a minha vida sexual tinha acabado aos 55. 6 anos sem foder a Lisa direito. O Dana me ligou através do Don, disse que eu estava na lista dos 117. 7 dias depois, eu botei na Lisa e ela chorou antes de eu entrar a primeira polegada.
+Eu tinha aceitado que a minha vida sexual tinha acabado aos 55. 6 anos sem foder a Lisa direito, e o cara que a Lisa estava olhando era um dentista de 40 com uma Tesla na garagem. O Dana me ligou através do Don, disse que eu estava na lista dos 117. 7 dias depois, eu botei na Lisa e ela chorou antes de eu entrar a primeira polegada.
 
 Ela disse: "Wade, eu já tinha esquecido como era o seu pau dentro de mim." Fodi ela 3 vezes naquele dia. 58 anos. Aos 30 dias, eu tinha 3,5 polegadas a mais. Eu não sou o Don Frye. Sou um cara comum. E essa coisa de vocês funciona em caras comuns.
 
 [Dr. Drew Pinsky]
 
-E o Wade gravou o teste que eu peço pros 117. O teste do selo postal. Uma tira elástica colada em volta do pau antes de dormir. Se o pau alongar ou alargar de noite ou de manhã cedo, a tira rasga. Se amanhece inteiro, nada cresceu. O corpo não sabe mentir dormindo. Olha.
+E o Wade gravou o teste que eu peço pros 117. O teste do selo postal. Uma tira elástica colada em volta do pênis antes de dormir. Se ele alongar ou alargar de noite ou de manhã cedo, a tira rasga. Se amanhece inteiro, nada cresceu. O corpo não sabe mentir dormindo. Olha.
 
 [Depoimento 01 — vídeo caseiro]
 
@@ -81,29 +85,33 @@ E o Wade gravou o teste que eu peço pros 117. O teste do selo postal. Uma tira 
 
 Dia 1. Inteiro. Dia 3. Tá esticando. Alguma coisa mexeu. Dia 5. Olha isso. Quase estourando. Dia 7. Estourou.
 
+[Depoimento 01b — Earl, 74, fazendeiro aposentado de Nebraska]
+
+A minha ferramenta não colaborava direito há uns 8 anos, e eu tinha feito as pazes com isso. No fim da primeira semana a minha mulher estava me olhando diferente, do jeito que olhava em 1978. Hoje eu sei o que aquele olhar quer dizer. E consigo responder toda vez. Uma coisa que eu não sentia há anos.
+
 [Dana White]
 
 E aqui está o vídeo que a mulher de um deles me mandou desesperada.
 
 [Depoimento 02 — esposa, 4 da manhã]
 
-São 4 da manhã e eu desci pra pegar água porque não sinto mais as minhas pernas. 31 anos casada com um cara comum, 6 anos mole, e hoje ele me fodeu forte por 40 minutos até eu implorar pra ele parar. E o desgraçado ainda está lá em cima me esperando. O que foi que ele tomou, Dana?
+São 4 da manhã e eu desci pra pegar água porque não sinto mais as minhas pernas. 31 anos casada com um cara comum, 6 anos mole, e hoje ele me fodeu forte por 40 minutos até eu implorar pra ele parar. E o desgraçado ainda está lá em cima me esperando. Hoje eu joguei o vibrador no lixo. O que foi que ele tomou, Dana?
 
 [Dana White]
 
-E não parou na cama de casa deles. Um dos 117 era o Mark Coleman, o Hammer, primeiro campeão peso-pesado da história do UFC, que você já ouviu no começo deste vídeo. Ele me mandou esse áudio do churrasco, e eu pedi pra ele repetir na câmera. Olha o que o velho martelo anda fazendo em Ohio.
+Mas não parou na cama de casa deles. Um dos 117 era o Mark Coleman, o Hammer, primeiro campeão peso-pesado da história do UFC, que você já ouviu no começo deste vídeo. Ele me mandou esse áudio do churrasco, e eu pedi pra ele repetir na câmera. Olha o que o velho martelo anda fazendo em Ohio.
 
 [Depoimento 03 — Mark Coleman, 61, lenda do UFC]
 
-Chegou um ponto em que os meus próprios vizinhos, lá em Ohio, começaram a me oferecer as esposas no churrasco de domingo. As mulheres não conseguiam tirar os olhos do volume na minha bermuda, e confesso que aceitei mais de uma. Esta aqui. Aquele homem na foto é o marido dela, vizinho de porta há 15 anos. Hoje, ela pula a cerca 3 vezes por semana pra me ver e sempre volta pedindo mais. Aos 61. The Hammer voltou a bater.
+Dana, preciso te contar uma loucura. Chegou um ponto em que os meus próprios vizinhos, lá em Ohio, começaram a me oferecer as esposas no churrasco de domingo. As mulheres não conseguiam tirar os olhos do volume na minha bermuda, e confesso que aceitei mais de uma. Esta aqui. Aquele homem na foto é o marido dela, vizinho de porta há 15 anos, dono de 3 concessionárias em Columbus, com a Mercedes na garagem e o pau mole no quarto. Hoje, ela pula a cerca 3 vezes por semana pra me ver e sempre volta pedindo mais. Aos 61. The Hammer voltou a bater.
 
 [Dana White]
 
-Quase todos relataram ereções insanas na primeira semana, e 98% disseram que estavam fodendo por mais de uma hora sem gozar, literalmente quebrando a cama e as esposas. Homens de 35 a 80 anos me agradeceram pela virilidade que achavam perdida pra sempre.
+Quase todos relataram ereções insanas na primeira semana, e 98% disseram que estavam fodendo por mais de uma hora sem gozar, literalmente quebrando a cama e as esposas. Homens de 35 a 80 anos me agradeceram pela virilidade que achavam perdida pra sempre. E não foi só na cama: a garçonete do Waffle House, a vizinha divorciada, a mulher do amigo no churrasco, até a ring girl de 28 no evento, olhando duas vezes sem saber por quê. E as esposas deles ligaram depois, andando torto, perguntando o que foi que o marido tomou.
 
-"Eu nunca senti isso antes" virou rotina no meu telefone. A parte mais louca? Ninguém parou de beber. Ninguém parou de fumar. Ninguém fez dieta. Nada de pílula química. Só a fórmula do Stallion Soda Ritual.
+"Eu nunca senti isso antes" e "que porra é essa fórmula, cara?" viraram rotina no meu telefone. A parte mais louca? Ninguém parou de beber. Ninguém parou de fumar. Ninguém fez dieta. Nada de pílula química. Só a fórmula do Stallion Soda Ritual.
 
-Quando o último relatório dos 117 chegou, eu tive que escolher. Dar isso pras minhas 700 lendas e pronto, ou espalhar pro máximo de homens americanos. Escolhi a segunda. E começou o pior pesadelo da minha carreira.
+Quando o último relatório dos 117 chegou, eu tive que escolher. Dar isso pras minhas 700 lendas e pronto, ou espalhar pro máximo de homens americanos. Escolhi a segunda. Mas começou o pior pesadelo da minha carreira.
 
 Bati em 14 laboratórios. 7 recusaram na hora, porque homem curado é cliente que desaparece. Os outros 7 queriam 1.500 dólares por mês por homem, com um argumento que eu não esqueço: "Se vamos perder o cliente pra sempre, tiramos todo o lucro na primeira venda." Mandei cada um se foder na cara.
 
@@ -117,15 +125,15 @@ E foi aí que o Dr. Nathan Holloway, diretor de P&D desse laboratório federal, 
 
 [Dana White]
 
-Com todo esse apoio, tecnologia de ponta e 3 meses de trabalho do Dr. Drew ao lado de uma equipe de cientistas militares, a fórmula virou uma goma, atendendo 100% das exigências da FDA sem perder a força. Uma fórmula que não só resolve o pau mole, mas transforma homem comum em garanhão com pau de garanhão, uma máquina de reprodução. Quando ficou pronta, o Dr. Holloway me ligou de volta. "Dana, sem um rosto isso vira mais um suplemento perdido no Google. Com a sua cara na frente, não morre." E eu disse que só botava o meu nome nisso com uma condição: nada de preço predatório de farmacêutica. Cobra o que custa pra fabricar, ponto. Ele aceitou. Foi assim que nasceu o produto que vai pras suas mãos daqui a um minuto.
+Com todo esse apoio, tecnologia de ponta e 3 meses de trabalho do Dr. Drew ao lado de uma equipe de cientistas militares, a fórmula virou uma goma, atendendo 100% das exigências da FDA sem perder a força. Uma fórmula que não só resolve o pau mole, mas transforma homem comum em garanhão com pau de garanhão, uma máquina de reprodução. Quando ficou pronta, o Dr. Holloway me ligou de volta. "Dana, sem um rosto isso vira mais um suplemento perdido no Google. Com a sua cara na frente, não morre." E eu disse que só botava o meu nome nisso com uma condição: nada de preço predatório de farmacêutica. Cobra o que custa pra fabricar, ponto. Ele aceitou. Foi assim que nasceu. E daqui a um minuto vai pras suas mãos.
 
 [Dr. Drew Pinsky]
 
-Antes, abrimos um trial duplo-cego com 3.000 homens: homens comuns, militares aposentados, policiais, pastores, caminhoneiros, fazendeiros e lendas aposentadas do UFC, de 35 a 70 anos, registrado no clinicaltrials.gov, protocolo NCT06182394, validado pela Universidade de Kentucky e pelo UFC Performance Institute. Em agosto recebi a primeira planilha: 94% de reversão funcional mensurável, e 97% relataram ereção espontânea ao acordar entre o 4º e o 14º dia. Um voluntário gravou anonimamente, 5 dias de protocolo, pau 2,5 polegadas maior, tudo confirmado cientificamente.
+Antes, abrimos um trial duplo-cego com 3.000 homens: homens comuns, militares aposentados, policiais, pastores, caminhoneiros, fazendeiros e lendas aposentadas do UFC, de 35 a 70 anos, registrado no clinicaltrials.gov, protocolo NCT06182394, validado pela Universidade de Kentucky e pelo UFC Performance Institute. Em agosto recebi a primeira planilha: 94% de reversão funcional mensurável, e 97% relataram ereção espontânea ao acordar entre o 4º e o 14º dia. Um voluntário gravou anonimamente, 5 dias de protocolo, pênis 2,5 polegadas maior, tudo confirmado cientificamente.
 
 [Depoimento 04 — Sargento Ray, 54, Exército, duas missões no Iraque]
 
-Eu levei um tiro em Fallujah e voltei pra casa inteiro. O que me derrubou foi o pau, 6 anos depois, sem ninguém atirar. Comi essa goma do garanhão feito ordem de serviço, uma por manhã. Em apenas 5 dias no protocolo, meu pau ficou 2,3 polegadas maior. Fiz minha mulher gozar três vezes seguidas, sem parar. Ela esguichou na 3ª, primeira vez em 17 anos de casamento. Eu servi esse país. Agora o país me devolveu o pau.
+Eu levei um tiro em Fallujah e voltei pra casa inteiro. O que me derrubou foi o pau, 6 anos depois, sem ninguém atirar. Comi essa goma do garanhão feito ordem de serviço, uma por manhã. Em apenas 5 dias no protocolo, o cacete ficou 2,3 polegadas maior. Fiz minha mulher gozar três vezes seguidas, sem parar. Ela esguichou na 3ª, primeira vez em 17 anos de casamento. Eu servi esse país. Agora o país me devolveu o pau. Essa parada é real.
 
 [Dr. Drew Pinsky]
 
@@ -141,4 +149,4 @@ Não entendo como essa goma do garanhão funciona, mas olha o que faz com o meu 
 
 [Dr. Drew Pinsky]
 
-Eles não são exceções. São prova viva de que a virilidade volta sem farmácia e sem químico, só com essa goma do garanhão que eu vou te apresentar agora.
+Eles não são exceções. São prova viva de que a virilidade volta sem farmácia e sem químico, só com essa goma do garanhão que eu vou te apresentar agora. O Dana e eu não temos superpoder. Somos dois homens que passaram por isso.
