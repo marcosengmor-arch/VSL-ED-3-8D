@@ -1,0 +1,36 @@
+# VSL 3 — Lead 04 (celeiro de Kentucky, atriz + tratador de garanhão de 67) — v1 PT
+
+> Adaptação para a VSL 3 (Stallion Soda Ritual) da lead "fazendeiro de 67 no celeiro" (modelo Bull Soda Rise / HoneyFil). Regras das leads: nada do corpo entra (sem Don, Dr. Drew, Rogan, lama cavernosa); só o Dana White como fonte. Persona "Savannah Reed" no lugar de atriz convencional real (trocar por atriz adulta, se preferir).
+> v1 (16/11): pau crescendo na mão dela; duas falas dela ("para, para" / "não para"); micro-dor nomeada; número no lugar de adjetivo; idade cruzada; pílula azul rebaixada com sintoma; eco físico no fim de cada bloco; ritual completo (pitada 30 s embaixo da língua + 13 s de mão fechada).
+
+## Lead 04
+
+[Savannah Reed, na porta do celeiro de um haras em Lexington, Kentucky, com chapéu de cowboy e sem camisa]
+
+*(Cenas explícitas: ela de quatro no feno com um tratador de garanhão de 67 anos, olhando pra trás por cima do ombro; ao fundo, as baias)*
+
+Ontem à noite, um tratador de garanhão de 67 anos me botou de quatro no feno e socou na minha buceta com tanta força, depois de botar uma pitada de pasta salgada de bicarbonato embaixo da língua e fechar a mão no pau por 13 segundos, que em 10 minutos eu já estava implorando pra ele parar. E ele não parou.
+
+Eu vi o pau dele crescer na minha mão em menos de um minuto, esquentando e enchendo de veia, até os meus dedos não fecharem mais em volta.
+
+Depois de gozar 3 vezes, ainda estava latejando, duro feito pedra e quente. Não baixou um milímetro. Ele estava insaciável.
+
+Me virou, abriu a minha bunda e meteu com tanta força que eu arranhei a madeira da baia com as unhas até sair farpa, gozando uma em cima da outra, com um arrepio que descia do couro cabeludo até o dedão do pé. Eu gritei "para, para" duas vezes. Na terceira, eu gritei "não para".
+
+*(Ela na porta do celeiro, com chapéu de cowboy e sem camisa)*
+
+Foi um dos maiores prazeres da minha vida.
+
+E eu passei a noite inteira acordada, com a buceta ainda pulsando, pensando: como é que um homem com idade pra ser meu avô me deu o melhor sexo da minha vida, melhor do que qualquer rapaz de 25 que eu já levei pra cama? Você também deve estar se perguntando. O que esse velho fez?
+
+*(Ela fora do celeiro, bancada à frente com a caixa de bicarbonato de sódio, um pote de sal celta grosso, um pilão e um pote de pasta cinza)*
+
+O segredo dele tem nome: o Ritual da Pasta Salgada do Garanhão. Um ritual estranho com bicarbonato de sódio de 1 dólar do Walmart e sal celta, misturado do jeito que os criadores de garanhão de Lexington guardam a sete chaves há décadas.
+
+Porque é assim que eles mantêm um garanhão de 2.000 libras cobrindo 200 éguas por temporada aos 25 anos, o equivalente a um homem de 75. Duro. Por mais de duas horas. Sem baixar. Uma cobertura desse cavalo custa 300 mil dólares, e cada centavo depende de uma coisa só: o pau dele ficar de pé.
+
+*(Ela despejando o bicarbonato e o sal celta no pilão, pilando com força, com os peitos apertando e chamando atenção; depois põe uma pitada embaixo da própria língua e faz careta)*
+
+Arde. Trinta segundos embaixo da língua e a boca enche de água. E quando é preparado do jeito certo, esse velho me disse que bate 14 vezes mais forte do que a pílula azul inteira. Sem a cara vermelha, sem a dor de cabeça e sem esperar uma hora pra fazer efeito. Pitada, 13 segundos de mão, levantou. Depois de ontem à noite, eu acredito nele. Minhas coxas ainda tremem quando eu lembro.
+
+Foi o Dana White quem levou isso dos haras de Kentucky pros veteranos aposentados do UFC, e é por isso que homem de 55 que apanhou a vida inteira hoje come a mulher de 30 sem pílula. Depois virou segredinho de corredor entre homens de 60, 70 anos que escondiam o pau mole da esposa há anos… e voltaram a acordar com a ereção levantando o lençol, 40 minutos de pau duro feito aço. Mas você não precisa acreditar em mim. Acredita neles.
