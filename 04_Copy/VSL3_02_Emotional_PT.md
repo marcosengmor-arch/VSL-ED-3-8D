@@ -1,4 +1,4 @@
-# VSL 3 — Emotional (o caso do Don Frye) — v2.3 PT, registro BLACK
+# VSL 3 — Emotional (o caso do Don Frye) — v3 PT, registro BLACK
 
 > Molde: Soda Horse blocos 5–7 (Kevin no rancho: "você me ligou" → "nunca contei pra ninguém" → não desabou de uma vez → as costas, o celular, o lençol, "hoje não" → o marido presente → o vizinho → a cena → "o que ele tinha que eu não tenho mais?"; bloco 6: o outro lado, "não foi o coração dela que esfriou"; bloco 7: "guarda esse detalhe", o rancho e a suspeita do tamanho), com os 12 eventos do Frye (`01_Ideias/11_Emocional...md`, seção final) e os pontos H–W (`16_Pontos_Logicos_VSL3.md`, 1B). Função a função, outra escrita. Continua de onde o Background parou ("E você vai ouvir da boca dele").
 > Decisões tomadas na escrita (a confirmar): (1) a ex sem nome e com duas falas curtas só ("tudo bem, Don, a gente tenta outro dia" e a frase que ela deu ao Dana por telefone); (2) a frase "esse aqui tem um pau que funciona" na boca de uma amiga dela, na festa; (3) a festa é a de fim de temporada no rancho dele; (4) o outro homem é "um cara de 40 que eu nunca tinha visto"; (5) sem câmera escondida (a cena da festa faz o papel); (6) Randy e Coleman entram em 30 s cada, narrados pelo Dana, sem novo depoimento; (7) o bloco fecha com as 2 perguntas e o detalhe do cocho, e entrega pro Dr. Drew na Discovery.
@@ -17,6 +17,8 @@
 > v2.3 (12/11): o lado dela compactado (≈ 900 → 560 palavras), mesmas funções do bloco da Noor.
 > Tamanho-alvo: Soda Horse blocos 5–7 ≈ 1.100 palavras + as ligações ≈ 1.300.
 
+> v3 (16/11): passada do DNA HoneyFil (arquivo 99): H1 (mantra + corte 'Até 2012'), A2 (pena e paciência), A3 (o silêncio), H2 (comia ring girl / amolecia), F3 (o único exame que reprovei), D2 ('Eu não consegui levantar da cadeira.'), A4 ('Esse era o meu casamento.'), M (rotação: rola x3, cacete x2, ferramenta x1; 'pau' de 10 pra 5 no corpo). B7 já estava ('não amoleceu. Estava pronto de novo.').
+
 ---
 
 ## Emotional
@@ -27,7 +29,7 @@ Don, você me ligou.
 
 [Don Frye, 60 anos]
 
-Você é o dono do UFC, Dana. Já ouviu de tudo nesse esporte. Mas isso aqui eu nunca contei pra ninguém. Eu cheguei aos 60 sendo o Don Frye. Venci o UFC 8 inteiro numa noite, nocauteei o Takayama no Japão com 50 mil pessoas gritando o meu nome, e até hoje 33 mil homens curtem na internet que a minha voz é terapia de testosterona. E mesmo assim, numa tarde de sábado, eu liguei pro dono do UFC quase chorando pra contar que o meu pau não levantava há 10 anos. Deixa eu te contar como um homem chega nesse ponto. Não desabou de uma vez. Começou com as costas dela. Nos últimos anos de um casamento de 20, ela começou a virar as costas pra mim, e no começo era só um olhar.
+Você é o dono do UFC, Dana. Já ouviu de tudo nesse esporte. Mas isso aqui eu nunca contei pra ninguém. Eu cheguei aos 60 sendo o Don Frye. Venci o UFC 8 inteiro numa noite, nocauteei o Takayama no Japão com 50 mil pessoas gritando o meu nome, e até hoje 33 mil homens curtem na internet que a minha voz é terapia de testosterona. E mesmo assim, numa tarde de sábado, eu liguei pro dono do UFC quase chorando pra contar que o meu pau não levantava há 10 anos. Deixa eu te contar como um homem chega nesse ponto. Por 30 anos essa foi a minha vida. Lutar, foder, dormir, cavalgar. O meu pau nunca me decepcionou, nem uma vez. Até 2012. Não desabou de uma vez. Começou com as costas dela. Nos últimos anos de um casamento de 20, ela começou a virar as costas pra mim, e no começo era só um olhar.
 
 [Dana White]
 
@@ -47,7 +49,7 @@ Ela sabia antes de mim. Mulher sempre sabe. E não é que eu não tenha dado tud
 
 Aí veio a pílula azul escondida no banheiro do rancho, 45 minutos olhando pro relógio, torcendo pra ela não dormir antes. Funcionou um tempo. Depois funcionou pela metade. Depois não funcionou mais, e eu tomava duas.
 
-A noite que quebrou foi um jantar. Ela fez surpresa, lingerie nova, ela queria, e eu também queria, Deus sabe o quanto eu queria. Eu encostei nela e entortou feito macarrão cozido na mão dela. E ela olhou pra mim com um olhar que eu nunca tinha visto, não era raiva, era pior, era o olhar de quem não via mais um homem na cama. Tudo bem, Don, a gente tenta outro dia. Eu levei 50 socos do Takayama em 6 minutos. Nenhum doeu como esse tudo bem.
+A noite que quebrou foi um jantar. Ela fez surpresa, lingerie nova, ela queria, e eu também queria, Deus sabe o quanto eu queria. Eu encostei nela e entortou feito macarrão cozido na mão dela. E ela olhou pra mim com um olhar que eu nunca tinha visto, não era raiva, era pior: pena e paciência, o olhar de quem não via mais um homem na cama, e isso dói mais que qualquer insulto. Tudo bem, Don, a gente tenta outro dia. Eu levei 50 socos do Takayama em 6 minutos. Nenhum doeu como esse tudo bem. E depois o silêncio. Aquele silêncio de quarto depois de uma noite falhada, que é pior que grito. Como diabos eu comia ring girl no auge e agora amolecia em cima da única que importava?
 
 [Dana White]
 
@@ -55,7 +57,7 @@ Jesus Cristo, Don. E você não procurou ninguém?
 
 [Don Frye]
 
-Eu tentei tudo que um homem com dinheiro tenta. Testosterona: o fígado reclamou, eu parei, e piorou. Bomba: você já viu um homem com bigode de xerife trancado no banheiro bombeando o próprio pau até ficar roxo feito batata? Eu vi. No espelho. E a garrafa, porque bêbado eu não precisava tentar, e se eu não tentava, não falhava.
+Eu tentei tudo que um homem com dinheiro tenta. Testosterona: o fígado reclamou, eu parei, e piorou. Bomba: você já viu um homem com bigode de xerife trancado no banheiro bombeando a própria rola até ficar roxa feito batata? Eu vi. No espelho. E a garrafa, porque bêbado eu não precisava tentar, e se eu não tentava, não falhava.
 
 Mas antes disso eu ainda ia passar pela noite mais humilhante da minha vida. Foi na festa de fim de temporada aqui no rancho, a minha festa, a minha cerveja, gente da luta e gente de cavalo, todo mundo bebendo, todo mundo mais novo que eu. Eu estava num canto da varanda com uma cerveja, deixando ela circular, e aí eu vi com o canto do olho. Ela estava de costas pra mim, perto do curral, conversando com as amigas. E chegou um cara, um lutador de 40 anos, ainda na ativa, que alguém trouxe na festa. Ele passou o braço pela cintura dela, desceu a mão e apertou a bunda dela de um jeito que eu não apertava há anos. A mão ficou ali 2, 3 segundos e voltou. E o pior? Ela riu, olhando pra ele. Quando você vive 20 anos com uma mulher, você conhece o sorriso dela. Você sabe qual sorriso ela dá quando está excitada.
 
@@ -69,7 +71,7 @@ Anos, Dana. Anos. Foi aí que ela percebeu que eu estava olhando, e o sorriso mo
 
 Mas o pior foi quando ele abriu a fivela e colocou a ferramenta pra fora. Dava duas da minha, dura feito cabo de pá. A minha mulher ficou de boca aberta, ajoelhou no feno e chupou aquele filho da puta como nunca me chupou em 20 anos, com as duas mãos. Depois ele virou ela de quatro e comeu ela como se fosse a última foda da vida dele, com os gemidos dela saindo do alto-falante do celular, os mesmos que eu não arrancava há 5 anos, até virar grito.
 
-O cara que alguém trouxe pra beber a minha cerveja misturou o segredo dele com o sal dos meus cavalos e arregaçou a buceta da minha mulher por duas horas, até ela esguichar e inundar o meu feno, implorando pra parar e pedindo mais. Duas horas. Eu contei. Sozinho, no escuro, sentado na beira da cama que ela não dormia mais, com o celular tremendo na mão e o pau morto dentro da calça. E o pior de tudo: aquele feno era o lugar preferido dela, de quando a gente ainda transava. Foi ali que eu comi a minha mulher pela primeira vez nesse rancho, e foi ali que outro homem comeu ela pela última vez na minha frente. Me diz, Dana, você tem dinheiro pra comprar qualquer médico do mundo: o que aquele filho da puta misturou com o sal dos meus cavalos? O que ele tinha que eu não tenho mais?
+O cara que alguém trouxe pra beber a minha cerveja misturou o segredo dele com o sal dos meus cavalos e arregaçou a buceta da minha mulher por duas horas, até ela esguichar e inundar o meu feno, implorando pra parar e pedindo mais. Duas horas. Eu contei. Sozinho, no escuro, sentado na beira da cama que ela não dormia mais, com o celular tremendo na mão e o cacete morto dentro da calça. E o pior de tudo: aquele feno era o lugar preferido dela, de quando a gente ainda transava. Foi ali que eu comi a minha mulher pela primeira vez nesse rancho, e foi ali que outro homem comeu ela pela última vez na minha frente. Me diz, Dana, você tem dinheiro pra comprar qualquer médico do mundo: o que aquele filho da puta misturou com o sal dos meus cavalos? O que ele tinha que eu não tenho mais?
 
 [Dana White]
 
@@ -77,7 +79,7 @@ Você, o Predador, viu isso e não fez nada?
 
 [Don Frye]
 
-E eu ia fazer o quê, Dana? Bater num cara por ter um pau que funciona? Eu desliguei o celular e dormi. Em 2016 acabou do jeito que você sabe. Advogado, guarda das meninas, jornal. Eu disse na época que estava mentalmente em frangalhos. Era verdade. Só não disse o motivo. E a internet fez piada: que tipo de maluco come a mulher do Don Frye? Eu li aquilo também. E eu sabia a resposta que ninguém sabia. Ninguém precisava ser maluco. Eu já não conseguia.
+E eu ia fazer o quê, Dana? Bater num cara por ter uma rola que funciona? Eu desliguei o celular e dormi. Em 2016 acabou do jeito que você sabe. Advogado, guarda das meninas, jornal. Eu disse na época que estava mentalmente em frangalhos. Era verdade. Só não disse o motivo. E a internet fez piada: que tipo de maluco come a mulher do Don Frye? Eu li aquilo também. E eu sabia a resposta que ninguém sabia. Ninguém precisava ser maluco. Eu já não conseguia.
 
 E aí vêm os dez anos que ninguém viu. Eu bebi, isso eu já admiti em público. O que eu nunca admiti é o resto. O mar de mulher que os fãs imaginaram existiu de verdade, Dana. Mulher de 30, de 40, mulher que esperou a luta acabar pra me pedir foto e esperou mais duas horas pra me levar pro quarto do hotel. E eu falhei com todas. Cada uma mais rápido que a anterior. A fila existia. O que não existia era eu.
 
@@ -89,7 +91,7 @@ Dez anos, Don. Dez anos disso.
 
 Dez anos. E eu voltava pro rancho e via os meus garanhões, de 20, 25 anos, cobrindo égua todo santo dia, e o dono deles dormindo sozinho a 30 metros.
 
-Em dezembro o coração parou de obedecer. Fibrilação, três dias internado. O cardiologista olhou na minha cara e disse: nunca mais pílula azul, Don, nem uma. Sessenta anos, sem casamento, sem pílula, sem opção.
+Em dezembro o coração parou de obedecer. Fibrilação, três dias internado. O cardiologista olhou na minha cara e disse: nunca mais pílula azul, Don, nem uma. Trinta anos de exame médico pra lutar e eu nunca reprovei em nenhum. O único que eu reprovei foi o de pau mole. Sessenta anos, sem casamento, sem pílula, sem opção.
 
 [Dana White]
 
@@ -100,6 +102,8 @@ Nem uma?
 Nem uma. Eu saí do hospital e fui direto olhar os cavalos. Eles iam cobrir de manhã. Eu ia dormir sozinho. Foi nesse sábado que eu te liguei. Porque os meus garanhões de 25 anos cobrem égua toda manhã, Dana, e o dono deles não cobre mais ninguém. O que esses bichos têm que eu perdi?
 
 [Dana White]
+
+Eu não consegui levantar da cadeira.
 
 Eu ainda não sei, Don. Mas eu juro que vou descobrir.
 
@@ -113,11 +117,11 @@ Você ainda amava ele?
 
 [A ex-mulher do Don]
 
-Promete que não vai me julgar? Eu amava o Don. Vinte anos, duas filhas. Mas amor não faz uma mulher gozar. Eu tinha 45 anos e acordava com tesão todo dia, e por 5 anos o que ficava entre as pernas do homem mais durão do MMA era carne morta. Eu ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir.
+Promete que não vai me julgar? Eu amava o Don. Vinte anos, duas filhas. Mas amor não faz uma mulher gozar. Eu tinha 45 anos e acordava com tesão todo dia, e por 5 anos o que ficava entre as pernas do homem mais durão do MMA era carne morta. Eu ia gozar sozinha no chuveiro, mordendo a toalha pra ele não ouvir. Esse era o meu casamento.
 
 E eu tentei. Lingerie, brinquedo, viagem só nós dois. Fui num médico pra saber se o problema era eu, e ele riu: o problema não é você. Aí aquele cara apareceu na festa, e desde que eu vi o volume na calça dele eu ficava molhada só de olhar. E quando aconteceu, no celeiro, ele me preencheu por completo. Cada polegada. Me fez esguichar como eu não esguichava desde os 25, duas horas duro feito pedra, do jeito que o Don nunca fez nem no auge. No feno, contra a parede, na bancada da ração. Eu gozei até implorar pra parar, e quando ele gozou, não amoleceu. Estava pronto de novo.
 
-Eu fiz ele voltar na semana seguinte, e na outra, calculando quando o Don viajava. Fiquei viciada no pau de um homem de 40 anos, dentro do rancho do Don, com o dinheiro do Don. Não era dinheiro, não era fama, ele é o Don Frye. Era a única coisa que ele não conseguia mais me dar.
+Eu fiz ele voltar na semana seguinte, e na outra, calculando quando o Don viajava. Fiquei viciada na rola de um homem de 40 anos, dentro do rancho do Don, com o dinheiro do Don. Não era dinheiro, não era fama, ele é o Don Frye. Era a única coisa que ele não conseguia mais me dar.
 
 [Dana White, na sala com a ex-mulher do Don]
 
@@ -131,7 +135,7 @@ Perguntei se era Viagra ou testosterona, e ele riu na minha cara. Disse que não
 
 Ela pediu a guarda das meninas e foi embora. O divórcio despedaçou 20 anos de família, com o nome do Don no jornal. Agora guarda esse detalhe: o tratador de garanhão, Kentucky. Naquele dia eu nem prestei atenção, mas foi dos cavalos que aquele lutador tirou o segredo que roubou a mulher do Don Frye.
 
-Mas o que me deu calafrio foi a frase que ela repetia: parou de funcionar. Não foi o coração dela que esfriou, foi o pau dele que morreu por dentro. E uma palavra ficou martelando na minha cabeça: cada polegada. Não era só dureza, era tamanho. E se esse veneno não estivesse só derrubando o pau dos homens, mas encolhendo, roubando as polegadas que sempre foram deles? Guarda essa suspeita, porque daqui a pouco eu vou provar, milímetro por milímetro.
+Mas o que me deu calafrio foi a frase que ela repetia: parou de funcionar. Não foi o coração dela que esfriou, foi o cacete dele que morreu por dentro. E uma palavra ficou martelando na minha cabeça: cada polegada. Não era só dureza, era tamanho. E se esse veneno não estivesse só derrubando o pau dos homens, mas encolhendo, roubando as polegadas que sempre foram deles? Guarda essa suspeita, porque daqui a pouco eu vou provar, milímetro por milímetro.
 
 E a parte mais cruel de todas: o Don era o cowboy de verdade. Enquanto ele me contava tudo isso na varanda, o tratador dele passou pelo cocho trocando o bloco de sal dos garanhões, o mesmo sal que o lutador tinha misturado naquela pasta no celeiro, a mesma rotina de 20 anos, e o Don nem olhou. Não ligou uma coisa à outra. Eu também não, naquele dia. Foi o de fora que enxergou no cocho dele o que o Don nunca enxergou.
 
@@ -139,4 +143,4 @@ Na semana seguinte o meu telefone tocou de novo. Randy Couture, o homem que me p
 
 E se isso derrubou o Don Frye, o Randy, o Coleman, com todo o dinheiro e todos os médicos que eu posso pagar, pensa no que está fazendo com você, calado, dentro da sua casa, com a sua mulher mordendo a toalha no chuveiro.
 
-Eu saí daquele rancho com duas perguntas martelando na cabeça. A primeira: o que mata o tecido do pau de um homem por dentro, em silêncio, até travar a ereção e roubar o tamanho, se não é idade, não é estresse e não é testosterona, porque o homem mais testosterona deste país estava com o pau morto? A segunda: o que aquele lutador de 40 tirou dos garanhões de Kentucky, e que estava no cocho do Don o tempo inteiro? Foi com essas duas perguntas na cabeça que eu fui atrás do único médico neste país que passou 30 anos ouvindo homem americano falar do próprio pau sem mentir.
+Eu saí daquele rancho com duas perguntas martelando na cabeça. A primeira: o que mata o tecido do pau de um homem por dentro, em silêncio, até travar a ereção e roubar o tamanho, se não é idade, não é estresse e não é testosterona, porque o homem mais testosterona deste país estava com a ferramenta morta? A segunda: o que aquele lutador de 40 tirou dos garanhões de Kentucky, e que estava no cocho do Don o tempo inteiro? Foi com essas duas perguntas na cabeça que eu fui atrás do único médico neste país que passou 30 anos ouvindo homem americano falar do próprio pau sem mentir.
