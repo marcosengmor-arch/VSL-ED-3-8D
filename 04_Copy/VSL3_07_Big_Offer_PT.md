@@ -268,6 +268,10 @@ E por fim, o 5º bônus é exclusivo pros primeiros 10 homens que fecharem o kit
 
 Esse bônus normalmente custaria $1.500, e estou oferecendo de graça pros primeiros 10. E se você garantir os seis frascos nos próximos 10 minutos, eu vou te enviar separadamente um 6º bônus surpresa avaliado em $389, algo exclusivo para homem que decide rápido.
 
+[Depoimento — Gary, 52, encanador de Ohio, sobre o bônus surpresa]
+
+Preciso te contar uma coisa maluca. Sou um encanador de 52 anos de Ohio. Fechei os 6 frascos em 4 minutos, e o bônus surpresa chegou numa caixa separada. Eu nunca imaginei que aquilo existisse, e não posso contar o que é. Só posso contar o que aconteceu. 6 meses de Stallion Soda e o que aprendi naquela caixa, e eu roubei uma modelo da Playboy de um gestor de fundo de Manhattan. Ela estava noiva dele. Anel de verdade, uma pedra de 200.000 dólares. Me conheceu num bar, foi pra casa comigo na mesma noite, largou ele uma semana depois. As palavras exatas dela, cavalgando em mim às 3 da manhã, foram: "por que diabos eu me contentei com aquele riquinho mole?" É isso que essa goma e aquela caixa fazem. Não só te consertam. Te transformam no cara pra quem os outros caras perdem as mulheres, rico ou não.
+
 Somando os bônus, o valor total chega a $3.977 em material extra, tudo grátis hoje, junto com o seu pacote de 3 ou 6 frascos. E ainda tem mais uma última coisa.
 
 ## Guarantee
