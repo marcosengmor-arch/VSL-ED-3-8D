@@ -1,6 +1,6 @@
 # VSL 3 — Ajustes do DNA Persuasivo da HoneyFil: APROVADOS pelo Marcos, AINDA NÃO APLICADOS na copy
 
-> APLICADOS: Lead 02 (16/11, v4) · Background (16/11, v4: A1, D3, N-57, M) · Emocional (16/11, v3: A2, A3, A4, D2, H1, H2, F3-Don, M).
+> APLICADOS: Lead 02 (16/11, v4) · Background (16/11, v4: A1, D3, N-57, M) · Emocional (16/11, v3: A2, A3, A4, D2, H1, H2, F3-Don, M) · Discovery (16/11, v2: A5, D1, D2, D8, E4, G1, K1a, K3, K4, N-Pfizer, M).
 > Fonte: `00_base/vsls_referencia/honeyfil_male/DNA_Persuasivo_HoneyFil_Male.md` (12 módulos + manual). Regra: nada entra na copy sem ordem do Marcos; este arquivo só armazena. Aprovação em 15/11: itens A (13), B (7), C (16, incluindo as amigas da filha) e D (8 tipos de transição). Pendente: módulos 6, 7 e 8 (análise feita em 15/11, aguardando aprovação).
 
 ## A. Linguagem (13 trocas, 1 frase cada)
