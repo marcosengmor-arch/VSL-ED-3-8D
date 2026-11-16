@@ -4,20 +4,20 @@
 
 | Bloco | Antes | Depois |
 |---|---|---|
-| Background | 1.113 | 872 |
-| Emotional | 2.064 | 1.383 |
-| Discovery | 1.900 | 1.563 |
+| Background | 1.113 | 865 |
+| Emotional | 2.064 | 1.535 |
+| Discovery | 1.900 | 1.611 |
 | Tese | 2.014 | 1.694 |
 | MUS | 2.870 | 2.161 |
 | Build Up | 2.205 | 1.836 |
 | Big Offer | 4.594 | 3.930 |
 | Close + FAQ | 1.877 | 1.529 |
-| **Corpo** | **18.637** | **14.968** |
+| **Corpo** | **18.637** | **15.161** |
 | Lead 01 / 02 / 03 | 1.331 / 1.595 / 1.287 | 1.169 / 1.276 / 1.132 |
 
 ---
 
-## Background Story (1.113 → 872)
+## Background Story (1.113 → 865)
 
 [Dana White]
 
@@ -25,21 +25,23 @@ Olá meu caro, Dana White aqui.
 
 Provavelmente você me conhece pelo UFC.
 
-Em 2001 comprei um esporte proibido em 36 estados por $2 milhões e transformei na maior empresa de luta da história. 700 lutadores, 170 países. Em 2016 vendi por 4 bilhões, e até hoje, aos 57, sou eu quem manda nela. Nas últimas semanas o Presidente me ofereceu, em rede nacional, o cargo de porta-voz da Casa Branca. Eu recusei. Tinha uma coisa mais importante pra fazer antes, e é por isso que estou gravando este vídeo.
+Em 2001 comprei um esporte proibido em 36 estados por $2 milhões e transformei na maior empresa de luta da história. 700 lutadores, 170 países. Em 2016 vendi por 4 bilhões, e até hoje, aos 57, sou eu quem manda nela.
+
+Nas últimas semanas o Presidente me ofereceu, em rede nacional, o cargo de porta-voz da Casa Branca. Eu recusei. Tinha uma coisa mais importante pra fazer, e é por isso que estou gravando este vídeo.
 
 Eu achava que já tinha visto tudo que a vida pode fazer com um homem. Até janeiro deste ano. Nos últimos anos, minha verdadeira obsessão foi o que acontece com um homem depois que ele para de lutar.
 
-Lendas do UFC, membros do Hall da Fama, caras que nocautearam gente na frente de 20 mil pessoas, me ligaram confessando, com a voz baixa, que não ficavam mais duros pra própria mulher. Imparáveis no octógono, mortos na cama. E se até eles estavam falhando entre quatro paredes, o americano trabalhador estava sofrendo calado. Então eu fui investigar.
+Lendas do UFC, membros do Hall da Fama, caras que nocautearam gente na frente de 20 mil pessoas, me ligaram confessando, com a voz baixa, que não ficavam mais duros pra própria mulher. Imparáveis no octógono, mortos na cama.
 
-Segundo a ClinCalc DrugStats, em 5 anos as prescrições de Viagra e Cialis explodiram mais de 250%.
+E se até eles estavam falhando entre quatro paredes, o americano trabalhador estava sofrendo calado. Então eu fui investigar. Segundo a ClinCalc DrugStats, em 5 anos as prescrições de Viagra e Cialis explodiram mais de 250%.
 
 Eu não ia deixar homem americano como você amolecer na cama achando que a culpa é da idade, do estresse ou da testosterona, enquanto a verdadeira causa está escondida num lugar que ninguém olha. Eu também não acordava duro há 3 anos. Conhecia essa vergonha na pele.
 
-Por isso gastei $100 milhões do meu próprio bolso num laboratório privado, 20 cientistas e um estudo com 3.000 homens, pra descobrir por que o pau de um homem americano para de funcionar depois dos 40, e por que ninguém tem coragem de dizer a verdade sobre isso.
+Por isso gastei $100 milhões do meu próprio bolso num laboratório privado, 20 cientistas e um estudo com 3.000 homens, pra descobrir por que o pau de um homem americano para de funcionar depois dos 40, e por que ninguém tem coragem de dizer a verdade.
 
 E se você é um homem hétero, eu vou te mostrar a descoberta mais importante da minha vida. O Stallion Soda Ritual.
 
-Uma pasta salgada de bicarbonato de sódio, sal celta e mais dois ingredientes que no dia 4 levanta o lençol de um veterano de 60 e no dia 14 faz ele foder 40 minutos sem amolecer, revertendo de forma definitiva a moleza entre as pernas dos meus veteranos do UFC.
+Uma pasta salgada de bicarbonato de sódio, sal celta e mais dois ingredientes que no dia 4 levanta o lençol de um veterano de 60 e no dia 14 faz ele foder 40 minutos sem amolecer, revertendo de vez a moleza entre as pernas dos meus veteranos do UFC.
 
 Sem Viagra, sem Cialis, sem injeção, sem receita, sem pílula perigosa que coloca o seu coração em risco.
 
@@ -61,7 +63,9 @@ Mas antes de te revelar a receita e o único modo correto de preparo, preciso te
 
 E eu só descobri esse inimigo por causa do caso mais improvável que eu já vi. Em janeiro deste ano, numa tarde de sábado, o meu telefone tocou. Do outro lado, um homem que você conhece desde antes do começo do UFC.
 
-Don Frye. Sim, aquele Don Frye. O bigode, a voz, o Predador. O cara que venceu o UFC 8 inteiro numa noite e nocauteou o Takayama em 6 minutos sem dar um passo pra trás. E se você nunca assistiu uma luta, imagina o cowboy mais durão de filme: o bigode, o chapéu, a voz de motor de Harley. É ele. Ex-bombeiro, dono de rancho, pai de duas filhas, o capitão do filme Godzilla.
+Don Frye. Sim, aquele Don Frye. O bigode, a voz, o Predador. O cara que venceu o UFC 8 inteiro numa noite e nocauteou o Takayama em 6 minutos sem dar um passo pra trás.
+
+E se você nunca assistiu uma luta, imagina o cowboy mais durão de filme: o bigode, o chapéu, a voz de motor de Harley. É ele. Ex-bombeiro, dono de rancho, pai de duas filhas, o capitão do filme Godzilla.
 
 Esse esporte passou 30 anos vendendo esse homem como o macho mais duro que já pisou num octógono. Mas naquela tarde, o que eu ouvi foi a confissão de um homem no fundo do poço.
 
@@ -73,7 +77,7 @@ Esse é o único motivo pelo qual o Don Frye aceitou me receber no rancho com a 
 
 ---
 
-## Emotional Story (2.064 → 1.383)
+## Emotional Story (2.064 → 1.535)
 
 [Dana White - Na casa do Don]
 
@@ -87,7 +91,9 @@ Eu cheguei aos 61 sendo o Don Frye, o cara que até hoje a internet chama de ter
 
 Deixa eu te contar como um homem chega nesse ponto. Por 30 anos essa foi a minha vida. Lutar, foder, dormir, cavalgar. A minha ferramenta nunca me decepcionou, nem uma vez. Até 2012. Não desabou de uma vez.
 
-No começo era só o olhar. Eu saía do banho, de toalha, e ela já estava virada pro outro lado, no celular. Eu deitava, e ela puxava o lençol até o ombro com a desculpa pronta: "Hoje não, Don, estou cansada." E eu engolia, virava de lado e fingia que estava tudo certo. Eu tive aquela mulher por 20 anos, sabia o gosto da buceta dela de cor, e agora sentia mais medo dela do que de qualquer adversário que já encarei num ringue.
+No começo era só o olhar. Eu saía do banho, de toalha, e ela já estava virada pro outro lado, no celular. Eu deitava, e ela puxava o lençol até o ombro com a desculpa pronta: "Hoje não, Don, estou cansada." E eu engolia, virava de lado e fingia que estava tudo certo.
+
+Eu tive aquela mulher por 20 anos, sabia o gosto da buceta dela de cor, o gemido baixo no pescoço antes de ela gozar, e agora sentia mais medo dela do que de qualquer adversário que já encarei num ringue.
 
 [Dana White - Na casa do Don]
 
@@ -99,11 +105,13 @@ Mulher sempre sabe, Dana. E não é que eu não tenha dado tudo. Larguei a carre
 
 Então veio a pílula azul, escondido no banheiro, 45 minutos olhando pro relógio, torcendo pra ela não dormir antes. Funcionou por um tempo. Mas quanto mais eu tomava, mais mole ficava sem ela. Maquiagem de pau.
 
-Até que chegou a noite que me quebrou. Ela fez um jantar e disse que tinha uma surpresa. Tomei antes de sentar. Quando subi, a Mollie estava de lingerie, de quatro na cama. Puxei a calcinha pro lado e coloquei a mão. Molhada. Muito molhada. Ela empinou pra mim e mordeu o travesseiro esperando.
+Até que chegou a noite que me quebrou. Ela fez um jantar e disse que tinha uma surpresa. Eu já sabia o que era, tomei antes de sentar. Quando subi, a Mollie estava de lingerie, de quatro na cama, uma MILF perfeita. Puxei a calcinha pro lado e coloquei a mão. Molhada. Muito molhada. Ela empinou pra mim e mordeu o travesseiro esperando.
 
-Mas quando encostei a cabeça da minha rola na entrada dela, entortou. Feito um maldito macarrão cozido. Tentei empurrar, escapou. Esfreguei nela pra ver se levantava, com as duas pílulas no sangue. Não levantou. A Mollie ficou parada uns 5 segundos, soltou um suspiro fundo, virou e sentou na beira da cama.
+Mas quando encostei a cabeça da minha rola na entrada dela, entortou. Feito um maldito macarrão cozido. Tentei empurrar, escapou. Esfreguei nela pra ver se levantava, com as duas pílulas no sangue. Não levantou. Esfreguei um pau morto numa MILF que todo homem sonha em provar.
 
-Ela olhou pra mim com um olhar que eu nunca tinha visto, não era raiva, era pior: pena e paciência, o olhar de quem não via mais um homem na cama, e isso dói mais que qualquer insulto. "Tudo bem, Don, a gente tenta outro dia." E depois o silêncio. Aquele silêncio de quarto depois de uma noite falhada, que é pior que grito. Como diabos eu comia ring girl no auge e agora amolecia em cima da única que importava?
+A Mollie ficou parada uns 5 segundos, soltou um suspiro fundo, virou e sentou na beira da cama. E olhou pra mim com um olhar que eu nunca tinha visto. Não era raiva, era pior: pena e paciência, o olhar de quem não via mais um homem na cama, e isso dói mais que qualquer soco na cara. "Tudo bem, Don, a gente tenta outro dia." A frase mais castradora que eu já ouvi na vida.
+
+E depois o silêncio. Aquele silêncio de quarto depois de uma noite falhada, que é pior que grito. Como diabos no auge eu comia duas ring girls numa noite e agora amolecia em cima da única que importava?
 
 [Dana White - Na casa do Don]
 
@@ -111,9 +119,13 @@ Puta merda, Don. E você não procurou ninguém?
 
 [Don Frye]
 
-Tentei tudo. 3 meses de TRT, o fígado acendeu o alerta e a broxeira voltou mais forte. 20 mil dólares numa clínica de ondas de choque em Beverly Hills. O gel de 10 minutos. Nada.
+Tentei tudo. 3 meses de TRT, o fígado acendeu o alerta, o médico mandou parar, e a broxeira voltou mais forte. 20 mil dólares numa clínica de ondas de choque em Beverly Hills. O gel de 10 minutos da moda. Nada.
 
-Mas antes disso eu ainda ia passar pela noite mais humilhante da minha vida. A festa de fim de temporada aqui no rancho, a minha festa, a minha cerveja. Eu estava num canto da varanda, e vi com o canto do olho. Ela perto do curral, com as amigas, e um lutador de 40 anos, ainda na ativa, que alguém trouxe, passou o braço pela cintura dela e apertou a bunda dela de um jeito que eu não apertava há anos. 2, 3 segundos. E o pior? Ela riu, olhando pra ele. Quando você vive 20 anos com uma mulher, você sabe qual sorriso ela dá quando está molhada.
+Quem diria. O Predador, 3 lutas vencidas numa noite, Hall da Fama, sem conseguir subir o próprio pau com a mulher de lingerie na cama. Se alguém me dissesse que a resposta estava no cocho dos meus cavalos, eu teria mandado pro inferno.
+
+Mas antes disso eu ainda ia passar pela noite mais humilhante da minha vida. A festa de fim de temporada aqui no rancho, a minha festa, a minha cerveja, todo mundo mais novo que eu. Eu estava num canto da varanda, e vi com o canto do olho.
+
+Ela perto do curral, com as amigas, e um lutador de 40 anos, ainda na ativa, que alguém trouxe, passou o braço pela cintura dela e apertou a bunda dela de um jeito que eu não apertava há anos. A mão ficou ali 2, 3 segundos. E o pior? Ela riu, olhando pra ele. Quando você vive 20 anos com uma mulher, você sabe qual sorriso ela dá quando está molhada.
 
 [Dana White - Na casa do Don]
 
@@ -123,9 +135,11 @@ E fazia quanto tempo que ela não sorria assim pra você?
 
 Anos, Dana. Aí ela percebeu que eu estava olhando, o sorriso morreu, mas a bebida já tinha dado a ela a coragem. Ela disse alto, pras amigas ouvirem: "Esse aqui tem um pau que funciona, ele é mais homem do que você." E voltou a conversar como se eu não estivesse ali. Eu saí da minha própria festa sem dizer uma palavra, com todo mundo olhando, me sentindo 2 polegadas menor dentro da calça.
 
-Deitado na cama, com a festa tocando lá fora, eu fiquei pensando onde. Seria no celeiro. Tem câmera lá há anos pra vigiar as éguas prenhas, e eu abri o aplicativo atrás de prova de traição. O que a câmera me deu foi muito pior. Assisti umas 20 vezes.
+Deitado na cama, com a festa tocando lá fora, eu fiquei pensando onde. Se fosse acontecer alguma coisa, onde seria? A resposta era óbvia: no celeiro. E aí eu fiz a coisa mais patética que um homem pode fazer. Tem câmera lá há anos pra vigiar as éguas prenhas, e eu abri o aplicativo atrás de prova de traição. O que a câmera me deu foi muito pior. Assisti umas 20 vezes.
 
-O lutador de 40 na bancada da ração, misturando um pó branco com o sal do cocho dos meus garanhões até virar uma pasta, e comendo aquilo com a mão. Depois tirou a roupa da minha mulher com a maior tranquilidade do mundo. Abriu a fivela, e dava duas da minha, dura feito martelo. A Mollie ficou de boca aberta, ajoelhou e chupou ele como nunca me chupou em 20 anos, com as duas mãos. Depois ele virou ela de quatro e comeu ela como se fosse a última foda da vida dele, com os gemidos que eu não arrancava há 10 anos. Duas horas, até ela esguichar, no feno, no lugar preferido dela de quando a gente ainda transava.
+O lutador de 40 na bancada da ração, misturando um pó branco com o sal do cocho dos meus garanhões até virar uma pasta, e comendo aquilo com a mão. Depois tirou a roupa da minha mulher com a maior tranquilidade do mundo. Olha que filho da puta.
+
+Abriu a fivela, e dava duas da minha, dura feito martelo. A Mollie ficou de boca aberta, ajoelhou e chupou aquele bastardo como nunca me chupou em 20 anos, com as duas mãos. Depois ele virou ela de quatro e comeu ela como se fosse a última foda da vida dele, com os gemidos que eu não arrancava há 10 anos. Duas horas, até ela esguichar em cima do pau dele, cara.
 
 Me diz, Dana, você tem dinheiro pra comprar qualquer médico do mundo: o que aquele filho da puta misturou com o sal dos meus cavalos? O que ele tinha que eu não tenho mais?
 
@@ -151,41 +165,45 @@ E como ele conseguia essa performance, incomum entre os homens de 40?
 
 [Mollie, Ex Esposa do Don Frye]
 
-Perguntei se ele tomava Viagra ou testosterona, e ele riu na minha cara. Disse que não tomava nada, só comia uma pasta salgada que aprendeu com um tratador de garanhão em Kentucky, um pó branco com um tipo especial de sal do cocho, e que o Don tinha aquilo tudo no celeiro sem saber.
+Na primeira vez pensei que era a seca de 10 anos. Na segunda e na terceira, não tinha como negar. Perguntei se ele tomava Viagra ou testosterona, e ele riu na minha cara. Disse que não tomava nada, só comia uma pasta salgada que aprendeu com um tratador de garanhão em Kentucky, um pó branco com um tipo especial de sal do cocho, e que o Don tinha aquilo tudo no celeiro sem saber.
 
 [Dana White]
 
 Ela pediu a guarda das meninas e foi embora, com o nome do Don no jornal. Agora guarda esse detalhe: o tratador de garanhão, Kentucky. Foi dos cavalos que aquele lutador tirou o segredo que roubou a mulher do Don Frye.
 
-Mas o que me deu calafrios foram duas frases dela. "Carne morta": não foi o coração dela que esfriou, foi o cacete dele que morreu por dentro. E "cada polegada": não era só dureza, era tamanho. E se esse veneno não estivesse só derrubando o pau dos homens, mas roubando as polegadas que sempre foram deles? Guarda essa suspeita, porque daqui a pouco eu vou provar, milímetro por milímetro.
+Mas o que me deu calafrios foram duas palavras dela. "Carne morta": não foi o coração dela que esfriou, foi o cacete dele que morreu por dentro. E "cada polegada": não era só dureza, era tamanho. E se esse veneno não estivesse só derrubando o pau dos homens, mas roubando as polegadas que sempre foram deles? Guarda essa suspeita, porque daqui a pouco eu vou provar, milímetro por milímetro.
 
-Saí daquela casa com 2 perguntas cravadas. O que mata o tecido de um homem por dentro, em silêncio, até travar a ereção e roubar o tamanho? E o que aquele lutador misturou com o sal dos garanhões do Don?
+Saí daquela casa com 2 perguntas cravadas. O que mata o tecido de um homem por dentro, em silêncio, até travar a ereção e roubar o tamanho? E o que aquele lutador misturou com o sal dos garanhões do Don antes de comer a mulher dele por horas?
 
 ---
 
-## Discovery Story (1.900 → 1.563)
+## Discovery Story (1.900 → 1.611)
 
 [Dana White]
 
-Eu fui atrás dessas duas respostas do único jeito que eu sei: com dinheiro e com contatos. Paguei exame completo pra 300 lutadores aposentados do UFC e levei tudo pros 5 melhores urologistas deste país.
+Eu fui atrás dessas duas respostas do único jeito que eu sei: com dinheiro e com contatos. Paguei exame completo pra 300 lutadores aposentados do UFC e levei tudo pros 5 melhores urologistas deste país. Mas bati na parede. Todos me disseram o que já disseram pra você: é a idade, Dana. É a testosterona. Dá Viagra.
 
-Mas bati na parede. Todos me disseram o que já disseram pra você: é a idade, Dana. É a testosterona. Dá Viagra. O Don fez exatamente isso por 10 anos e terminou num hospital, com o coração descompassado e o pau mais morto do que antes. Foi aí que eu entendi: 40 milhões de homens acima de 50 estão ficando moles neste país, e a medicina não tem resposta pra uma ferramenta que para de funcionar. Tem uma pílula e uma desculpa.
+O Don fez exatamente isso por 10 anos e terminou num hospital, com o coração descompassado e o pau mais morto do que antes. Foi aí que eu entendi: 40 milhões de homens acima de 50 estão ficando moles neste país, e a medicina não tem resposta pra uma ferramenta que para de funcionar. Tem uma pílula e uma desculpa.
 
 Então eu fui atrás do único médico deste país que não vive de receitar Viagra. O Joe Rogan me deu o telefone do Dr. Drew Pinsky, que passou 30 anos no ar, de madrugada, ouvindo homem americano falar do próprio cacete sem mentir, porque no telefone ninguém mente. Você conhece a voz.
 
-Eu botei o Don e os 300 exames na mesa dele, e ele me disse o que nenhum urologista tinha dito: "Dana, nenhum desses 300 tem o que a pílula trata. Eles não estão com a ferramenta mole. Estão com o pau morto por dentro. São duas coisas diferentes, e a medicina só sabe tratar a primeira." Aquilo me atingiu como um cuspe na cara.
+Eu botei o Don e os 300 exames na mesa dele, e ele me disse o que nenhum urologista tinha dito: "Dana, nenhum desses 300 tem o que a pílula trata. Eles não estão com a ferramenta mole. Estão com o pau morto por dentro. São duas coisas diferentes, e a medicina só sabe tratar a primeira." Aquilo me atingiu como um soco na cara.
 
-Nos 6 meses seguintes, ao lado dele, fizemos três descobertas que ninguém deste país tinha feito antes. Presta atenção, porque cada uma delas derruba uma mentira que você engole há 20 anos. Me dá 4 minutos nisso, porque no fim deles você vai entender por que o Don comeu uma ring girl de 28 no dia 14, e vai ver ela contar.
+Nos 6 meses seguintes, ao lado dele, fizemos três descobertas que ninguém tinha feito antes. Presta atenção, porque cada uma delas derruba uma mentira que você engole há 20 anos, a mesma que roubou a dureza e as polegadas da sua ferramenta.
 
-A primeira: a causa raiz nunca foi testosterona baixa. 89% dos meus 300 aposentados estavam com a testosterona em nível normal, muitos acima de 600, nível de moleque de 25 anos, e com o pau morto há anos. Viagra e Cialis são a mesma porcaria: forçam a rola a subir na marra, como o TRT força o músculo, e cobram depois. E a ressonância dos 300 mostrou por quê: as pílulas empurram o sangue com força pra dentro, mas tem algo microscópico no tecido impedindo esse sangue de passar e de ficar. O exame pegou isso em 9 de cada 10 homens. Algo que nenhum urologista tinha procurado, e que eu vou te mostrar daqui a pouco, no exame do Don.
+A primeira: a causa raiz nunca foi testosterona baixa. 89% dos meus 300 aposentados estavam com a testosterona em nível normal, muitos acima de 600, nível de moleque de 25 anos, e com o pau morto há anos. Viagra e Cialis são a mesma porcaria: forçam a rola a subir na marra, como o TRT força o músculo, e cobram depois.
 
-A segunda: não é idade, estresse nem circulação. Há décadas eu vejo lutador de 44 anos cortar 22 libras em 5 dias, dormir 3 horas, apanhar por 25 minutos e levar a ring girl pro quarto na mesma noite. Já vi ela saindo do camarim dele de manhã andando torto, sem conseguir abotoar a saia. O mesmo homem, aposentado, dormindo 8 horas, com dinheiro no banco e ninguém batendo nele, não levanta pra própria mulher. Se fosse idade, estresse ou circulação, seria o contrário.
+E a ressonância dos 300 mostrou por quê: as pílulas empurram o sangue com força pra dentro, mas tem algo microscópico no tecido impedindo esse sangue de passar e de ficar. O exame pegou isso em 9 de cada 10 homens. Algo que nenhum urologista tinha procurado, e que eu vou te mostrar daqui a pouco, no exame do Don.
 
-Mas a terceira foi um soco no estômago, e nos próximos 2 minutos você vai levar o mesmo soco. O Dr. Drew fez o que ninguém na medicina faz: pegou 73 estudos enterrados sobre disfunção erétil dos últimos 30 anos e, em vez de olhar o resultado, filtrou por quem pagou. Todos. Cada um deles. Pagos pelas mesmas 3 empresas que são donas das pílulas de ereção. Pfizer. Bayer. Eli Lilly. A ciência sobre por que o seu cacete parou de funcionar é financiada por quem lucra quando ele não funciona. Filhos da puta.
+A segunda: não é idade, estresse nem circulação. Há décadas eu vejo lutador de 44 anos cortar 22 libras em 5 dias, dormir 3 horas, apanhar por 25 minutos e levar a ring girl pro quarto na mesma noite. Já vi elas saindo do camarim de manhã andando torto, sem conseguir abotoar a saia. O mesmo homem, aposentado, dormindo 8 horas, com dinheiro no banco e ninguém batendo nele, não levanta pra própria mulher. Se fosse idade, estresse ou circulação, seria o contrário.
 
-E quando seguimos o rastro do dinheiro até o fim, a causa tinha nome de marca. Glifosato. Na prateleira você conhece como Roundup, o herbicida mais vendido do planeta, da Bayer desde 1974. Só que você não pulverizou. Você comeu. Hoje de manhã, no café. 97% das amostras de comida americana testadas pelo USDA tinham glifosato. No pão, no bife, na cerveja de sexta, até na água da torneira. Não teve uma refeição em 40 anos que não te desse mais uma dose. E ele não sai na urina: é lipossolúvel e se acumula no tecido, principalmente no tecido do seu pênis.
+Mas a terceira foi um soco no estômago. O Dr. Drew fez o que ninguém na medicina faz: pegou 73 estudos enterrados sobre disfunção erétil dos últimos 30 anos e, em vez de olhar o resultado, filtrou por quem pagou. Todos. Cada um deles. Pagos pelas mesmas 3 empresas donas das pílulas de ereção. Pfizer. Bayer. Eli Lilly. A ciência sobre por que o seu cacete parou de funcionar é financiada por quem lucra quando ele não funciona. Filhos da puta.
 
-Mas a dureza não é a única coisa que esse veneno destrói. Ele cortou a fertilidade do homem americano pela metade em 40 anos. Está na Human Reproduction Update: a contagem de espermatozoides caiu mais de 50% desde 1973. O seu avô fez oito filhos. O seu pai, três. Você, com sorte, um. E em 2025 o Secretário de Saúde, Robert F. Kennedy Jr., subiu ao púlpito da Casa Branca e chamou isso de crise existencial.
+E quando seguimos o rastro do dinheiro até o fim, a causa tinha nome de marca. Glifosato. Na prateleira você conhece como Roundup, o herbicida mais vendido do planeta, da Bayer desde 1974. Só que você não pulverizou. Você comeu. Hoje de manhã, no café. 97% das amostras de comida americana testadas pelo USDA tinham glifosato. No pão, no bife, na cerveja de sexta, até na água da torneira. Não teve uma refeição em 40 anos que não te desse mais uma dose.
+
+E o mais assustador: o glifosato não sai pela urina. Ele é lipossolúvel e se acumula no tecido, principalmente no tecido do seu pênis. Mas a dureza não é a única coisa que esse veneno destrói. Ele cortou a fertilidade do homem americano pela metade em 40 anos. Está na Human Reproduction Update: a contagem de espermatozoides caiu mais de 50% desde 1973. O seu avô fez oito filhos. O seu pai, três. Você, com sorte, um.
+
+E em 2025 o Secretário de Saúde, Robert F. Kennedy Jr., subiu ao púlpito da Casa Branca e chamou isso de crise existencial, apontando pros mesmos químicos da sua comida.
 
 [Robert F. Kennedy Jr.]
 
@@ -193,9 +211,9 @@ Quando o meu tio era presidente, a taxa de fertilidade neste país era de 3,5. H
 
 [Dana White]
 
-Mas foi seguindo esse rastro que a gente achou a parte mais suja. Em 1998 a Bayer já sabia: um memorando interno, o "Confidencial 04-Beta", vazou num fórum de litígios em 2025, com executivos discutindo a portas fechadas o efeito do glifosato no tecido erétil, e duas linhas no rodapé: "Sem comunicação pública. Risco de litígio." A Bayer já pagou 24 bilhões pra encerrar processos sobre câncer. Imagina o que fariam pra você nunca terminar este vídeo.
+Mas foi seguindo esse rastro que a gente achou a parte mais suja. Em 1998 a Bayer já sabia: um memorando interno, o "Confidencial 04-Beta", vazou num fórum de litígios em 2025, com executivos discutindo a portas fechadas o efeito do glifosato no tecido erétil, e duas linhas no rodapé: "Sem comunicação pública. Risco de litígio."
 
-E a FDA, os porteiros do sistema, aprovou o glifosato contra a recomendação de 11 cientistas da própria agência, e 7 foram demitidos nos 18 meses seguintes. Eu sentei com um deles.
+A Bayer já pagou 24 bilhões pra encerrar processos sobre câncer. Imagina o que fariam pra você nunca terminar este vídeo. E a FDA, os porteiros do sistema, aprovou o glifosato contra a recomendação de 11 cientistas da própria agência, e 7 foram demitidos nos 18 meses seguintes. Eu sentei com um deles.
 
 [Ex-Revisor da FDA]
 
@@ -203,25 +221,32 @@ Nós vimos, nos dados do próprio fabricante, o que o glifosato fazia com o corp
 
 [Dana White]
 
-Enquanto a Bayer envenena a sua comida de um lado, a Big Pharma vende o antídoto do outro. Viagra, Cialis, TRT e cirurgia: 32 bilhões de dólares por ano nos Estados Unidos. Nenhum deles cura nada, e a pílula te deixa mais dependente a cada caixa. Homem curado é cliente que desaparece. Pra eles você nunca foi paciente. Você é uma assinatura mensal. O sistema não quer você curado. Quer você medicado. Todo mês. Pra sempre.
+Enquanto a Bayer envenena a sua comida de um lado, a Big Pharma vende o antídoto do outro. A Pfizer fatura 8,7 bilhões de dólares por ano com o Viagra. Cialis e Levitra, mais 4 bilhões. Disfunção erétil, TRT e cirurgia peniana: 32 bilhões por ano nos Estados Unidos. Esse é o tamanho da indústria que precisa que o seu cacete continue não funcionando.
 
-Mas eu sei disso porque eles vieram me comprar. Duas vezes. A primeira foi a Pfizer me oferecendo pintar o Viagra no chão do meu octógono: 50 milhões por ano, 5 anos de contrato, o maior patrocínio da história do esporte, se eu calasse a boca sobre o que o Dr. Drew tinha achado. A segunda, 3 semanas depois: 47 milhões pela fórmula, com um contrato de silêncio. Eu ri na cara deles. Até o CEO de uma farmacêutica me ligou implorando pra eu parar os testes. Eu gravei.
+Nenhum deles cura nada, e a pílula te deixa mais dependente a cada caixa e mais mole a cada ano. Homem curado é cliente que desaparece. Pra eles, você nunca foi paciente. Você é uma assinatura mensal. Pau morto é fluxo de caixa.
+
+Mas eu sei disso porque eles vieram me comprar. Duas vezes. A primeira foi a Pfizer me oferecendo pintar o Viagra no chão do meu octógono: 50 milhões por ano, 5 anos de contrato, o maior patrocínio da história do esporte, se eu calasse a boca sobre o que o Dr. Drew tinha achado. Eu cuspi na cara deles.
+
+A segunda, 3 semanas depois: 47 milhões pela fórmula, com um contrato de sigilo absoluto. Eu ri na cara deles. Até o CEO de uma farmacêutica me ligou implorando pra eu parar os testes. Eu gravei.
 
 [CEO farmacêutico, voz ao telefone]
 
-Dana, você precisa parar. Um homem americano impotente vale 19 mil dólares pra gente ao longo da vida. A gente não vende cura. A gente vende manutenção. Manutenção é o produto. Continuar com isso só vai colocar você em perigo.
+Dana, você precisa parar. Um homem americano impotente vale 19 mil dólares pra gente ao longo da vida. A gente não vende cura. A gente vende manutenção. Manutenção é o produto. Continuar com essa teimosia só vai colocar você em perigo.
 
 [Dana White]
 
 Eu desliguei na cara dele. E desde esse dia, este vídeo foi derrubado 14 vezes. Se é tudo mentira, por que tanto esforço pra te impedir de ver?
 
-Mas a resposta estava num lugar que eu nunca ia procurar. Lembra da pista que a Mollie deu sem perceber? O tratador de garanhão. Kentucky. Um pó branco com um tipo especial de sal do cocho. Rastreamos isso, e o rastro nos levou a um mundo que eu nem sabia que existia.
+Mas a resposta estava num lugar que eu nunca ia procurar. Lembra da pista que a Mollie deu sem perceber? O tratador de garanhão. Kentucky. Um pó branco com um tipo especial de sal do cocho. Rastreamos isso, e o rastro nos levou a um mundo que eu nem sabia que existia: a criação de cavalos de raça pura. Deixa eu explicar como esse mundo funciona, porque é aí que tudo se conecta.
 
-Um garanhão reprodutor de elite, uma daquelas raças pesadas como o Percheron, vale 20, 30 milhões de dólares. E todo esse valor está numa coisa só: o pau dele. Ficar duro, montar e cobrir 200 éguas numa temporada, até os 25 anos, que equivale a um homem de 75. Um garanhão que perde isso não vale mais nada. É por isso que os donos dos haras mais caros do planeta guardam um segredo a sete chaves: uma pasta salgada, um pó barato com um tipo específico de sal, no cocho, que mantém o garanhão duro muito depois da idade em que deveria ter parado. A mesma pasta que o lutador de 40 comeu no celeiro antes de comer a mulher do Don Frye. Aquele lutador não era mais homem do que o Predador. Ele só tinha o antídoto, e o Don não.
+Um garanhão reprodutor de elite, uma daquelas raças pesadas como o Percheron, vale 20, 30 milhões de dólares. E todo esse valor está numa coisa só: o pau dele. Ficar duro, montar e cobrir 200 éguas numa temporada, 2, 3 por dia, a 300 mil dólares cada cobertura, até os 25 anos, que equivale a um homem de 75. Um garanhão que perde isso não vale mais nada.
 
-E aí a peça final se encaixou. O glifosato está na comida dos homens, mas está na comida dos cavalos também, em quantidade muito maior. Pela lógica, o garanhão devia ser o animal mais impotente da Terra. Mas é o contrário. Ele cobre uma égua aos 25 com a mesma força de quando tinha 5. Cavalo não tem disfunção erétil. O cavalo escapa. Por quê? Guarda essa pergunta, porque a resposta dela é exatamente o que vai trazer o seu de volta.
+É por isso que os donos dos haras mais caros do planeta guardam um segredo a sete chaves: uma pasta salgada, um pó barato com um tipo específico de sal, no cocho, que mantém o garanhão duro muito depois da idade em que deveria ter parado. A mesma pasta que o lutador de 40 comeu no celeiro antes de comer a mulher do Don Frye. Aquele lutador não era mais homem do que o Predador. Ele só tinha o antídoto, e o Don não.
 
-Mas antes disso, eu preciso que você veja o que esse veneno fez, milímetro por milímetro, dentro de você. E ninguém neste país explica isso melhor do que o Dr. Drew Pinsky: formado pela USC em 1984, professor de medicina, 32 anos no ar, no rádio e na MTV, atendendo ao vivo o homem que não conseguia levantar pra mulher e não tinha coragem de contar pra ninguém, muito antes de a pílula azul existir. Preste atenção em cada palavra.
+E aí a peça final se encaixou. O glifosato está na comida dos homens, mas está na comida dos cavalos também, em quantidade muito maior. Pela lógica, o garanhão devia ser o animal mais impotente da Terra. Mas é o contrário. Ele cobre uma égua aos 25 com a mesma força de quando tinha 5. Cavalo não tem disfunção erétil. O garanhão escapa. Por quê? Guarda essa pergunta, porque a resposta dela é exatamente o que vai trazer o seu de volta.
+
+Mas antes disso, eu preciso que você veja o que esse veneno fez, milímetro por milímetro, dentro de você. E ninguém neste país explica isso melhor do que o Dr. Drew Pinsky. Formado pela USC em 1984, professor de medicina e psiquiatria, 32 anos no ar, no rádio e na MTV, atendendo ao vivo o homem que não conseguia levantar pra mulher e não tinha coragem de contar pra ninguém, muito antes de a pílula azul existir. Preste atenção em cada palavra a seguir.
+
 
 ---
 
