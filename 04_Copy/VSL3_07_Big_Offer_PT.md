@@ -282,26 +282,18 @@ Me diz uma coisa: quantas vezes um médico te deu uma garantia dessas? Quantas v
 
 Se eu não tivesse certeza absoluta, eu iria à falência. Eu não boto o meu nome em merda nenhuma. Boto nisso. E antes de você escolher, eu quero que você ouça isto do homem que estava pior do que você.
 
-## Checkout (instruções de compra, voz do Dana)
+## Checkout (instruções de compra, voz do Dr. Drew)
 
-> Adaptado do bloco Neurocept. Posição a definir (depois da garantia ou depois das 3 razões do Close). v2: um pouco mais explicado (passo a passo numerado, o porquê da exclusividade, a caixa discreta).
+> Adaptado do bloco Neurocept. Posição a definir (depois da garantia ou depois das 3 razões do Close). v3 (16/11): versão do Marcos na voz do Dr. Drew, com o DNA HoneyFil (comando físico, veredito curto, número no lugar de adjetivo, promessa colhida no dia 4, "é normal? completamente normal") e mais compacta.
 
-[Dana White]
+[Dr. Drew Pinsky]
 
-Escolhe o seu kit de Stallion Soda aqui embaixo. Considera isso o menor investimento que você vai fazer na vida, e o mais poderoso, porque é o único que devolve o seu pau e a sua independência na cama, sem depender de pílula nunca mais.
+Então, escolhe o seu kit de Stallion Soda aqui embaixo. Vou ser direto com você: é o menor investimento que você vai fazer na vida, e o único que devolve o seu pau sem depender de pílula nunca mais.
 
-O Stallion Soda original está disponível única e exclusivamente nesta página. Não está na Amazon, não está na farmácia, não está em loja de suplemento, e se você vir por aí, é cópia. Eu cortei todo intermediário pra você pegar a fórmula de Lexington direto da fábrica, pelo preço que custa fazer, sem margem de farmacêutica. Esta é a sua única oportunidade de ter a fórmula completa, os 4 ingredientes na proporção certa, feita pra dissolver a lama cavernosa e reconstruir a esponja, atacando a causa raiz da moleza, e não o sintoma.
+O Stallion Soda original só existe nesta página. Não está na Amazon, não está na farmácia, não está em loja de suplemento. O Dana cortou todo intermediário pra você pegar a fórmula de Lexington direto da fábrica, pelo preço que custa fazer, sem margem de farmacêutica.
 
-Agora olha exatamente o que você precisa fazer pra concluir o seu pedido com segurança.
+Agora olha o que você faz. Logo abaixo deste vídeo estão os kits. Ao clicar, você cai na página de pagamento, protegida por criptografia de nível militar, a mesma que o Federal Reserve e a Casa Branca usam. Ninguém vê o seu cartão. Ninguém vê o seu nome.
 
-Logo abaixo deste vídeo você encontra as opções de kit. Ao clicar, você é levado pra nossa página de pagamento, 100% segura, protegida por criptografia de nível militar, a mesma tecnologia que o Federal Reserve e a Casa Branca usam pra proteger os dados deles. Nem o Dana White consegue ver o número do seu cartão. As suas informações ficam totalmente protegidas. Lá, é só seguir estes passos:
+Lá são 3 passos. Primeiro, rola a página pra baixo: nome completo, telefone e e-mail. Segundo, o endereço onde o kit chega. Terceiro, os dados do cartão, "Comprar Agora", e pronto. 2 minutos.
 
-Primeiro, rola a página pra baixo e preenche o seu nome completo, telefone e e-mail.
-
-Segundo, informa o endereço onde você quer receber o seu kit.
-
-Terceiro, insere os dados do cartão.
-
-Clica em "Comprar Agora" e pronto.
-
-A minha equipe, aqui nos Estados Unidos, prepara o seu envio imediatamente, numa caixa discreta, sem nome de produto por fora, e você recebe no conforto da sua casa em 3 a 5 dias úteis, dentro dos EUA. No dia 4, o Stallion Soda está no seu lençol.
+A equipe do Dana, aqui nos Estados Unidos, despacha no mesmo dia numa caixa discreta, sem nome de produto por fora. Nem a sua mulher, nem o carteiro. Em 3 a 5 dias úteis está na sua porta, e no dia 4 está no seu lençol. É normal ficar nervoso agora? Completamente normal. Desce a página.
