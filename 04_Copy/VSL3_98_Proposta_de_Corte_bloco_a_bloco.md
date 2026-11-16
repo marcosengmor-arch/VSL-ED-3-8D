@@ -1,45 +1,54 @@
 # VSL 3 — Proposta de corte bloco a bloco (versão final do Marcos, docx de 16/11)
 
+> v2 (16/11): Background −350 (Don só como spoiler), Emotional −740, Big Offer −700 (depoimentos, Vegas e bônus inteiros), a pedido do Marcos.
 > Base: contagem só de fala do docx (22.850 palavras com as 3 leads; corpo 18.637). Alvo: corpo de ~14.000 a 14.500 palavras, o tamanho da Bull Soda Rise (13.937) e da IronPulseX (14.890), e cada lead entre 1.100 e 1.250. Critério: sai repetição, recap e explicação dupla; fica toda prova (exame, teste, número), toda cena de sexo e todo beat do DNA HoneyFil. Números de parágrafo = posição no docx. Nada foi aplicado.
 
 | Bloco | Hoje | Proposto | Corte |
 |---|---|---|---|
-| Background | 1.113 | 1.000 | −110 |
-| Emotional | 2.064 | 1.520 | −540 |
+| Background | 1.113 | 760 | −350 |
+| Emotional | 2.064 | 1.320 | −740 |
 | Discovery | 1.900 | 1.550 | −350 |
 | Tese (MUP + MUF) | 2.014 | 1.660 | −355 |
 | MUS (4 verbos + lab) | 2.870 | 2.170 | −700 |
 | Build Up | 2.205 | 1.770 | −435 |
-| Big Offer | 4.594 | 3.370 | −1.225 |
+| Big Offer | 4.594 | 3.890 | −700 |
 | Close + FAQ | 1.877 | 1.490 | −385 |
-| **Corpo** | **18.637** | **14.530** | **−4.100 (−22%)** |
+| **Corpo** | **18.637** | **14.620** | **−4.015 (−22%)** |
 | Lead 01 | 1.331 | 1.150 | −180 |
 | Lead 02 | 1.595 | 1.250 | −345 |
 | Lead 03 | 1.287 | 1.150 | −140 |
 
 Tempo estimado com uma lead: de 84–100 min pra 66–78 min. O $49 passa a cair por volta de 11.000 palavras do corpo (Bull Soda Rise: 11.238; Soda Horse: 11.584).
 
-## Background (−110)
-1. Autoridade: Meta + porta-voz em uma frase só (−20).
-2. ClinCalc: tirar os números absolutos, deixar só "explodiram 250% em 5 anos" (−25).
-3. Coleman, Randy e Chuck: cada depoimento perde uma frase de contexto (o "me chamavam de", o "Captain America, o cara dos Mercenários", o "metade do vestiário") (−45).
-4. Entrada do Don: "Esse esporte passou 30 anos vendendo esse homem..." em uma frase (−20).
+## Background (−350) — v2, a pedido do Marcos: a apresentação do Dana mais curta e o Don só como spoiler
+1. Autoridade: "Em 2001 comprei... 4 bilhões... aos 57 sou eu quem manda" fica; Meta + porta-voz da Casa Branca em uma frase (−30).
+2. Obsessão: "Lendas do UFC... me ligaram confessando com a voz baixa... Imparáveis no octógono, mortos na cama" fica; sai "Eu passei a vida vendendo masculinidade..." e "Se até os homens mais duros..." vira meia frase (−45).
+3. ClinCalc: só "as prescrições de Viagra e Cialis explodiram 250% em 5 anos" (−25).
+4. "Eu não ia deixar as minhas lendas amolecer..." + "100 milhões... 3.000 homens": um parágrafo de 60 palavras (−35).
+5. Promessa: intacta (é o A1 do DNA).
+6. Coleman, Randy e Chuck: ficam os três, cada um em 45 palavras (sai "me chamavam de", "Captain America, o cara dos Mercenários", "processei esse careca e fiquei 10 anos sem falar", "metade do vestiário") (−60).
+7. Transição "antes de te revelar a receita... o verdadeiro inimigo": 2 frases (−20).
+8. Entrada do Don, de ~330 pra ~120 palavras: "Em janeiro deste ano, numa tarde de sábado, o meu telefone tocou. Don Frye. Sim, aquele Don Frye: o bigode, a voz, o Predador, o cara que venceu o UFC 8 inteiro numa noite. E se você nunca viu uma luta, imagina o cowboy mais durão que você já viu num filme. É ele. O que eu ouvi do outro lado da linha foi a confissão de um homem no fundo do poço. E você vai ouvir da boca dele." Saem daqui: Takayama, bombeiro/rancho/filhas/Godzilla, "30 anos vendendo esse homem", "a ligação mudou os 6 meses", "quero ser cristalino", "nunca revelado na medicina", "ataca a substância castradora", "por isso ele aceitou... casamento de 20 anos". O que é emocional fica na Emotional (−135 líquidos, já descontado o que precisa entrar lá).
 
-## Emotional (−540)
-1. §319 (os títulos do Don: UFC 8, Takayama, 33 mil curtidas): já está no Background; fica só "Eu cheguei aos 61 sendo o Don Frye" + uma credencial (−25).
-2. §329 ("Sabia o gosto da buceta dela de cor..."): funde uma imagem no §325 e sai o resto (−40).
-3. §335–339 (marido presente, rancho, "diamante não goza", homem mais durão): ficam 2 frases, "diamante não goza" obrigatória (−60).
-4. §343–345 (pílula escondida + dependência): vira um parágrafo (−35).
-5. §353 ("Esfreguei um pau morto numa MILF..."): sai, repete o §351 (−38).
-6. §365 ("Quem diria. O Predador, Bicampeão... Hall da Fama"): sai, recap de título (−51).
-7. §369–373 (a festa): mantém a mão na bunda e o sorriso; corta o cenário (−20).
-8. §383 ("quando deitei na cama... fiquei pensando onde"): 2 frases (−30).
-9. §387–393 (o celeiro): mantém o pó no sal, "dava duas da minha", a chupada e as duas horas; corta as redundâncias de "filho da puta" e do feno (−30).
-10. Mollie §407–415: mantém o médico ("o problema não é você"), o celeiro ("cada polegada", "não amoleceu, estava pronto de novo") e "fiquei viciada"; corta a seca de 10 anos repetida (−60).
-11. Mollie §419 (resposta sobre a performance): metade (−25).
-12. Dana §423–431 (guarda da filha, a frase, "cada polegada", a suspeita, as 2 perguntas): "a frase" + "cada polegada" + "a suspeita" viram um parágrafo só (−80).
-13. Dana §403 (Kinsey): mantém o número, corta a moldura (−15).
-14. Passe fino de conectivos e "Dana" vocativo repetido (−30).
+## Emotional (−740) — v2
+1. §319 (UFC 8, Takayama, 33 mil curtidas): fica "Eu cheguei aos 61 sendo o Don Frye" + Takayama em meia frase, porque saiu do Background (−20).
+2. §325–329 (o olhar, a toalha, "o gosto da buceta dela de cor"): um parágrafo de 70 palavras (−80).
+3. §335–339 (marido presente, rancho, "diamante não goza"): 2 frases (−60).
+4. §343–345 (pílula + dependência): um parágrafo (−35).
+5. §347–357 (a noite do jantar): de 243 pra 170; sai o §353 ("Esfreguei um pau morto numa MILF"); ficam a calcinha, "entortou feito macarrão", "pena e paciência", "tudo bem, Don", o silêncio e "como diabos eu comia ring girl..." (−73).
+6. §363 (TRT, bomba, garrafa): 35 palavras, "roxo feito batata" fica (−23).
+7. §365 ("Quem diria. O Predador, Bicampeão..."): sai (−51).
+8. §369–373 (a festa): 110 palavras; ficam a mão na bunda, os 2, 3 segundos e o sorriso (−38).
+9. §377–381 (o sorriso morreu, "esse aqui tem um pau que funciona", saí da festa): 85 palavras (−24).
+10. §383 ("fiquei pensando onde"): 2 frases (−30).
+11. §385 (a câmera das éguas): 25 palavras (−9).
+12. §387–393 (o celeiro): ficam o pó no sal, "dava duas da minha", a chupada, as duas horas e "o lugar preferido dela"; saem os "filho da puta" repetidos (−30).
+13. Dana §401–403 (dois lados + Kinsey): 30 palavras, o número fica (−17).
+14. Mollie §407–415: ficam o médico, o celeiro ("cada polegada", "não amoleceu, estava pronto de novo") e "fiquei viciada"; sai a seca repetida; §409 em 35 (−76).
+15. Mollie §419 (a performance): metade (−25).
+16. Dana §423–431: "a frase" + "cada polegada" + "a suspeita" num parágrafo; as 2 perguntas em 35 palavras (−97).
+17. Interjeições do Dana: de 7 pra 5 (saem "Que merda irmão, eu sinto muito" e "E o que você fez?") (−12).
+18. Conectivos e "Dana" vocativo (−40).
 
 ## Discovery (−350)
 1. Segunda oferta da Pfizer (47 milhões + máfia de Boston): uma frase (−40).
@@ -87,20 +96,20 @@ Tempo estimado com uma lead: de 84–100 min pra 66–78 min. O $49 passa a cair
 9. §930 ("alguns pacientes se gravaram fodendo"): 20 palavras (−16).
 10. Selo postal, esposa das 4h, Earl de 74 (se entrou), Ray, depoimentos 05/06: intactos. Conectivos (−27).
 
-## Big Offer (−1.225)
-1. Apresentação: §960 sai (repete as 3 polegadas do §956); §958 funde no §956; genérico (§966) e como tomar (§968) enxutos (−85).
-2. Dana §976–978 + Dr. Oz §982–984: Oz em um parágrafo de 60 (a esposa "cadê o meu marido" fica) (−73).
-3. §988–990 + atriz pornô + Mick Blue: a atriz pornô sai (as leads já têm 3 vozes de atriz); Mick fica; §990 enxuto (−85).
-4. Hollywood: Lundgren fica; Van Damme sai (mesma função, mesmo número); §1006–1008 enxutos (−106).
-5. Mulher do Statham §1032–1040: 150 palavras, mantém o personal demitido, "esse era o meu casamento", a bancada e "molhada antes de ele encostar" (−70).
-6. Dr. Drew escassez/aviso §1048–1058: 200 palavras; §1058 ("nunca mais decepcionaram...") sai (−88).
-7. Pitch: §1083–1089 (5 milhões de views, foto do pau, esposa às 3 da manhã, o de 68) viram 60 palavras; §1077–1081 fundem; §1093 e §1097–1101 enxutos; preços e escada de kits intactos (−200).
-8. Dana em Vegas: Nobel (§1107–1109) em 40 palavras; casado/solteiro enxutos; mantém a ring girl de 28, o Cosmopolitan, os 5 mil, a sacada e o binóculo (−100).
-9. Ganhador de Vegas §1127–1135: 120 palavras, mantém "a vida inteira eu fui o cara do binóculo" e a buceta de capa de revista (−66).
-10. Checkout do Dana: §1143 (o segundo número) sai; §1141, §1151 enxutos; §1155–1157 fundem (−96).
-11. Bônus: depoimento das lésbicas vira uma frase; Johnny Sins em 50; bônus 2 em 60; §1196 enxuto; Gary fica (−122).
-12. Garantia: §1217 em 20; §1219–1221 fundem; §1225 ("Em outras palavras...") sai; Dale fica (−92).
-13. Conectivos (−42).
+## Big Offer (−700) — v2, a pedido do Marcos: "é o coração que vende", ficam todos os depoimentos, Vegas e os bônus inteiros
+1. Apresentação: §960 sai (repete as 3 polegadas do §956); §958 funde no §956; genérico e como tomar enxutos (−85).
+2. Dana §976–978 (a entrega do frasco ao Oz): 40 palavras; Dr. Oz fica inteiro (−30).
+3. §990 ("já estavam viciados em Viagra"): enxuto; atriz pornô e Mick Blue ficam (−15).
+4. §1006–1008 (Hollywood): enxutos; Lundgren e Van Damme ficam (−20).
+5. Mulher do Statham: 180 palavras, só tira repetição ("maior, mais grosso, mais duro" uma vez) (−40).
+6. Dr. Drew escassez/aviso §1048–1058: §1058 ("nunca mais decepcionaram...") sai; o resto fica (−60).
+7. Pitch: §1083–1089 (5 milhões de views, foto do pau, esposa às 3 da manhã, o de 68) de 179 pra 90; §1077–1081 fundem; escada de kits intacta (−150).
+8. Dana em Vegas: Nobel em 50 palavras; casado/solteiro, ring girl, Cosmopolitan, 5 mil, sacada e binóculo ficam (−40).
+9. Ganhador de Vegas: fica, tira só a repetição da sacada (−30).
+10. Checkout do Dana: §1143 (o segundo número) sai; §1155–1157 fundem (−60).
+11. Bônus: depoimento das lésbicas em 40 palavras; Johnny Sins em 60; o resto fica, Gary fica (−50).
+12. Garantia: §1225 ("Em outras palavras...") sai; §1219–1221 fundem; Dale fica (−70).
+13. Conectivos (−50).
 
 ## Close + FAQ (−385)
 1. Dr. Drew, caminho 2 §1260: sai o checkout repetido (página segura, caixa, fatura); fica "em 4 dias... em 14... em 30..." (−35); §1254 enxuto (−15).
