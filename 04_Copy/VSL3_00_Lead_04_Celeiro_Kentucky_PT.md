@@ -75,7 +75,7 @@ Não acredita? Esse ritual do garanhão surpreendeu até os melhores urologistas
 
 [Depoimento - Dra. Annika Ackerman, uróloga]
 
-Atendo homens todo dia preocupados com a perda da ereção, e as esposas que vêm junto, calada, no banco de trás. Por 22 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nenhum deles devolvia o pau duro de verdade. Devolvia por uma hora, com dor de cabeça.
+Atendo homens todo dia preocupados com a perda da ereção, e as esposas que vêm junto, caladas, no banco de trás. Por 22 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nenhum deles devolvia o pau duro de verdade. Devolvia por uma hora, com dor de cabeça.
 
 Até o Dana White, que eu conheço há 10 anos, comprar briga de frente com as grandes farmacêuticas e provar que essas soluções não tocam na causa principal que está deixando o seu cacete adormecido.
 
@@ -85,4 +85,6 @@ Mais de 70 estudos de universidades como Stanford e Johns Hopkins, junto com o e
 
 E a pasta salgada do garanhão, com o bicarbonato e o sal preparados do jeito certo, é a única coisa que eu vi em 22 anos de consultório que dissolve isso.
 
-Depois que comecei a recomendar, até paciente com disfunção erétil crônica, homem de 74 a quem eu mesma disse na cara que nunca mais teria uma ereção, voltou ao consultório em 4 dias com a esposa do lado. Foi ela quem pediu pra eu explicar o que ele tinha tomado, porque não dormia há três noites.
+Depois que comecei a recomendar, o meu consultório virou outra coisa. Homem de 68 que entrava de ombro caído agora entra de calça marcando, e eu finjo que não vi. Semana passada um paciente de 71 pediu pra refazer a medição, porque "a de janeiro está errada, doutora". Não estava: ele tinha ganhado 2,8 polegadas em 5 semanas. Outro, de 63, me perguntou se era normal acordar duro todo dia às 5 da manhã e a esposa reclamar. Eu disse que reclamar ela não estava.
+
+Até paciente com disfunção erétil crônica, homem de 74 a quem eu mesma disse na cara que nunca mais teria uma ereção, voltou ao consultório em 4 dias com a esposa do lado. Foi ela quem pediu pra eu explicar o que ele tinha tomado, porque não dormia há três noites. E saiu daqui segurando a mão dele feito namorada.
