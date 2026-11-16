@@ -75,14 +75,14 @@ Não acredita? Esse ritual do garanhão surpreendeu até os melhores urologistas
 
 [Depoimento - Dra. Annika Ackerman, uróloga]
 
-Atendo homens todo dia preocupados com a perda da ereção. Por 22 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nada devolvia o pau duro de verdade. Devolvia por uma hora, com dor de cabeça.
+Atendo homens todo dia preocupados com a perda da ereção. Por 22 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nada devolvia o pau duro de verdade. Só por uma hora, com dor de cabeça.
 
-Até o Dana White comprar briga de frente com as grandes farmacêuticas e provar que essas soluções não tocam na causa principal que está deixando o seu cacete adormecido.
+Até o Dana White comprar briga com as grandes farmacêuticas e provar que essas soluções não tocam na causa que está deixando o seu cacete adormecido.
 
-Mais de 70 estudos de Stanford e Johns Hopkins, junto com o ensaio clínico que ele mesmo bancou com 3.000 homens americanos, provaram que a raiz da disfunção não tem nada a ver com idade, testosterona, estresse ou a cerveja do fim de semana.
+Mais de 70 estudos de Stanford e Johns Hopkins, e o ensaio que ele mesmo bancou com 3.000 homens, provaram que a raiz da disfunção não tem nada a ver com idade, testosterona, estresse ou a cerveja do fim de semana.
 
-É um acúmulo de depósitos rígidos, uma placa que vai se formando dentro do tecido esponjoso do pênis ao longo de 30 anos, feito barro secando dentro de um cano. O sangue quer entrar, mas não consegue.
+É uma placa rígida que vai se formando dentro do tecido esponjoso do pênis ao longo de 30 anos, feito barro secando dentro de um cano. O sangue quer entrar, mas não consegue.
 
-E a pasta salgada do garanhão, com o bicarbonato e o sal preparados do jeito certo, é a única coisa que eu vi em 22 anos que dissolve isso.
+E a pasta salgada do garanhão, preparada do jeito certo, é a única coisa que eu vi em 22 anos que dissolve isso.
 
-Depois que comecei a recomendar, o consultório mudou. Homem de 68 que entrava de ombro caído agora entra de calça marcando, e eu finjo que não vi. Um de 71 pediu pra refazer a medição: 2,8 polegadas a mais em 5 semanas. E até o crônico de 74, a quem eu disse que nunca mais teria uma ereção, voltou em 4 dias com a esposa do lado, reclamando que não dormia há três noites.
+Depois que comecei a recomendar, homem de 68 que entrava de ombro caído agora entra de calça marcando, e eu finjo que não vi. Um de 71 pediu pra refazer a medição: 2,8 polegadas a mais em 5 semanas. E o crônico de 74, a quem eu disse que nunca mais teria uma ereção, voltou em 4 dias com a esposa do lado, reclamando que não dormia há três noites.
