@@ -13,6 +13,7 @@
 | Big Offer | 4.594 | 3.930 |
 | Close + FAQ | 1.877 | 1.529 |
 | **Corpo** | **18.637** | **14.833** |
+| Lead 01 / 02 / 03 | 1.331 / 1.595 / 1.287 | 1.169 / 1.276 / 1.132 |
 
 ---
 
@@ -763,3 +764,167 @@ O Joseph Garcia, de Los Angeles, perguntou: "Eu durava 5 minutos na cama e agora
 [Dana White]
 
 Bom, é isso. Eu sei que você é um homem inteligente, e sabe qual é a decisão certa aqui, certo? Faça o que é certo pra você e pro seu pau: clica no botão abaixo e escolhe o kit de 6 frascos. Se cuida, e até breve. Obrigado por assistir.
+
+---
+
+## Lead 01 (1.331 → 1.169)
+
+[Charlotte Elise Fox]
+
+Fui pro rancho do Don Frye, um ex-lutador do UFC de 61 anos, achando que ia tirar uma foto com a lenda, mas quando pisquei, ele me colocou de quatro e socou com tanta força na minha buceta, depois de botar uma pitada de pasta salgada de bicarbonato e sal celta debaixo da língua, que eu tive que implorar pra ele parar.
+
+Eu vi o pau dele crescer na minha mão em menos de um minuto, esquentando e enchendo de veia, até os meus dedos não fecharem mais em volta. Depois de gozar 3 vezes, ainda estava latejando, duro feito pedra e quente. Não baixou um milímetro.
+
+Me virou, abriu a minha bunda e meteu com tanta força que eu arranhei a madeira da baia com as unhas, gozando uma em cima da outra, com um arrepio que descia do couro cabeludo até o dedão do pé. Foi um dos maiores prazeres da minha vida, e eu voltei de lá andando torto.
+
+Passei a noite inteira acordada, com a buceta ardendo, pensando: como é que um homem com idade pra ser meu avô me deu o melhor sexo da minha vida, melhor do que qualquer rapaz de 30 que já me levou pra cama?
+
+O segredo dele tem nome: o Ritual da Pasta do Garanhão. Bicarbonato de sódio de 1 dólar do Walmart e sal celta, misturados do jeito que os criadores de garanhão de Lexington guardam a sete chaves há décadas. Porque é assim que eles mantêm um garanhão de 2.000 libras cobrindo 200 éguas por temporada aos 25 anos, o equivalente a um homem de 75. Duro. Por mais de duas horas. Sem baixar.
+
+E quando é preparado do jeito certo, esse velho me disse que bate 14 vezes mais forte do que a pílula azul inteira. Sem cara vermelha, sem dor de cabeça e sem esperar uma hora pra fazer efeito. Depois de ontem à noite, eu acredito nele. Minhas coxas ainda tremem quando eu lembro.
+
+Foi o Dana White quem levou isso dos haras de Kentucky pros veteranos aposentados do UFC, e é por isso que homem de 55 que apanhou a vida inteira hoje come a mulher de 30 sem pílula. Depois virou segredinho sujo dos atores pornô mais famosos, como Johnny Sins e Mick Blue, pra ter paus de mais de 9 polegadas durando mais de 60 minutos. Até os homens mais velhos de Hollywood voltaram a ter ereção de aço. Mas não precisa acreditar em mim. Acredita neles.
+
+[Depoimento - Mel Gibson]
+
+Esse ritual da pasta salgada do garanhão que o Dana me deu é uma loucura! Acordo toda manhã com o cacete tão duro que dá pra pendurar uma toalha nele. Aos 70 anos, eu como a minha namorada de 27 a noite inteira, duro feito pedra, sem amolecer uma vez. Me empolguei tanto que engravidei a garota. Uma vida inteira no cinema, e quem diria que o melhor papel ia ser esse.
+
+[Depoimento - George Clooney]
+
+Graças a essa pasta do garanhão, eu tenho o mesmo fôlego que tinha aos 20 e poucos. Ontem à noite deixei a minha mulher encharcada 3 vezes e não baixei uma vez, por mais de duas horas. Ela olhou pra mim e disse: "quem é você e o que fez com o meu marido?". Nada mal pra um cara de 65, né?
+
+[Depoimento - Michael Douglas]
+
+Vou ser sincero: achei que essa pasta de bicarbonato com sal fosse bobagem de lutador. Mas a pitada arde embaixo da língua, e em 4 dias as minhas ereções ficaram 20 vezes mais intensas. Até recuperei 3 polegadas lá embaixo que tinham me roubado nos últimos 30 anos. Agora, aos 82, eu faço a minha esposa, 25 anos mais nova que eu, molhar o lençol toda noite com a pasta do Dana. É uma loucura, porra!
+
+[Charlotte Elise Fox]
+
+Mas não é só a velha guarda de Hollywood que está se divertindo. Mais de 36.000 homens já testaram esse ritual por conta própria, no banheiro de casa. De 40 a 79 anos. Magro, gordo, diabético, cardíaco, 20 anos de Viagra no armário, não importa. E praticamente todos contam a mesma história: pau duro feito pedra. Sob demanda. Não importa o quanto o seu parece morto hoje. Essa pasta acorda os mortos. Eles estão jogando no lixo as bombas embaraçosas, as cartelas de Viagra e o tadalafil que só causam ataque cardíaco e derrame.
+
+Não acredita? Esse ritual do garanhão surpreendeu até os melhores urologistas do país.
+
+[Depoimento - Dra. Annika Ackerman, uróloga]
+
+Atendo homens todo dia preocupados com a perda da ereção. Por 22 anos tratei com o de sempre: comprimido, injeção, TRT, cirurgia, e nada devolvia o cacete duro de verdade. Só por uma hora, com dor de cabeça. Até o Dana White comprar briga com as grandes farmacêuticas e provar que essas soluções não tocam na causa.
+
+Mais de 193 estudos de Stanford e Johns Hopkins, e o ensaio que ele mesmo conduziu com 3.000 homens, provaram que a raiz da disfunção não tem nada a ver com idade, testosterona, estresse ou a cerveja do fim de semana. Mas com uma placa rígida de lama tóxica que vai se formando dentro do tecido esponjoso do pênis ao longo de 30 anos, feito barro secando dentro de um cano. O sangue quer entrar, mas não consegue.
+
+E a pasta salgada do garanhão, preparada do jeito certo, é a única coisa que eu vi em 22 anos que dissolve isso. Depois que comecei a recomendar, homem de 68 que entrava de ombro caído agora entra de calça marcando. Um de 71 pediu pra refazer a medição: 2,8 polegadas a mais em 5 semanas. E o crônico de 74, a quem eu disse que nunca mais teria uma ereção, voltou em 4 dias com a esposa do lado, reclamando que não dormia há três noites.
+
+[Charlotte Elise Fox]
+
+Chegou a hora de você dizer adeus ao pau fraco e mole e começar a ter ereções duras feito pedra que duram horas, fazendo a sua mulher gozar pelo menos 3 vezes numa única noite, gritando o seu nome e revirando os olhos de tanto tesão. Você nunca mais vai ouvir: "Não esquenta, é normal, a gente tenta outra hora." Em vez disso, vai ouvir toda noite: "Me fode com força, do jeito que só você sabe."
+
+Imagina uma potência que a sua parceira não dá conta sozinha, que ela precisa chamar uma amiga solteira pra te segurar na cama. Imagina nunca mais ter vergonha de baixar a cueca, porque agora ela precisa das duas mãos pra segurar o seu cacete. Imagina ela gritando quando a sua rola toca o útero dela. Porque agora, quem manda é você.
+
+Se você quer tudo isso, fica comigo e assiste à apresentação do Dana White, onde ele prepara a pasta salgada do garanhão na sua frente, do jeito certo, pra você conseguir ereções que vão deixar a sua parceira viciada em montar e chupar o seu cacete a noite toda, e vê-lo crescer de 2 a 4 polegadas nas primeiras semanas. 91% dos homens acordam com o lençol levantado até o 4º dia. Vamos lá.
+
+---
+
+## Lead 02 (1.595 → 1.276)
+
+[Phoenix Marie]
+
+Que se dane, vou revelar o ritual da pasta salgada do garanhão usado pelos veteranos do UFC, que faz um pau de 58 anos ficar de pé a noite inteira dentro de uma buceta e não cair nem depois de inundar lá dentro.
+
+Hoje vou fazer ao vivo o "desafio da pasta do garanhão" no cacete do meu vizinho tarado que fica me espiando todo dia pela janela. E se você não aguenta 5 minutos, ou nem levanta mais, presta bastante atenção.
+
+É uma mistura caseira superdiscreta que você prepara em 5 minutos em casa, com bicarbonato de sódio, sal celta e mais dois ingredientes. Uma pitada embaixo da língua por 30 segundos, até arder e a boca encher de água, e pronto. No segundo dia, você acorda com a rola tão dura que levanta o lençol, e nunca mais precisa encarar um médico.
+
+É o ritual secreto que as forças armadas dos EUA e o Dana White desenvolveram pra acabar com a moleza das lendas aposentadas do UFC. Mas desde que vazou pros sets pornô, os paus dos atores que gravam comigo ficaram mais grossos, cheios de veias, iguais aos de um cavalo. Johnny Sins e Mick Blue vão querer minha cabeça, mas é por causa dessa pasta que eles têm um tronco de 8, 9 polegadas e gozam 3 vezes por sessão depois dos 50. Sem pílula, sem bomba, sem cirurgia. O cacete deles pulsa mais forte aos 60 do que o de qualquer namorado que eu tive aos 20.
+
+Passei a carreira inteira obcecada por uma coisa só: ser socada por homens que performam como animais e descobrir o que eles fazem pra isso acontecer. E acredite, não tem nada a ver com idade, genética ou injeção de testosterona. Coloque uma pitada dessa pasta debaixo da língua e você vai foder a noite inteira, esticando ela tão fundo que ela morde o travesseiro, e até a vadia de 22 anos mais gostosa da sua cidade vai implorar pra você ir mais devagar antes de esguichar em você de novo.
+
+Não acredita em mim? Então vou te mostrar ao vivo, e se não funcionar com você, eu prometo que vou até sua casa e te pago o melhor boquete da sua vida.
+
+O sortudo de hoje é o Walt, de 58 anos, meu vizinho tarado que me secava todo dia pela janela enquanto eu andava só de calcinha pela casa. Semana passada eu convidei ele pra entrar. Tirei a roupa dele, deitei ele na minha cama, sentei na cara dele com a buceta pingando, mas quando fui sentar no pau dele, escapou. Parecia que eu estava sentando num macarrão cozido. Ali mesmo ele me confessou que não ficava duro há três anos.
+
+Mas depois que o Johnny e o Mick me contaram o segredo sujo deles, decidi testar hoje com o Walt. E pra deixar o desafio mais interessante, chamei minha amiga Cory Chase, a MILF mais assistida do Pornhub. Se você quer voltar a ser o homem que faz as pernas dela tremerem, continua assistindo, porque ela vai testar esse ritual ao vivo.
+
+[Cory Chase]
+
+Agora vamos pra parte que importa. Eu vou provar na sua frente o segredo que todo ator de ponta do pornô usa pra ter um cacete de 8, 9 polegadas e fazer a mulher gozar em cima dele até o sol nascer. Sem dedo, sem óleo, sem vibrador. Só isto. Vai encher sua boca de água. Aqui. Agora é só esperar fazer efeito.
+
+Esse é o vizinho da Phoenix, de 58 anos. Chegou aqui mole, com 5 polegadas e 3 anos sem uma ereção. Ele vai sair deste quarto com uma ferramenta que não cabe na cueca que trouxe, e com a minha buceta e a da Phoenix marcadas nele.
+
+Enquanto o ritual faz efeito na rola dele, vou te mostrar como homens comuns estão ganhando de 3 a 4,2 polegadas em menos de 12 dias e durando mais de 60 minutos de sexo selvagem, com a esposa gritando e esguichando 3 vezes numa noite. Todo dia eu recebo vídeos de caras acima de 40 se acabando com mulheres de 20, com os paus enormes que não tinham mês passado. Isso é o novo dia a dia da indústria pornô, revelado agora pra você. Nós recebemos ofertas altas, até ameaças, pra não revelar isso de graça. Que se fodam.
+
+Eu casei com um homem normal, 51 anos e 6 polegadas, e nunca me acostumei. Eu gozava horrores no set, derretendo nos braços de homens que me quebravam ao meio, e em casa ou ele gozava em 5 minutos ou broxava em 10. Eu fingia que gozava pra ele parar, ele sabia, e a gente quase se divorciou por isso.
+
+Até o dia em que eu vi o Dana White, o careca do UFC, dando esse segredo nos sets pros atores de 50 testarem, com contrato de sigilo na mão. Eu peguei um pote escondido no camarim e levei pra casa. Funcionou. O pau do meu marido ganhou 3,5 polegadas e virou um dos maiores que eu já tive dentro de mim. E eu já tive muitos. Meu Deus, eu nunca tinha visto um cacete tão grosso e tão duro. Naquela noite ele me fez gozar até eu pedir pra parar, a primeira vez na vida. Hoje ele é o cara que as minhas amigas da indústria pedem pra gravar, e você vai ver o mesmo passo a passo nos próximos minutos.
+
+[Phoenix Marie]
+
+Esse ritual só funciona tão bem porque ataca a causa raiz da disfunção, que não tem nada a ver com idade, testosterona, estresse ou a cerveja do fim de semana. Mas com um veneno castrador que está em 97% do que você come, acumulando dentro do tecido do pau há 30 anos, feito lama seca dentro de um cano, roubando polegadas e te deixando mole quando mais precisa. O sangue quer entrar, mas não consegue. Esse ritual é a única coisa que dissolve isso. E como é discreto, ninguém vai perceber.
+
+Mas não exagere na dose. Alguns homens dobraram e tomaram mais de uma vez por dia. Ficou assustador. Parecendo cavalo de exposição, duros por horas mesmo depois de gozar uma, duas ou três vezes.
+
+Meu vizinho safado está prestes a descobrir isso com nós duas. Oh meu Deus, olha como o pau dele já está duro e marcando. Ficou enorme. Cory, vem provar.
+
+Vou te mostrar agora como aguentar em pé por horas, duro como aço, e dobrar o tamanho do seu cacete pra nunca mais se encolher no vestiário. E se gozar nos primeiros 20 minutos, o sangue continua entrando com tanta força que você emenda a segunda e a terceira rodada com ela ainda tremendo.
+
+Se você quer 8, 9 polegadas aí embaixo, sem risco e sem ninguém saber, presta atenção: isto nunca foi aberto de graça na internet, não do jeito certo. Quando o vídeo original foi postado, bateu quase 30 milhões de visualizações em menos de uma semana, e o servidor caiu. De lá pra cá vários golpistas divulgaram versões falsas de receita de bicarbonato. Mas eu estou compartilhando o único e verdadeiro ritual com você.
+
+Presta atenção, porque é o próprio Dana White que monta esse ritual na sua frente. E aviso: este vídeo não tem replay, você só pode assistir uma vez de graça. Se sair da página, vai ter que pagar $97.
+
+Agora chega de falar. Vamos testar e ver se funciona. Vou deixar um trecho do teste ao vivo agora e em seguida a produção vai soltar o vídeo do Dana White. Assiste até o fim e depois me agradece daquele jeitinho especial que só você sabe.
+
+---
+
+## Lead 03 (1.287 → 1.132)
+
+> A ring girl está como "Kayla Rae" (persona), pelo critério de não botar ring girl real do UFC em vazamento pra indústria pornô com processo. No docx do Marcos é a Brittney Palmer: é só trocar o nome se quiser manter.
+
+[Brandi Love]
+
+Que filho da puta.
+
+Hoje eu e a Kendra fodemos com Don Frye, um ex-lutador do UFC de 61 anos, com um pau de 8 polegadas, e eu ainda estou sentindo ele lá dentro, pulsando. Tudo porque ele botou a maldita pasta salgada do garanhão embaixo da língua antes de subir na cama.
+
+Me colocou de quatro e socou com tanta força na minha buceta, me fez gozar três vezes, passou pra Kendra e fez ela chorar de costas, de pernas abertas, com a cabeça no meu colo, os olhos revirando, pedindo "para" enquanto a boca pedia mais. Uma hora e quarenta sem baixar, e ele gozou só quando quis, dentro de nós duas, sem amolecer uma vez. Duas atrizes de 40, de joelho, e o velho de pé.
+
+Se o seu cacete não levanta mais, ou levanta e cai no meio, ou você goza em 2 minutos e deixa ela na metade, é só pegar uma colher de bicarbonato, uma pitada de sal celta e 2 ingredientes secretos: ele sobe, fica de pé a noite inteira, e você solta na hora que você decidir, não na hora que ele decide. Isso deixa qualquer mulher viciada no seu pau.
+
+O Dana White gastou 100 milhões de dólares do próprio bolso pra descobrir a cura da disfunção erétil, e ele finalmente desenvolveu essa pasta suja que você bota embaixo da língua antes de deitar. Então fica neste vídeo pra descobrir a receita.
+
+[Tucker Carlson]
+
+O jato do Dana White caiu num pouso forçado na terça passada. O cara está salvando a ferramenta de milhares de homens, e tentaram calar ele pra sempre.
+
+[Kayla Rae, ring girl]
+
+Gente, o vídeo em que eu revelei o ritual da pasta do garanhão que o Dana White desenvolveu pros veteranos do UFC transarem como animais passou de 4 milhões de views em dois dias, e os advogados dele me notificaram em 24 horas. Deus. Parem de compartilhar.
+
+[Apresentador de Jornal]
+
+Boa noite. Todo americano vai ouvir isto agora. Dana White, presidente do UFC, foi alvo de uma tentativa de assassinato uma semana depois de expor por que 40 milhões de homens acima de 50 estão perdendo a rigidez na cama.
+
+[Kendra Sunderland]
+
+Qualquer homem que não aguenta 5 minutos precisa ouvir essa história absurda. Kayla Rae, uma das ring girls mais famosas da história do UFC, pode ser processada hoje, 24 horas depois de postar um vídeo que você vai ver no fim deste. Ela vazou pra indústria pornô inteira o ritual sujo de vestiário que toda lenda do UFC acima dos 50 usa pra comer 4 modelos numa noite sem amolecer nunca.
+
+A indústria pornô depende dessa pasta todo dia agora. Dois anos atrás, os atores de 50 estavam saindo da indústria porque não levantavam nem com duas pílulas. Hoje gravam 4 cenas no mesmo dia. Largaram o Viagra. Sem risco pro coração, sem cena mole. Só paus grossos e cheios de veias prontos pra destruir quem estiver no set.
+
+[Brandi Love]
+
+É uma pasta caseira superdiscreta de bicarbonato, sal celta e mais dois ingredientes que você bota embaixo da língua. Misture em casa em 5 minutos. 30 segundos embaixo da língua, até arder. Pronto. No segundo dia você acorda com o pau tão duro que levanta o lençol, grosso, pesado, pulsando contra o colchão antes de você abrir os olhos.
+
+É o ritual sujo que os atores com quem eu gravo fazem antes de uma cena, desde que vazou do vestiário do UFC. O motivo de os cacetes deles serem tão grossos que eu babo só tentando colocar na boca, de eu sair do set com a buceta inchada e as pernas bambas, e de o Johnny Sins e o Mick Blue ainda gozarem 3 vezes por sessão depois dos 50, sem pílula, sem bomba, sem cirurgia. A rola deles pulsa mais forte aos 60 do que a de qualquer namorado que eu tive aos 20.
+
+E acredite: não tem nada a ver com idade, genética ou injeção de testosterona. Faça isso e você vai foder a noite inteira, esticando ela tão fundo que ela morde o travesseiro, e até a vadia de 22 anos mais gostosa da sua cidade vai pedir arrego antes de esguichar em você pela terceira vez.
+
+Se você é casado, cuidado com as mulheres da academia, as amigas da sua esposa, a MILF da casa ao lado, até a mãe divorciada deixando o filho na escola. No segundo em que elas sentem o seu cheiro, dão um jeito de te encurralar sozinho. Essa pasta já devolveu o pau a mais de 15.000 americanos acima de 50, e agora as esposas deles é que estão tirando folga do trabalho, andando esquisito, mandando mensagem pras amigas perguntando o que trouxe o marido de volta aos 30.
+
+Até o Exército dos EUA usa esse ritual há mais de 40 anos nas Forças Especiais, pra aumentar a testosterona dos soldados sem destruir o coração. 230.000 veteranos passaram pelo protocolo desde 1982, e nem um único incidente cardíaco foi registrado. Ereção forte e instantânea foi o efeito colateral de que nenhum veterano reclamou.
+
+[Kendra Sunderland]
+
+Dana White gastou 100 milhões do próprio bolso e dois anos trancado com os cientistas do Exército desenvolvendo a versão certa dessa pasta pras lendas dele. Ele nunca planejou lançar desse jeito, mas quando a receita vazou pela metade e golpistas começaram a vender a versão errada, só com bicarbonato, ele sentou no podcast do Joe Rogan e disse: "Vou processar cada um desses filhos da puta. Vou expor toda essa merda e contar a verdade."
+
+No dia seguinte, as ações da Pfizer sangraram 3,2 bilhões de dólares em 48 horas. Na mesma semana, o jato do UFC perdeu os dois motores 20 minutos depois de decolar de Las Vegas e caiu num pouso forçado em Henderson. O Dana saiu andando. O copiloto não. A FAA fechou o caso em 72 horas, chamando de falha de manutenção, num jato com 40 horas de voo. Foi aí que o Dana decidiu gravar um segundo vídeo, de um local não revelado, o vídeo certo.
+
+[Brandi Love]
+
+Agora você pode dizer adeus a um pau mole e morto. Ficar duro feito pedra por horas, fazendo a sua esposa gritar o seu nome, revirar os olhos e esguichar 3 vezes numa única noite. Nunca mais ouvir "não se preocupa, é normal, a gente tenta outra hora". Em vez disso, toda noite: "por favor, me fode forte como da última vez". Engasgando, babando, abrindo aquele rabinho apertado com as duas mãos pra você gozar dentro.
+
+Se você quer isso, preste muita atenção, porque o que você vai ver é o vídeo que o Dana White gravou do local não revelado, onde ele mostra como fazer essa pasta salgada do garanhão e expõe o plano da Pfizer de deixar 80% dos homens americanos dependentes de Viagra até 2029. Vamos lá.
