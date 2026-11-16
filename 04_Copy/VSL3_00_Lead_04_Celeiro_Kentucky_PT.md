@@ -86,3 +86,31 @@ Mais de 70 estudos de Stanford e Johns Hopkins, e o ensaio que ele mesmo bancou 
 E a pasta salgada do garanhão, preparada do jeito certo, é a única coisa que eu vi em 22 anos que dissolve isso.
 
 Depois que comecei a recomendar, homem de 68 que entrava de ombro caído agora entra de calça marcando, e eu finjo que não vi. Um de 71 pediu pra refazer a medição: 2,8 polegadas a mais em 5 semanas. E o crônico de 74, a quem eu disse que nunca mais teria uma ereção, voltou em 4 dias com a esposa do lado, reclamando que não dormia há três noites.
+
+## Depoimento 01 + fecho da lead (emenda na Dra. Annika)
+
+> Adaptado da VSL 1. Huberman → Dana White; pasta cinza; 91% até o 4º dia (timeline do corpo); 13 s de mão e "levantar o lençol" plantados; nomes do pau rotacionados (pau, cacete, rola).
+
+[Depoimento 01]
+
+Eu tenho 54. Já tinha tentado de tudo. Viagra, TRT, esteroide. Nada funcionou. Mas depois que eu vi o Dana White montando essa pasta salgada do garanhão, dormi com 3 mulheres diferentes numa única semana. Modelos de 30 anos, uma delas ring girl. Elas imploraram pra eu parar, mas eu continuei. Pau duro feito pedra, 13 segundos de mão fechada.
+
+[Savannah Reed]
+
+*(Ela fora do celeiro, com chapéu de cowboy e sem camisa, bancada à frente, com a pasta cinza melada nos peitos e o canto da boca sujo também)*
+
+Chegou a hora de você finalmente dizer adeus ao pau fraco e mole e começar a ter ereções duras feito pedra que duram horas, fazendo a sua mulher gozar pelo menos 3 vezes numa única noite, gritando o seu nome e revirando os olhos de tanto tesão.
+
+Você nunca mais vai ouvir: "Não esquenta, é normal, a gente tenta outra hora, vamos dormir." Em vez disso, vai ouvir isso toda noite: "Me fode com força, do jeito que só você sabe."
+
+Imagina uma potência que a sua parceira não dá conta sozinha. Que ela precisa chamar uma amiga solteira pra te segurar na cama.
+
+Imagina nunca mais ter vergonha de baixar a cueca na frente de uma mulher, porque agora ela precisa das duas mãos pra segurar o seu cacete. Imagina ela gritando quando a sua rola toca o útero dela, sem deixar um canto sem preenchimento.
+
+Você vai andar e se sentir com a confiança de um macho alfa de verdade, sabendo que tem o poder de dominar qualquer mulher que deitar na cama com você. Porque agora, quem manda é você.
+
+Se você quer tudo isso, fica comigo nos próximos minutos e assiste à apresentação do Dana White, onde ele monta a pasta salgada do garanhão na sua frente, conta de onde ela vem e a maneira certa de preparar a receita…
+
+Para você conseguir ereções potentes e duradouras que vão deixar a sua parceira viciada em montar e chupar o seu pau grande e duro a noite toda, e vê-lo crescer de 2 a 4 polegadas nas primeiras semanas.
+
+91% dos homens acordam com o lençol levantado até o 4º dia. E finalmente destravam a explosão de orgasmos que a sua mulher sempre quis, e nunca pediu em voz alta. Vamos lá.
