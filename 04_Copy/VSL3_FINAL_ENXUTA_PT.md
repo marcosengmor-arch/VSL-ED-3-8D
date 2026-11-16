@@ -4,7 +4,7 @@
 
 | Bloco | Antes | Depois |
 |---|---|---|
-| Background | 1.113 | 969 |
+| Background | 1.113 | 897 |
 | Emotional | 2.064 | 1.383 |
 | Discovery | 1.900 | 1.563 |
 | Tese | 2.014 | 1.694 |
@@ -12,12 +12,12 @@
 | Build Up | 2.205 | 1.836 |
 | Big Offer | 4.594 | 3.930 |
 | Close + FAQ | 1.877 | 1.529 |
-| **Corpo** | **18.637** | **15.065** |
+| **Corpo** | **18.637** | **14.993** |
 | Lead 01 / 02 / 03 | 1.331 / 1.595 / 1.287 | 1.169 / 1.276 / 1.132 |
 
 ---
 
-## Background Story (1.113 → 969)
+## Background Story (1.113 → 897)
 
 [Dana White]
 
@@ -25,19 +25,19 @@ Olá meu caro, Dana White aqui.
 
 Provavelmente você me conhece pelo UFC.
 
-Em 2001 comprei um esporte proibido em 36 estados por $2 milhões e transformei na maior empresa de luta da história da humanidade. 40 eventos por ano, 700 lutadores, 170 países. Em 2016 vendi por 4 bilhões, e até hoje, aos 57, sou eu quem manda nela. Em 2025 entrei no conselho da Meta, e nas últimas semanas o Presidente me ofereceu, em rede nacional, o cargo de porta-voz da Casa Branca. Eu recusei. Tinha uma coisa mais importante pra fazer antes, e é por isso que estou gravando este vídeo.
+Em 2001 comprei um esporte proibido em 36 estados por $2 milhões e transformei na maior empresa de luta da história. 700 lutadores, 170 países. Em 2016 vendi por 4 bilhões, e até hoje, aos 57, sou eu quem manda nela. Nas últimas semanas o Presidente me ofereceu, em rede nacional, o cargo de porta-voz da Casa Branca. Eu recusei. Tinha uma coisa mais importante pra fazer antes, e é por isso que estou gravando este vídeo.
 
-Eu achava que já tinha visto tudo que a vida pode fazer com um homem. Até janeiro deste ano. Nos últimos anos, minha verdadeira obsessão não foi luta, mas o que acontece com um homem depois que ele para de lutar.
+Eu achava que já tinha visto tudo que a vida pode fazer com um homem. Até janeiro deste ano. Nos últimos anos, minha verdadeira obsessão foi o que acontece com um homem depois que ele para de lutar.
 
-Lendas do UFC, multicampeões, membros do Hall da Fama, caras que nocautearam gente na frente de 20 mil pessoas, me ligaram confessando, com a voz baixa, que não conseguiam mais ficar duros pra própria mulher. Imparáveis no octógono, mortos na cama. E se até os homens mais duros do planeta estavam falhando entre quatro paredes, o americano trabalhador, que sustenta a família e cumpre o seu dever todo dia, estava sofrendo calado. Então eu fui investigar.
+Lendas do UFC, membros do Hall da Fama, caras que nocautearam gente na frente de 20 mil pessoas, me ligaram confessando, com a voz baixa, que não ficavam mais duros pra própria mulher. Imparáveis no octógono, mortos na cama. E se até eles estavam falhando entre quatro paredes, o americano trabalhador estava sofrendo calado. Então eu fui investigar.
 
 Segundo a ClinCalc DrugStats, em 5 anos as prescrições de Viagra e Cialis explodiram mais de 250%.
 
-Eu não ia deixar homem americano como você, nem as minhas lendas, amolecer na cama do lado da esposa achando que a culpa é da idade, do estresse ou da testosterona baixa, enquanto a verdadeira causa está escondida num lugar que ninguém olha. Eu também não acordava duro há 3 anos. Eu conhecia essa vergonha na pele.
+Eu não ia deixar homem americano como você amolecer na cama achando que a culpa é da idade, do estresse ou da testosterona, enquanto a verdadeira causa está escondida num lugar que ninguém olha. Eu também não acordava duro há 3 anos. Conhecia essa vergonha na pele.
 
-Por isso gastei $100 milhões do meu próprio bolso num laboratório privado, 20 cientistas, 42 máquinas e um estudo médico com 3.000 homens, pra descobrir por que o pau de um homem americano para de funcionar depois dos 40, e por que ninguém neste país tem coragem de dizer a verdade sobre isso.
+Por isso gastei $100 milhões do meu próprio bolso num laboratório privado, 20 cientistas e um estudo com 3.000 homens, pra descobrir por que o pau de um homem americano para de funcionar depois dos 40, e por que ninguém tem coragem de dizer a verdade sobre isso.
 
-E se você é um homem hétero, eu vou te mostrar a descoberta mais importante que eu fiz na minha vida. O Stallion Soda Ritual.
+E se você é um homem hétero, eu vou te mostrar a descoberta mais importante da minha vida. O Stallion Soda Ritual.
 
 Uma pasta salgada de bicarbonato de sódio, sal celta e mais dois ingredientes que no dia 4 levanta o lençol de um veterano de 60 e no dia 14 faz ele foder 40 minutos sem amolecer, revertendo de forma definitiva a moleza entre as pernas dos meus veteranos do UFC.
 
@@ -45,15 +45,15 @@ Sem Viagra, sem Cialis, sem injeção, sem receita, sem pílula perigosa que col
 
 [Mark Coleman, 61 anos]
 
-Sou o primeiro campeão peso-pesado da história do UFC, The Hammer. E aos 61 anos o único martelo que importa estava mole na mão da minha mulher. Hoje, graças a essa pasta salgada do garanhão, ele fica duro feito aço e volta a bater todo dia. Obrigado, Dana.
+Sou o primeiro campeão peso-pesado do UFC, The Hammer. E aos 61 o único martelo que importa estava mole na mão da minha mulher. Hoje, com essa pasta salgada do garanhão, ele bate todo dia, duro feito aço. Obrigado, Dana.
 
 [Randy Couture, 63 anos]
 
-A minha mulher me trocou por um cara que levantava. Eu, o Captain America, com o cacete morto. Tudo mudou com essa pasta salgada do cavalo. Aos 63 eu como mulher de 30 quase todo santo dia, aguento 40, 50 minutos, fodendo até ela implorar pra parar.
+A minha mulher me trocou por um cara que levantava. Eu, o Captain America, com o cacete morto. Tudo mudou com essa pasta do cavalo. Aos 63 eu como mulher de 30 quase todo dia, 40, 50 minutos, até ela implorar pra parar.
 
 [Chuck Liddell, 56 anos]
 
-Eu nocauteei gente na frente de 20 mil pessoas e ninguém nunca soube que eu precisava de uma pílula pra dormir com a minha mulher. Agora eu gozo dentro dela e continuo, pronto pra segunda, sem tomar porra nenhuma. Funciona, Dana. É ridículo de tão eficaz.
+Eu nocauteei gente na frente de 20 mil pessoas e ninguém soube que eu precisava de pílula pra dormir com a minha mulher. Agora eu gozo dentro dela e continuo, pronto pra segunda, sem tomar porra nenhuma. Funciona, Dana.
 
 [Dana White]
 
