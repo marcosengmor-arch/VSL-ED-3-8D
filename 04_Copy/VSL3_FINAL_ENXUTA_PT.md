@@ -4,7 +4,7 @@
 
 | Bloco | Antes | Depois |
 |---|---|---|
-| Background | 1.113 | 897 |
+| Background | 1.113 | 872 |
 | Emotional | 2.064 | 1.383 |
 | Discovery | 1.900 | 1.563 |
 | Tese | 2.014 | 1.694 |
@@ -12,12 +12,12 @@
 | Build Up | 2.205 | 1.836 |
 | Big Offer | 4.594 | 3.930 |
 | Close + FAQ | 1.877 | 1.529 |
-| **Corpo** | **18.637** | **14.993** |
+| **Corpo** | **18.637** | **14.968** |
 | Lead 01 / 02 / 03 | 1.331 / 1.595 / 1.287 | 1.169 / 1.276 / 1.132 |
 
 ---
 
-## Background Story (1.113 → 897)
+## Background Story (1.113 → 872)
 
 [Dana White]
 
@@ -57,19 +57,19 @@ Eu nocauteei gente na frente de 20 mil pessoas e ninguém soube que eu precisava
 
 [Dana White]
 
-Mas antes de te revelar a receita completa e o único modo correto de preparo, preciso te mostrar o verdadeiro inimigo, o que está impedindo milhões de americanos, como você, de ter a dureza e o tamanho que a natureza programou. Porque a receita só funciona quando você sabe o que ela ataca.
+Mas antes de te revelar a receita e o único modo correto de preparo, preciso te mostrar o verdadeiro inimigo, o que está impedindo milhões de americanos de ter a dureza e o tamanho que a natureza programou. Porque a receita só funciona quando você sabe o que ela ataca.
 
-E eu só descobri esse inimigo por causa do caso mais improvável que eu já vi na vida. Em janeiro deste ano, numa tarde de sábado, o meu telefone tocou. Do outro lado da linha, um homem que você conhece desde antes do começo do UFC.
+E eu só descobri esse inimigo por causa do caso mais improvável que eu já vi. Em janeiro deste ano, numa tarde de sábado, o meu telefone tocou. Do outro lado, um homem que você conhece desde antes do começo do UFC.
 
-Don Frye. Sim, aquele Don Frye. O bigode, a voz, o Predador. O cara que venceu o UFC 8 inteiro numa noite e nocauteou o Takayama em 6 minutos sem dar um passo pra trás. E se você nunca assistiu uma luta, imagina o cowboy mais durão que você já viu num filme: o bigode, o chapéu, a voz de motor de Harley. É ele. Ex-bombeiro, dono de rancho, pai de duas filhas, o capitão do filme Godzilla.
+Don Frye. Sim, aquele Don Frye. O bigode, a voz, o Predador. O cara que venceu o UFC 8 inteiro numa noite e nocauteou o Takayama em 6 minutos sem dar um passo pra trás. E se você nunca assistiu uma luta, imagina o cowboy mais durão de filme: o bigode, o chapéu, a voz de motor de Harley. É ele. Ex-bombeiro, dono de rancho, pai de duas filhas, o capitão do filme Godzilla.
 
 Esse esporte passou 30 anos vendendo esse homem como o macho mais duro que já pisou num octógono. Mas naquela tarde, o que eu ouvi foi a confissão de um homem no fundo do poço.
 
-Aquela ligação mudou os 6 meses seguintes da minha vida. Cancelei evento, mandei a equipe pra casa e mergulhei em pesquisas que eu nunca tinha ligado uma à outra. E é por isso que eu quero ser cristalino com você: o que eu vou te mostrar é diferente de tudo que você já tentou ou já ouviu falar.
+Aquela ligação mudou os 6 meses seguintes da minha vida. Cancelei evento, mandei a equipe pra casa e mergulhei em pesquisas que ninguém tinha ligado uma à outra. Por isso quero ser cristalino: o que eu vou te mostrar é diferente de tudo que você já tentou ou ouviu falar.
 
-O que a minha equipe médica descobriu sobre o tecido do cacete de um homem nunca foi revelado na medicina. E essa pasta salgada ataca a substância castradora que sabotou o pau de praticamente todo homem americano acima dos 40, e destrava o tamanho que foi travado em você na puberdade.
+O que a minha equipe médica descobriu sobre o tecido do cacete de um homem nunca foi revelado na medicina. Essa pasta salgada ataca a substância castradora que sabotou o pau de todo homem americano acima dos 40, e destrava o tamanho que foi travado em você na puberdade.
 
-Esse é o único motivo pelo qual o Don Frye aceitou me receber no rancho dele com a câmera ligada. Não foi por dinheiro, não foi por vaidade. Foi porque ele descobriu tarde demais, e o preço que pagou foi um casamento de 20 anos. Ele não quer que outro americano decente pague esse mesmo preço. Por isso, você vai ouvir da boca dele.
+Esse é o único motivo pelo qual o Don Frye aceitou me receber no rancho com a câmera ligada. Não foi por dinheiro, não foi por vaidade. Foi porque ele descobriu tarde demais, e o preço foi um casamento de 20 anos. Ele não quer que outro americano decente pague esse preço. Por isso, você vai ouvir da boca dele.
 
 ---
 
