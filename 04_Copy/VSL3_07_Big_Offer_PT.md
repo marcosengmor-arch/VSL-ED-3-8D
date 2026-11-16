@@ -1,4 +1,4 @@
-# VSL 3 — Big Offer: apresentação do produto, pitch, bônus e garantia — v1.1 PT, registro BLACK
+# VSL 3 — Big Offer: apresentação do produto, pitch, bônus e garantia — v2 PT, registro BLACK
 
 > Molde: a Big Offer controle da VSL 2 (`big_offer_-_goat_honey_rock.docx`, Hyman/Al, 3.873 palavras), modelada frase a frase, seção a seção: Product Presentation (o nome; "até 3 frascos de graça, já chego nisso"; a primeira e única fórmula; os 4 verbos numa goma; os benefícios por verbo; "pra quem quer fazer qualquer mulher gozar"; 3 polegadas; "não importa quem você é"; o Al/os 117/os 3.000; sem genérico por 5 anos; como tomar; a fabricação e os "sem"; o Dr. Oz e o voluntário de 79; os atores pornôs: a atriz e o Mick Blue; vazou pra Hollywood: Harrison Ford e Van Damme; a esposa Diane; os 67 frascos, os 5.000 inscritos, o próximo lote em 90–120 dias; a oferta 3 + 3; o aviso honesto dos 4 e 6 meses; a uróloga) → Pitch (a condição do sócio; $500, $400, $300, $147; 6 por $294, $49; por que o kit de 6; o vídeo explodiu, 5 milhões; os que voltaram; a vaga trava por 15 minutos; 6, 3 e 2 frascos; "se pode pagar mais, pague mais pelo seu próprio pau") → a interrupção do Al (o Prêmio Nobel de Saúde Masculina; os primeiros 20 com reembolso total; o fim de semana no iate; a modelo; o ganhador) → Bonus (Johnny Sins; posições brasileiras; orgasmo prolongado; o truque das lésbicas; a consulta por Zoom; o 6º bônus; $3.977) → Guarantee (abra a caixa; se não acontecer, devolvo e mando $200; 60 dias; a GOAT Guarantee; o Dale de Chicago; "quando a Pfizer te devolveu um dólar?"; "ouça do próprio Al").
 > O que troca pra nossa VSL (só o necessário): o produto é **Stallion Soda** e a goma é "do garanhão"; cimento → lama cavernosa; os 4 verbos = dissolver, hidratar (com os receptores acordando, bônus do sal), reconstruir, proteger; o chifre → o tendão; o bode velho na monta → o garanhão velho na cobertura; o Al → o Don; os 117 e os 3.000 como no Build Up; o genérico: o tendão de Percheron só em Lexington e o sal celta só colhido no verão na Bretanha; a fabricação: o laboratório federal, em solo americano, 21 CFR 111; **o Dr. Oz** fica (é "o homem que o Presidente colocou pra cuidar da saúde dos americanos mais velhos", D7); os estúdios pornôs: o Dana vai com **o produtor de Vegas** que já tinha vazado a cópia (a origem assinada), a atriz e o **Mick Blue** ficam; vazou pra Hollywood pelo Don e pelo Randy: **Dolph Lundgren (68, esposa de 30) e Van Damme (65)**, parceiros de Os Mercenários e de Soldado Universal, no lugar de Harrison Ford e do Van Damme (o Stallone já foi usado na Soda Horse); a esposa Diane → **a mulher do Jason Statham** (58, 'o Transportador'), sem nome, 38 anos, 15 anos juntos, dois filhos, quase trocou ele pelo personal de 40 (o personal da VSL 2 como eco); 'sou paga pra não dizer essas coisas'; a uróloga = **Dra. Annika Ackerman**; a condição do preço é a do Dana (não do sócio); **quem narra a Big Offer é o Dr. Drew; o Dana interrompe** no papel do Al (o Nobel, os 20 reembolsos, **o fim de semana em Las Vegas na noite de luta** no lugar do iate: primeira fila ao lado do Dana, suíte, festa pós-luta, uma modelo da festa, nunca uma ring girl real); a consulta por Zoom é com o Dr. Drew; a garantia vira **Stallion Guarantee**; o Dale pede desculpas ao Dana; o fecho entrega pro Dana ("ouça do próprio Dana").
@@ -9,6 +9,8 @@
 > v1.5 (14/11): na Guarantee o Dr. Drew abre ('abra a caixa, veja a ereção matinal') e o Dana entra pra dar força ('aí entro eu': devolve tudo, os $200, 'eu sou o cara que processa gente por esporte e estou me obrigando por contrato', a Stallion Guarantee, os 60 dias), o Dale pede desculpas ao Dana, e o Dana fecha ('eu não boto o meu nome em merda nenhuma, boto nisso') entregando pro Don.
 > v1.6 (14/11): entra a esposa UGC que comprou escondido (ponto M do arquivo 16), modelada no depoimento do controle (Goat Honey Rock) e enxuta, depois da mulher do Statham e antes de o Dr. Drew voltar nos 67 frascos.
 > Tamanho-alvo: controle ≈ 3.870 palavras.
+
+> v2 (16/11): passada do DNA HoneyFil (arquivo 99): A11 + C6 + C7 (mulher do Statham: 'Esse era o meu casamento', molhada antes de ele encostar, briga resolvida na bancada), J3 + B1 + H4 + B7 (esposa UGC: 'oh meu Deus, ficou enorme e cheio de veia', a louça chacoalhando 40 minutos, chorei de gozar, 'não amoleceu, estava pronto de novo'), A9 (Dr. Drew antes dos $147: pro homem que vai falhar hoje à noite), D5 (Dana: 'Vou ser direto com você' antes do preço final), N (Vegas: buceta de capa de revista, apertada, cheirosa), A10 (Dana: a pior humilhação, antes de 'aí entro eu'), M (rotação: rola x3, cacete x2, esponja x2).
 
 ---
 
@@ -24,7 +26,7 @@ Stallion Soda é a primeira e única fórmula clinicamente comprovada que dissol
 
 E bloqueia o glifosato que continua entrando amanhã de manhã. Dissolver. Hidratar. Reconstruir. Proteger. As 4 coisas ao mesmo tempo, numa goma salgada por dia, sem receita.
 
-Com a lama dissolvida, o fluxo de sangue no seu pau aumenta 20 vezes: ereções duras como pedra sempre que quiser, pelo resto da vida. Com a esponja molhada e os receptores religados, o pau segura o sangue a noite inteira, o desejo sobe na hora e o seu corpo volta a bombear a testosterona que ela sente no cheiro, como a égua sente o garanhão velho na cobertura.
+Com a lama dissolvida, o fluxo de sangue na sua rola aumenta 20 vezes: ereções duras como pedra sempre que quiser, pelo resto da vida. Com a esponja molhada e os receptores religados, a esponja segura o sangue a noite inteira, o desejo sobe na hora e o seu corpo volta a bombear a testosterona que ela sente no cheiro, como a égua sente o garanhão velho na cobertura.
 
 Com o colágeno do tendão, pelo menos 3 polegadas a mais em poucas semanas, com veias salientes e a grossura que deixa qualquer mulher submissa e obcecada por você. E sem o glifosato, controle sobre a ejaculação e a energia de quando você era adolescente.
 
@@ -90,7 +92,7 @@ O segundo a ligar foi Jean-Claude Van Damme.
 
 [Depoimento — Jean-Claude Van Damme]
 
-50 filmes de ação, 65 anos, e em 2023 o meu pau não respondia mais. TRT, peptídeo de cavalo na Tailândia, Kegel. Nada funcionou. Então o Dolph me contou no set da goma do garanhão do Dana.
+50 filmes de ação, 65 anos, e em 2023 o meu cacete não respondia mais. TRT, peptídeo de cavalo na Tailândia, Kegel. Nada funcionou. Então o Dolph me contou no set da goma do garanhão do Dana.
 
 30 dias depois com Stallion Soda, estou fodendo como em 2005. A minha mulher parou de reclamar que eu viajo demais. Agora reclama que não anda direito no dia seguinte. Quando o Van Damme diz que uma coisa funciona, ela funciona.
 
@@ -100,9 +102,9 @@ Agora ouça de uma mulher, porque é a mulher que sente, que percebe. A mulher d
 
 [Depoimento — a mulher do Jason Statham, vídeo de agradecimento]
 
-Dana, eu precisava te agradecer na câmera. 15 anos com o Jason, dois filhos. Pro mundo ele arrebenta 10 caras numa cena. Em casa, nos últimos 2 anos, não dava mais conta de mim, e eu não vou mentir: eu estava a um treino de trocar ele pelo personal de 40 que vinha em casa três vezes por semana.
+Dana, eu precisava te agradecer na câmera. 15 anos com o Jason, dois filhos. Pro mundo ele arrebenta 10 caras numa cena. Em casa, nos últimos 2 anos, não dava mais conta de mim. Esse era o meu casamento. E eu não vou mentir: eu estava a um treino de trocar ele pelo personal de 40 que vinha em casa três vezes por semana.
 
-No 12º dia da sua fórmula, o Jason me acordou às 4 da manhã, duro como pedra contra a minha bunda, e me fodeu de lado por 40 minutos. Eu chorei de saudade. Ele ficou maior, mais grosso, mais duro, aos 58. No dia seguinte eu demiti o personal. Eu sou paga pra não dizer essas coisas. O Stallion Soda me devolveu o meu homem. Obrigada, Dana.
+No 12º dia da sua fórmula, o Jason me acordou às 4 da manhã, duro como pedra contra a minha bunda, e me fodeu de lado por 40 minutos. Eu chorei de saudade. Ele ficou maior, mais grosso, mais duro, aos 58. No dia seguinte eu demiti o personal. Hoje eu fico molhada antes de ele encostar, e quando a gente briga, resolve fodendo na bancada da cozinha. Eu sou paga pra não dizer essas coisas. O Stallion Soda me devolveu o meu homem. Obrigada, Dana.
 
 [Dana White]
 
@@ -112,7 +114,7 @@ E essa aqui comprou escondido do marido. Chegou na minha caixa de entrada sem no
 
 Comprei isso pro meu marido sem ele saber. Eu já não aguentava mais. Dois anos sem sexo, dois anos dele virando pro outro lado à noite. Quase traí ele com o vizinho. Mas antes decidi experimentar o Stallion Soda. Dei uma goma pra ele sem explicar nada, ele achou que era um doce.
 
-Naquela noite ele chegou do trabalho, jogou a pasta na mesa e olhou pra mim como se não me visse há anos. Me segurou pelo pescoço, me curvou na pia da cozinha, levantou o vestido e puxou a calcinha pro lado. Senti o pau dele pressionando, grosso e pesado, parecia de outro homem. Entrou com tudo na primeira estocada e eu gritei. Me comeu ali mesmo, com tanta força que eu arranhei a bancada. Gozei duas vezes antes de ele gozar. Depois me levou pro quarto e foi de novo, e de novo.
+Naquela noite ele chegou do trabalho, jogou a pasta na mesa e olhou pra mim como se não me visse há anos. Me segurou pelo pescoço, me curvou na pia da cozinha, levantou o vestido e puxou a calcinha pro lado. Senti o pau dele pressionando, grosso e pesado, parecia de outro homem. Oh meu Deus, ficou enorme e cheio de veia. Entrou com tudo na primeira estocada e eu gritei. Me comeu ali mesmo na pia, com tanta força que eu arranhei a bancada e a louça chacoalhava no escorredor. 40 minutos. Gozei duas vezes antes de ele gozar, e na segunda gozei tão forte que chorei. Lágrimas de verdade. E ele não parou. E quando ele gozou, não amoleceu. Estava pronto de novo. Depois me levou pro quarto e foi de novo, e de novo.
 
 Rapazes, usem o Stallion Soda se não quiserem que a esposa de vocês acabe transando com outro cara. Podem me agradecer depois.
 
@@ -124,7 +126,7 @@ O sal celta só é colhido três meses por ano, o tendão é processado num úni
 
 Então o que você está assistindo é praticamente o último lote deste ano. Por isso a oferta: no kit de 6 frascos, a melhor opção, você paga 3 e leva os outros 3 grátis. 6 meses de tratamento completo.
 
-E um aviso honesto: mesmo com ereções mais firmes nos primeiros 10 dias, o Stallion Soda não é gambiarra que força uma ereção e destrói o seu pau por dentro. É uma solução natural que trabalha com o seu corpo, não contra ele.
+E um aviso honesto: mesmo com ereções mais firmes nos primeiros 10 dias, o Stallion Soda não é gambiarra que força uma ereção e destrói a sua esponja por dentro. É uma solução natural que trabalha com o seu corpo, não contra ele.
 
 Por isso o uso contínuo por pelo menos 4 meses, o tempo que o corpo leva pra desintoxicar e tornar o ganho permanente. Mas os melhores resultados vêm de 6 meses: você dissolve 30 anos de lama, reconstrói a esponja inteira e blinda ela pra nunca mais voltar.
 
@@ -144,7 +146,7 @@ Já vi pacientes de 70 anos com disfunção crônica recuperarem a vida sexual d
 
 Por isso o Dana preparou esta oferta especial pra você aproveitar agora. Lembra da condição que ele impôs pro laboratório antes de botar o nome dele nisso? Nada de preço predatório de farmacêutica. Cobra o que custa pra fabricar, ponto.
 
-Foi só por causa dela que o Stallion Soda não vai te custar os $500 por mês que a farmacêutica cobraria por algo que curasse de verdade. Nem $400, nem $300. O preço de um frasco é $147. Mas, porque você assistiu até aqui, fica muito melhor.
+Foi só por causa dela que o Stallion Soda não vai te custar os $500 por mês que a farmacêutica cobraria por algo que curasse de verdade. Nem $400, nem $300. Mas não foi pro homem que pode pagar $500 que o Dana fez isso. Fez pro homem que vai falhar com a mulher hoje à noite. Pro homem que não fica duro há meses. Pro homem a uma briga de perder a única mulher que amou de verdade. O preço de um frasco é $147. Mas, porque você assistiu até aqui, fica muito melhor.
 
 Se você escolher o kit de 6 frascos agora, o protocolo completo, você paga só 3. Leva os outros 3 de graça. 6 meses de tratamento por $294. Isso dá $49 por frasco, um desconto de 90% sobre os 500 dólares que milhares de homens estavam dispostos a pagar por frasco.
 
@@ -154,7 +156,7 @@ Mas antes de escolher o seu kit, eu preciso te avisar de uma coisa, porque o que
 
 Quando o Dana anunciou os frascos grátis, em menos de 24 horas o vídeo explodiu, 5 milhões de visualizações, e milhares de homens caíram em cima ao mesmo tempo, disputando os últimos frascos deste lote de Lexington.
 
-E a parte mais louca? Boa parte já tinha comprado o Stallion Soda no primeiro lote. Muitos nem tinham completado 30 dias, e já lotava a minha caixa de entrada. Um me mandou uma foto do pau 3 polegadas maior, medido com régua.
+E a parte mais louca? Boa parte já tinha comprado o Stallion Soda no primeiro lote. Muitos nem tinham completado 30 dias, e já lotava a minha caixa de entrada. Um me mandou uma foto da rola 3 polegadas maior, medida com régua.
 
 Outro contou que a esposa, que dormia de costas pra ele há 6 anos, agora acorda ele às 3 da manhã pra sentar com força, esguichando na cama feito uma garota de 20. Um de 68 anos escreveu que fodeu a esposa de quatro por 40 minutos sem amolecer, e foi ela quem implorou pra parar.
 
@@ -170,7 +172,7 @@ Um pênis mais volumoso, o retorno da ereção, o aumento da libido. Mas vou ser
 
 A lama volta a assentar, e em 90 dias você estará de volta a esta página. Se você quiser apenas testar, existe o kit com 2 frascos, por $79, para 60 dias. Sinceramente, esse é o mínimo.
 
-Você vai sentir o seu pau ficando mais cheio na primeira semana, e a sua ereção matinal voltando, mas 30 dias são apenas uma amostra, não um tratamento. Olha, quanto antes você dissolver a lama, mais esponja viva sobra pra reconstruir. Se você pode pagar mais, pague mais pelo seu próprio pau.
+Você vai sentir o seu cacete ficando mais cheio na primeira semana, e a sua ereção matinal voltando, mas 30 dias são apenas uma amostra, não um tratamento. Olha, quanto antes você dissolver a lama, mais esponja viva sobra pra reconstruir. Se você pode pagar mais, pague mais pelo seu próprio pau.
 
 [Dana White]
 
@@ -188,13 +190,13 @@ Além disso, você é convidado pessoalmente pra um fim de semana em Las Vegas, 
 
 Se você é casado, traz a sua mulher. No sábado vocês sentam na primeira fila do octógono, do lado da minha cadeira, e se ela não for fã de luta, vocês somem no cassino com os 5 mil, ou jantam no melhor restaurante da Strip, mesa com vista, vinho que ela escolher, na minha conta. Depois, a festa é no meu camarote, e o que acontecer entre vocês dois atrás da porta da suíte, com esse pau novo, não é da conta de ninguém além de vocês.
 
-Se você é solteiro, vem sozinho que eu garanto o resto: uma ring girl gostosa de 28 anos cuidando de você a estadia inteira, e o melhor clube de stripper da cidade na minha conta. Imagina ver o sol nascer sobre a Strip da sacada do Cosmopolitan, fodendo essa novinha dobrada na grade, com o pau novo enterrado fundo nela, enquanto ela implora pra não parar e os caras da torre do lado assistem de binóculo. Parece bom demais pra ser verdade? Escuta o último sortudo que aproveitou tudo isso.
+Se você é solteiro, vem sozinho que eu garanto o resto: uma ring girl gostosa de 28 anos cuidando de você a estadia inteira, e o melhor clube de stripper da cidade na minha conta. Imagina ver o sol nascer sobre a Strip da sacada do Cosmopolitan, fodendo essa novinha dobrada na grade, com a rola nova enterrada fundo nela, enquanto ela implora pra não parar e os caras da torre do lado assistem de binóculo. Parece bom demais pra ser verdade? Escuta o último sortudo que aproveitou tudo isso.
 
 [Depoimento — Ganhador da Promo em Vegas]
 
 Dana, seu filho da puta, eu tenho que te agradecer. A primeira fila, a suíte, os 5 mil no cassino, a festa. Insano, cara. Mas o que me pegou foi a Nicole, a ring girl loira de 28 que você mandou pra mim. Ela entrou na minha suíte na primeira noite só de roupão, disse que o senhor White tinha mandado ela cuidar de mim, e eu nem quis saber do clube de stripper.
 
-Fodi ela na sacada com o sol nascendo sobre a Strip, dobrada na grade, até as pernas dela cederem e eu ter que segurar pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Dois caras da torre do lado assistiram tudo de binóculo, e eu nem me importei. A vida inteira eu fui o cara do binóculo. Ali eu estava provando o verdadeiro sabor da vida, e ela tem gosto de buceta bem cuidada.
+Fodi ela na sacada com o sol nascendo sobre a Strip, dobrada na grade, até as pernas dela cederem e eu ter que segurar pelos quadris. 3 dias, 3 noites, ela não saiu da suíte uma vez. Dois caras da torre do lado assistiram tudo de binóculo, e eu nem me importei. A vida inteira eu fui o cara do binóculo. Ali eu estava provando o verdadeiro sabor da vida, e ela tem gosto de buceta de capa de revista, apertada, cheirosa.
 
 Tenho 61 anos e fazia 4 anos que não ficava duro sem pílula. Foi o melhor fim de semana da minha vida, e só aconteceu por causa do Stallion Soda.
 
@@ -202,7 +204,7 @@ Tenho 61 anos e fazia 4 anos que não ficava duro sem pílula. Foi o melhor fim 
 
 Mas entenda: só os primeiros 20 levam tudo isso. 6 frascos pagos por mim, reembolso total instantâneo, zero do seu bolso, mais o fim de semana em Vegas.
 
-Se você não estiver entre os primeiros 20, ainda sai com o negócio da sua vida. Em vez de pagar $147 por frasco, o que daria $882, você vai pagar $294. $49 por frasco, 66% de desconto sobre o menor preço que a gente já cobrou. Esse é o negócio.
+Vou ser direto com você. Se você não estiver entre os primeiros 20, ainda sai com o negócio da sua vida. Em vez de pagar $147 por frasco, o que daria $882, você vai pagar $294. $49 por frasco, 66% de desconto sobre o menor preço que a gente já cobrou. Esse é o negócio.
 
 ## Bonus
 
@@ -258,7 +260,7 @@ Veja a sua ereção matinal dando oi pra você de novo. Sinta o seu membro ficar
 
 [Dana White]
 
-E se isso não acontecer, aí entro eu. Se por qualquer motivo você não recuperar ereções rígidas nas primeiras 4 semanas, se não sentir um desejo sexual insaciável pela sua esposa, se não satisfizer ela toda noite com sexo intenso e selvagem, ou até se não gostar da cor do frasco, eu devolvo cada centavo do seu dinheiro, e você fica com todas as gomas e frascos restantes.
+Vamos ser honestos: a pior humilhação que um homem pode passar é ver frustração nos olhos da mulher que ele mais ama. Ninguém merece isso. E se isso não acontecer, aí entro eu. Se por qualquer motivo você não recuperar ereções rígidas nas primeiras 4 semanas, se não sentir um desejo sexual insaciável pela sua esposa, se não satisfizer ela toda noite com sexo intenso e selvagem, ou até se não gostar da cor do frasco, eu devolvo cada centavo do seu dinheiro, e você fica com todas as gomas e frascos restantes.
 
 E mais: eu te mando $200 a mais direto pra sua conta, só pelo trabalho de ter testado. Fica com os frascos, fica com os $200. É assim que eu tenho certeza. Eu sou o cara que processa gente por esporte, e eu estou me obrigando por contrato a te pagar se isso não funcionar.
 
