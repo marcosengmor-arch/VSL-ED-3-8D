@@ -1,4 +1,4 @@
-# PROMPT — TRADUÇÃO DE VSL DE ED (PT-BR → EN-US NATIVO) · v3 · VSL 3 Stallion Soda Ritual · 17/11/2026
+# PROMPT — TRADUÇÃO DE VSL DE ED (PT-BR → EN-US NATIVO) · v3.1 · VSL 3 Stallion Soda Ritual · 17/11/2026 · fonte: docx "Stallion Soda 4" · literal
 
 > v3 = o prompt genérico v2.1 (seções 1 a 14, intactas) com a **camada da VSL 3** na frente (seção 0, expandida em 0.1 a 0.8). A camada manda: onde a VSL 3 fixa um termo, uma voz ou uma frase-âncora, isso vale sobre a regra genérica. Fonte da tradução: o docx final "Stallion Soda 3" (17/11), bloco a bloco. Toda menção a Bull Soda Rise, Goat Honey ou Mike Tyson nas seções 1 a 14 é exemplo, nunca regra.
 
@@ -9,7 +9,7 @@
 ```
 PRODUTO:            Stallion Soda (goma; "goma do garanhão" → the stallion gummy; "gummy do cavalo" → the horse gummy)
 TRUQUE / RITUAL:    Stallion Soda Ritual (fica em inglês em toda ocorrência). "Ritual da pasta salgada do garanhão" / "pasta salgada do garanhão" / "pasta do garanhão" → the Stallion Salt Paste Ritual / the stallion salt paste / the stallion paste. "Pasta salgada" sozinha → the salt paste. "Desafio da pasta do garanhão" → the Stallion Paste Challenge.
-GIMMICK DO PROBLEMA: lama cavernosa → cavernous mud (fixo). Ciclo: lama → mud · barro / barro seco → clay / dried clay · placa → plaque · tijolo → brick. "Crosta de castração" → castration crust. "Lama tóxica" → toxic mud. "Esponja" → the sponge.
+GIMMICK DO PROBLEMA: lama cavernosa → cavernous sludge (fixo, decisão do Marcos em 17/11). Ciclo: lama → sludge · lama seca / barro / barro seco → dried sludge / clay · placa → plaque · tijolo → brick. "Crosta de castração" → castration crust. "Lama tóxica" → toxic sludge. "Lama no fundo de um cocho" → sludge at the bottom of a trough. "Esponja" → the sponge.
 UNIVERSO:           haras de Lexington, Kentucky; garanhão reprodutor Percheron de 25 anos; o cocho, o bloco de sal, o tratador; o rancho do Don no Arizona; o octógono do UFC.
 APRESENTADOR:       Dana White (dono/CEO do UFC, 57; a cara e a voz do produto; NÃO é médico, ver 0.3)
 NARRADOR MÉDICO:    Dr. Drew Pinsky (tese, MUS, lab, pitch, bônus, FAQ)
@@ -187,7 +187,8 @@ Regras de aplicação:
 
 ### 0.8 Plano de rodadas, fonte e formato
 
-- **Fonte:** o docx final "Stallion Soda 3" (17/11). Nada de outra versão.
+- **Fonte:** o docx final "Stallion Soda 4" (17/11). Nada de outra versão.
+- **TRADUÇÃO LITERAL (ordem do Marcos, 17/11):** frase a frase, fiel, sem trocar sentido. Toda cena (gozar, revirar os olhos, arranhar a bancada, gozar 3 vezes, esguichar) sai como está. Não trocar frase do Marcos por outra frase, não aumentar, não cortar, não resumir, não "melhorar". O mesmo número de frases e de parágrafos. A única liberdade é a que o idioma exige (seção 7) e a rotação de palavra da 0.4. A meta de −8 a −12% da seção 13 é consequência natural do inglês, nunca motivo pra cortar: se uma frase do PT não tem par no EN, está errado.
 - **Rodadas (11):** Lead 01 · Lead 02 · Lead 03 · Background Story · Emotional Story · Discovery Story · Marketing Thesis (MUP + MUF) · Solution Mechanism (MUS + ingredientes + lab) · Product Build Up · Big Offer (apresentação + pitch + checkout + bônus + garantia) · Close + FAQ. Uma rodada por mensagem, na ordem; o usuário pode pedir duas.
 - **Modo roteiro ligado por padrão nesta VSL:** rubricas de cena entre parênteses, colchetes ou asteriscos (ex.: *(Phoenix Marie na cozinha, de biquíni...)*, [Depoimento 05] - Tela dividida..., ["0:00"], [MONITOR: ...]) ficam **em PT-BR, sem traduzir**, na mesma posição. Rótulos de fala em PT ficam (Depoimento 01 — Wade, 58, bombeiro aposentado de Tucson; Ring girl, 30 anos; Mollie, Ex Esposa do Don Frye; Esposa, 4 da manhã; Ganhador da Promo em Vegas; Apresentador de Jornal; Ex-Revisor da FDA; CEO farmacêutico, voz ao telefone). Nomes próprios dentro deles, grafia original.
 - **Título do artifact:** `Copy VSL EN-US — Stallion Soda — [bloco]`.
@@ -651,7 +652,7 @@ Inglês falado corre mais curto que português. A tradução fiel deve sair **8 
 - [ ] No chat, em PT-BR, com as seis seções, "Nenhum" onde não houver?
 
 **Parte 3 — Camada da VSL 3 (seção 0)**
-- [ ] "cavernous mud" e o ciclo mud / clay / brick em toda ocorrência?
+- [ ] "cavernous sludge" e o ciclo sludge / clay / brick em toda ocorrência?
 - [ ] "Dissolve. Hydrate. Rebuild. Protect." nesta ordem?
 - [ ] As frases-âncora de 0.1 e as expressões HoneyFil de 0.2 idênticas?
 - [ ] Rotação pela função da frase (0.4): cock na potência, dick na dor, erection na função, manhood ≤ 3, shaft ≤ 3, tool na ferramenta? Dana com "Bobby" na intimidade; Don sem gíria jovem (0.3)?
