@@ -1,6 +1,6 @@
 # Copy VSL EN-US — Stallion Soda — VERSÃO COMPLETA ENXUTA (17/11)
 
-> Proposta de corte Nível 1 aplicada sobre a tradução fiel dos 11 blocos (EN_01–EN_11). Em **negrito**. o que foi reescrito; cortes puros só saíram. Estrutura intacta: nenhum beat. prova. depoimento ou cena removido. Rótulos de fala em PT. Só fala contada. 220 ppm (ritmo efetivo da BSR).
+> Proposta de corte Nível 1 aplicada sobre a tradução fiel dos 11 blocos (EN_01–EN_11). Em **negrito**, o que foi reescrito; cortes puros só saíram. Estrutura intacta: nenhum beat, prova, depoimento ou cena removido. Rótulos de fala em PT. Só fala contada, 220 ppm (ritmo efetivo da BSR).
 
 | Bloco | Antes | Depois | Δ |
 |---|---|---|---|
