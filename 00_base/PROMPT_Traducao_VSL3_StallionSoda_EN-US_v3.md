@@ -89,12 +89,12 @@ BÔNUS / GARANTIA:   Stallion Guarantee (fica) · Manual Johnny Sins: Como Usar 
 
 ### 0.3 Vozes da VSL 3 (encaixe na seção 9; onde houver conflito, vale esta tabela)
 
-- **Dana White — apresentador e dono do produto (tipo novo).** Não é narrador médico. Voz de dono do UFC: direto, agressivo, patriota, palavrão livre quando o PT traz ("filhos da puta" → "sons of bitches"; "mandei se foder" → "told them to go fuck themselves"; "merda nenhuma" → "shit"; "careca" → "the bald guy"). Contrações sempre, frases curtas, "Look", "Listen", "Here's the thing", "Let me tell you something". Diz **dick**, nunca cock. Chama o Secretário de Saúde de **"Bobby"** quando fala com proximidade ("Liguei pro Presidente Trump e pro Bobby Kennedy" → "I called President Trump and Bobby Kennedy") e de **"Robert F. Kennedy Jr."** só na apresentação formal do clipe. Dinheiro na boca dele pode ir em gíria: "5 mil em dinheiro vivo" → "5 grand in cash"; "100 milhões do meu próprio bolso" → "$100 million out of my own pocket". Idade: 57.
-- **Dr. Drew Pinsky — narrador médico.** Registro de rádio noturno, franco, de homem pra homem: diz dick, fuck, go soft, come; termo médico só na frase do estudo (corpus cavernosum, type III collagen, MRI, IIEF só se o PT disser), e na frase seguinte volta pra "the sponge" e "your dick". "Vou ser direto com você" → "I'm gonna be straight with you". Nunca bro, nunca cock. No pitch e nos bônus mantém a mesma voz, não vira locutor.
-- **Don Frye — confessor.** Voz de cowboy de 61, gruff, frases curtas, vocativo "Dana" frequente, palavrão de homem velho sem gíria jovem: "filho da puta" → "son of a bitch"; "desgraçado" → "bastard"; "Puta merda" (na boca do Dana pra ele) → "Holy shit". "A minha ferramenta" → "my tool"; "o meu pau" → "my dick"; "rola" → "dick" (nunca cock na boca dele). Mantém os termos de luta: "trocando soco" → "trading punches"; "levei 50 socos" → "took 50 punches"; "bater na lona" → "hit the canvas".
+- **Dana White — apresentador e dono do produto (tipo novo).** Não é narrador médico. Voz de dono do UFC: direto, agressivo, patriota, palavrão livre quando o PT traz ("filhos da puta" → "sons of bitches"; "mandei se foder" → "told them to go fuck themselves"; "merda nenhuma" → "shit"; "careca" → "the bald guy"). Contrações sempre, frases curtas, "Look", "Listen", "Here's the thing", "Let me tell you something". Rotação pela função da frase (0.4): dick na dor, cock no benefício, manhood só na missão e na garantia. Chama o Secretário de Saúde de **"Bobby"** quando fala com proximidade ("Liguei pro Presidente Trump e pro Bobby Kennedy" → "I called President Trump and Bobby Kennedy") e de **"Robert F. Kennedy Jr."** só na apresentação formal do clipe. Dinheiro na boca dele pode ir em gíria: "5 mil em dinheiro vivo" → "5 grand in cash"; "100 milhões do meu próprio bolso" → "$100 million out of my own pocket". Idade: 57.
+- **Dr. Drew Pinsky — narrador médico.** Registro de rádio noturno, franco, de homem pra homem: diz dick, fuck, go soft, come; termo médico só na frase do estudo (corpus cavernosum, type III collagen, MRI, IIEF só se o PT disser), e na frase seguinte volta pra "the sponge" e "your dick". "Vou ser direto com você" → "I'm gonna be straight with you". Nunca bro. Rotação pela função (0.4): dick na dor, cock no benefício, erection e shaft no mecanismo. No pitch e nos bônus mantém a mesma voz, não vira locutor.
+- **Don Frye — confessor.** Voz de cowboy de 61, gruff, frases curtas, vocativo "Dana" frequente, palavrão de homem velho sem gíria jovem: "filho da puta" → "son of a bitch"; "desgraçado" → "bastard"; "Puta merda" (na boca do Dana pra ele) → "Holy shit". "A minha ferramenta" → "my tool"; "o meu pau" na dor → "my dick"; "rola / cacete" no benefício (dia 4, a ring girl, a fita) → "cock". Mantém os termos de luta: "trocando soco" → "trading punches"; "levei 50 socos" → "took 50 punches"; "bater na lona" → "hit the canvas".
 - **Mollie — parceira (ex-esposa).** Contida, digna, explícita no que descreve (squirt, on all fours, every inch, hooked), no máximo um palavrão por fala. "Carne morta" → "dead meat". "Promete que não vai me julgar?" → "Promise you won't judge me?"
 - **Ring girl de 30 — parceira nova.** Voz de mulher jovem e crua: **cock** nas cenas ("pressing that cock against my ass", "his cock got thicker and longer week after week"), "Jesus Christ", "Que se danem" → "Screw them". "Esse é o meu homem." → "That's my man."
-- **Atrizes (Phoenix Marie, Cory Chase, Brandi Love, Kendra Sunderland, Charlotte Elise Fox, a atriz pornô do set):** regra 4.3 e seção 9: cock nas cenas, dick quando falam do problema do espectador. "Que se fodam" → "Fuck them." "Depois me agradece daquele jeitinho especial" → "and thank me later in that special little way only you know how."
+- **Atrizes (Phoenix Marie, Cory Chase, Brandi Love, Kendra Sunderland, Charlotte Elise Fox, a atriz pornô do set):** regra 0.4: cock nas cenas e nos benefícios, dick quando falam do problema do espectador. "Que se fodam" → "Fuck them." "Depois me agradece daquele jeitinho especial" → "and thank me later in that special little way only you know how."
 - **Lendas do UFC (Coleman, Couture, Liddell) e celebridades (Lundgren, Van Damme, Gibson, Clooney, Douglas):** homem público de 56 a 82, cru moderado, sem gíria jovem. Apelidos ficam: The Hammer, Captain America, The Iceman, The Predator. "O martelo voltou a bater" → "The Hammer is swinging again". "Os Mercenários" → The Expendables. "Rocky IV" fica.
 - **Rosie Huntington-Whiteley — parceira celebridade:** voz da Mollie com um grau a mais de calor ("I cried from missing him", "I fired the trainer the next day").
 - **Homens comuns (Wade, Sargento Ray, Dale, Gary, Depoimentos 05/06):** fala de gente comum, sem vocabulário de narrador. Ray com cadência militar ("like a work order", "I served this country"). Gary: "I'm a plumber, 52, Kansas".
@@ -102,19 +102,28 @@ BÔNUS / GARANTIA:   Stallion Guarantee (fica) · Manual Johnny Sins: Como Usar 
 - **Institucionais (RFK Jr. no clipe, Ex-Revisor da FDA, CEO farmacêutico, Dr. Nathan Holloway, Dr. Oz, Dra. Annika Ackerman):** registro institucional, termos corretos, sem palavrão. A Dra. Annika pode brincar ("I pretend I don't notice"), nunca xingar. O CEO é frio e ameaçador.
 - **Tucker Carlson / Apresentador de Jornal:** telejornal, declarativo, sem palavrão: "perdendo a rigidez" → "losing their rigidity"; "tentativa de assassinato" → "assassination attempt".
 
-### 0.4 Rotação de vocabulário (a copy PT rotaciona pau / cacete / rola / ferramenta; o EN rotaciona assim)
+### 0.4 Rotação de vocabulário (ESPELHA A HONEYFIL EM INGLÊS e sobrepõe a regra 4.3)
 
-| PT-BR | EN-US |
-|---|---|
-| pau | dick (padrão em todas as vozes); cock só na atriz / ring girl em cena (regra 4.3) |
-| cacete | dick nas vozes masculinas, no Dana e no Dr. Drew; cock na atriz / ring girl em cena |
-| rola | dick nas vozes masculinas; cock na atriz / ring girl em cena |
-| ferramenta | tool ("my tool", "a tool that won't work"); em Earl, equipment |
-| amigão | your buddy / your little guy |
-| pênis (frase de estudo, Dra. Annika, Dr. Oz) | penis |
-| membro (na garantia, voz do Dana) | your dick (nunca "member") |
+Contagem na HoneyFil original (EN): cock 39 · erection 33 · dick 8 · manhood 5 · penis 4 · shaft 3 · tool 2 · hard-on / wood / boner 1 cada. "Cock" é a palavra padrão de potência e benefício em qualquer voz; "dick" é a palavra da dor e da confissão; "erection" é a palavra da função; "manhood" só na missão e na garantia; "shaft" no mecanismo; "tool" no homem comum. A rotação PT (pau / cacete / rola / ferramenta) sai assim:
 
-A rotação do PT não cria palavra nova em inglês: o inglês já rotaciona com dick / cock / tool / hard-on / wood. Nunca use member, manhood, johnson, rod, shaft fora de uma frase do PT que peça isso.
+| Função da frase no PT | EN-US | Exemplo |
+|---|---|---|
+| Potência, tamanho, benefício, cena (qualquer voz: atriz, ring girl, Dana, Dr. Drew, depoimentos) | **cock** | "his cock got thicker and longer week after week", "a thick, veiny cock", "8, 9 inches of cock", "say goodbye to a soft cock" |
+| Dor, humilhação, o problema, a confissão | **dick** | "a dead dick", "my dick stayed dead", "I wanted my dick back", "a man with a dead dick", "your dick got locked up at 15" |
+| Função, mecanismo, prova, laudo | **erection** | "a real erection is blood", "lost his erection mid-take", "spontaneous erection on waking", "erection problems" |
+| Missão e garantia, na voz do Dana | **manhood** (no máximo 3 vezes na VSL inteira) | "get their manhood back", "you either get your manhood back or you walk away with $200" |
+| Mecanismo na voz do Dr. Drew (quando o PT diz "cacete / rola" e a frase é hidráulica) | **shaft** (no máximo 3 vezes) | "blood entering your shaft", "your iron-hard shaft" |
+| "ferramenta" (Don, Dana, depoimentos) | **tool** / em Earl, **equipment** | "my tool never let me down", "my tool even got bigger" |
+| "pênis" (estudo, Dra. Annika, Dr. Oz, modo de uso) | **penis** | "90% of final penis size is set before 21" |
+| "ereção matinal" / "acordar duro" | **morning wood** / **wake up hard** | "wake up with morning wood", "a hard-on I hadn't felt in 15 years" |
+| "amigão" | your buddy / your little guy | |
+| "membro" (garantia) | your cock / your dick conforme a função | nunca "member" |
+
+Regras de aplicação:
+- A escolha é **pela função da frase**, não pela palavra PT. "Pau" na frase de dor é dick; "pau" na frase de benefício é cock; "cacete / rola" seguem a mesma lógica.
+- Meta por rodada: nas leads e no Big Offer, cock domina; na Emotional e na Tese (problema), dick domina; na Tese (função) e no MUS, erection e shaft entram; no Build Up, cock e dick se alternam conforme o beat (dor → prova).
+- Palavras permitidas e nada além: cock, dick, erection, manhood (3x), shaft (3x), tool, equipment (Earl), penis (clínico), hard-on, wood, boner (1 a 2x, em fala). Nunca: member, johnson, rod, junk, package (só "6-bottle package"), thing como eufemismo.
+- Teste: leia a frase em voz alta. Frase de homem se gabando → cock. Frase de homem com vergonha → dick. Frase de médico explicando → erection / shaft. Frase de dono do produto prometendo → manhood (raro).
 
 ### 0.5 Glossário do universo da VSL 3 (soma à seção 8.4)
 
@@ -645,7 +654,7 @@ Inglês falado corre mais curto que português. A tradução fiel deve sair **8 
 - [ ] "cavernous mud" e o ciclo mud / clay / brick em toda ocorrência?
 - [ ] "Dissolve. Hydrate. Rebuild. Protect." nesta ordem?
 - [ ] As frases-âncora de 0.1 e as expressões HoneyFil de 0.2 idênticas?
-- [ ] Dana com dick e "Bobby"; Dr. Drew sem cock; Don sem gíria jovem; ring girl e atrizes com cock em cena (0.3 e 0.4)?
+- [ ] Rotação pela função da frase (0.4): cock na potência, dick na dor, erection na função, manhood ≤ 3, shaft ≤ 3, tool na ferramenta? Dana com "Bobby" na intimidade; Don sem gíria jovem (0.3)?
 - [ ] Haras: stud farm, groom, stud fee, salt block, feed trough, mare (0.5)? UFC: the Octagon, hit the canvas, tap out, rematch (0.6)?
 - [ ] Rubricas e rótulos de fala em PT-BR, nomes próprios na grafia original (0.8)?
 - [ ] Incoerências entre blocos sinalizadas no relatório, não corrigidas (0.8)?
