@@ -13,7 +13,7 @@
 | Big Offer | 4.594 | 3.930 |
 | Close + FAQ | 1.877 | 1.529 |
 | **Corpo** | **18.637** | **14.957** |
-| Lead 01 / 02 / 03 | 1.331 / 1.595 / 1.287 | 1.169 / 1.276 / 1.132 |
+| Lead 01 / 02 / 03 | 1.331 / 1.595 / 1.287 | 1.169 / 1.223 / 1.132 |
 
 ---
 
@@ -852,25 +852,25 @@ Se você quer tudo isso, fica comigo e assiste à apresentação do Dana White, 
 
 ---
 
-## Lead 02 (1.595 → 1.276)
+## Lead 02 (1.595 → 1.223)
 
 [Phoenix Marie]
 
 Que se dane, vou revelar o ritual da pasta salgada do garanhão usado pelos veteranos do UFC, que faz um pau de 58 anos ficar de pé a noite inteira dentro de uma buceta e não cair nem depois de inundar lá dentro.
 
-Hoje vou fazer ao vivo o "desafio da pasta do garanhão" no cacete do meu vizinho tarado que fica me espiando todo dia pela janela. E se você não aguenta 5 minutos, ou nem levanta mais, presta bastante atenção.
+Hoje vou fazer ao vivo o "desafio da pasta do garanhão" no cacete do meu vizinho tarado que me espia todo dia pela janela. E se você não aguenta 5 minutos, ou nem levanta mais, presta atenção.
 
 É uma mistura caseira superdiscreta que você prepara em 5 minutos em casa, com bicarbonato de sódio, sal celta e mais dois ingredientes. Uma pitada embaixo da língua por 30 segundos, até arder e a boca encher de água, e pronto. No segundo dia, você acorda com a rola tão dura que levanta o lençol, e nunca mais precisa encarar um médico.
 
 É o ritual secreto que as forças armadas dos EUA e o Dana White desenvolveram pra acabar com a moleza das lendas aposentadas do UFC. Mas desde que vazou pros sets pornô, os paus dos atores que gravam comigo ficaram mais grossos, cheios de veias, iguais aos de um cavalo. Johnny Sins e Mick Blue vão querer minha cabeça, mas é por causa dessa pasta que eles têm um tronco de 8, 9 polegadas e gozam 3 vezes por sessão depois dos 50. Sem pílula, sem bomba, sem cirurgia. O cacete deles pulsa mais forte aos 60 do que o de qualquer namorado que eu tive aos 20.
 
-Passei a carreira inteira obcecada por uma coisa só: ser socada por homens que performam como animais e descobrir o que eles fazem pra isso acontecer. E acredite, não tem nada a ver com idade, genética ou injeção de testosterona. Coloque uma pitada dessa pasta debaixo da língua e você vai foder a noite inteira, esticando ela tão fundo que ela morde o travesseiro, e até a vadia de 22 anos mais gostosa da sua cidade vai implorar pra você ir mais devagar antes de esguichar em você de novo.
+Passei a carreira inteira obcecada em descobrir o que esses homens fazem pra foder como animais. E acredite, não tem nada a ver com idade, genética ou injeção de testosterona. Coloque uma pitada dessa pasta debaixo da língua e você vai foder a noite inteira, esticando ela tão fundo que ela morde o travesseiro, e até a vadia de 22 anos mais gostosa da sua cidade vai implorar pra você ir mais devagar antes de esguichar em você de novo.
 
 Não acredita em mim? Então vou te mostrar ao vivo, e se não funcionar com você, eu prometo que vou até sua casa e te pago o melhor boquete da sua vida.
 
 O sortudo de hoje é o Walt, de 58 anos, meu vizinho tarado que me secava todo dia pela janela enquanto eu andava só de calcinha pela casa. Semana passada eu convidei ele pra entrar. Tirei a roupa dele, deitei ele na minha cama, sentei na cara dele com a buceta pingando, mas quando fui sentar no pau dele, escapou. Parecia que eu estava sentando num macarrão cozido. Ali mesmo ele me confessou que não ficava duro há três anos.
 
-Mas depois que o Johnny e o Mick me contaram o segredo sujo deles, decidi testar hoje com o Walt. E pra deixar o desafio mais interessante, chamei minha amiga Cory Chase, a MILF mais assistida do Pornhub. Se você quer voltar a ser o homem que faz as pernas dela tremerem, continua assistindo, porque ela vai testar esse ritual ao vivo.
+Mas depois que o Johnny e o Mick me contaram o segredo sujo deles, decidi testar hoje com o Walt. E chamei minha amiga Cory Chase, a MILF mais assistida do Pornhub. Se você quer voltar a ser o homem que faz as pernas dela tremerem, continua assistindo, porque ela vai testar esse ritual ao vivo.
 
 [Cory Chase]
 
@@ -878,7 +878,7 @@ Agora vamos pra parte que importa. Eu vou provar na sua frente o segredo que tod
 
 Esse é o vizinho da Phoenix, de 58 anos. Chegou aqui mole, com 5 polegadas e 3 anos sem uma ereção. Ele vai sair deste quarto com uma ferramenta que não cabe na cueca que trouxe, e com a minha buceta e a da Phoenix marcadas nele.
 
-Enquanto o ritual faz efeito na rola dele, vou te mostrar como homens comuns estão ganhando de 3 a 4,2 polegadas em menos de 12 dias e durando mais de 60 minutos de sexo selvagem, com a esposa gritando e esguichando 3 vezes numa noite. Todo dia eu recebo vídeos de caras acima de 40 se acabando com mulheres de 20, com os paus enormes que não tinham mês passado. Isso é o novo dia a dia da indústria pornô, revelado agora pra você. Nós recebemos ofertas altas, até ameaças, pra não revelar isso de graça. Que se fodam.
+Enquanto o ritual faz efeito na rola dele, vou te mostrar como homens comuns estão ganhando de 3 a 4,2 polegadas em menos de 12 dias e durando mais de 60 minutos, com a esposa gritando e esguichando 3 vezes numa noite. Todo dia eu recebo vídeos de caras acima de 40 se acabando com mulheres de 20, com os paus enormes que não tinham mês passado. Nós recebemos ofertas altas, até ameaças, pra não revelar isso de graça. Que se fodam.
 
 Eu casei com um homem normal, 51 anos e 6 polegadas, e nunca me acostumei. Eu gozava horrores no set, derretendo nos braços de homens que me quebravam ao meio, e em casa ou ele gozava em 5 minutos ou broxava em 10. Eu fingia que gozava pra ele parar, ele sabia, e a gente quase se divorciou por isso.
 
@@ -892,9 +892,9 @@ Mas não exagere na dose. Alguns homens dobraram e tomaram mais de uma vez por d
 
 Meu vizinho safado está prestes a descobrir isso com nós duas. Oh meu Deus, olha como o pau dele já está duro e marcando. Ficou enorme. Cory, vem provar.
 
-Vou te mostrar agora como aguentar em pé por horas, duro como aço, e dobrar o tamanho do seu cacete pra nunca mais se encolher no vestiário. E se gozar nos primeiros 20 minutos, o sangue continua entrando com tanta força que você emenda a segunda e a terceira rodada com ela ainda tremendo.
+Vou te mostrar como aguentar em pé por horas, duro como aço, e dobrar o tamanho do seu cacete. E se gozar nos primeiros 20 minutos, o sangue continua entrando com tanta força que você emenda a segunda rodada com ela ainda tremendo.
 
-Se você quer 8, 9 polegadas aí embaixo, sem risco e sem ninguém saber, presta atenção: isto nunca foi aberto de graça na internet, não do jeito certo. Quando o vídeo original foi postado, bateu quase 30 milhões de visualizações em menos de uma semana, e o servidor caiu. De lá pra cá vários golpistas divulgaram versões falsas de receita de bicarbonato. Mas eu estou compartilhando o único e verdadeiro ritual com você.
+Se você quer 8, 9 polegadas aí embaixo, sem risco e sem ninguém saber, presta atenção: isto nunca foi aberto de graça na internet, não do jeito certo. O vídeo original bateu 30 milhões de visualizações em uma semana e o servidor caiu. De lá pra cá, golpistas divulgaram versões falsas de receita de bicarbonato. Mas eu estou compartilhando o único e verdadeiro ritual com você.
 
 Presta atenção, porque é o próprio Dana White que monta esse ritual na sua frente. E aviso: este vídeo não tem replay, você só pode assistir uma vez de graça. Se sair da página, vai ter que pagar $97.
 
