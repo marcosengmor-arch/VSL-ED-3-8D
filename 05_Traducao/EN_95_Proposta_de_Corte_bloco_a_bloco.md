@@ -10,7 +10,7 @@
 | Background | 862 | 790 | −70 |
 | Emotional | 1.606 | 1.385 | −220 |
 | Discovery | 1.580 | 1.380 | −200 |
-| Tese (MUP + MUF) | 1.964 | 1.730 | −235 |
+| Tese (MUP + MUF) | 1.939 | 1.705 | −235 |
 | MUS (4 verbos + lab) | 2.567 | 2.215 | −350 |
 | Build Up | 2.015 | 1.765 | −250 |
 | Big Offer | 4.355 | 3.855 | −500 |
@@ -73,7 +73,7 @@ Ficam intactos: 300 exames e "dead from the inside" (§5), 89% com testosterona 
 1. §5: sai "Without it there's no erection." e "It's not desire, it's not lust, it's not love." vira "It's not desire, it's not love." (−12).
 2. §6–8: "And Bayer's glyphosate knows that. Here's what took me 11 weeks to understand with Dana's 300 exams on the table: glyphosate isn't a dumb toxin. It travels through your body looking for one thing. Not the heart, not the liver, not the lungs. Until it finds your dick: the sponge of type III collagen. It sticks to it 14 times harder than to anything else in you. Endocrine Reviews, 1998. Your cock is target number 1." (−25).
 3. §12–13: "Brick doesn't fill. Brick doesn't get hard. Brick doesn't fuck. It just sits there, dry and dead, while you look for someone to blame. Stress. Age. Her. She wants you, but it's your cock that can't anymore. That weight you feel down there when she touches you and nothing happens? That's cavernous sludge." (−15).
-4. §16 (Dana na arena): fica inteiro, agora com Jon Jones (29, USADA/UFC 200, Cialis da internet) e Anderson Silva (40, comissão de Nevada, estimulante da Tailândia) como prova (+60 em 17/11; o corte de −25 previsto aqui cai).
+4. §16 (Dana na arena): fica inteiro, agora com Jon Jones (29, USADA/UFC 200, Cialis da internet) e Anderson Silva (40, comissão de Nevada, estimulante da Tailândia) como prova (+35 em 17/11; o corte de −25 previsto aqui cai).
 5. §19: "A Stanford study proved that over 90% of final penis size is set before 21. After that, it locks. And remember what the Secretary of Health admitted at the White House about boys?" (−15).
 6. §23: sai "It's no coincidence cheating only goes up in this country. Remember Don Frye?" (−15).
 7. §24–25 fundem: "But locked size is just the beginning. The sludge turns the whole sponge into a block of dead clay. And brick is cold. Remember the last time it got up? Lukewarm, not hot. No pulse in her hand. A dick full of blood burns in your hand and pulses on its own. A cock full of clay stays lukewarm and still. She felt that before you did." (−30).
