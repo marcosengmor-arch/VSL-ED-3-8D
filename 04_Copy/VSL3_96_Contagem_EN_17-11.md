@@ -41,3 +41,22 @@ Só fala (sem rótulos de falante, rubricas e títulos). Ritmo EN: 238 palavras/
 | **Stallion Soda 3 (EN)** | **16.729** (17.9–18.2 com lead) | **12.329** (13.5–13.8 com lead) | **75–83 min / $49 aos 57–63** |
 
 Leitura: a VSL 3 em inglês tem +20% de corpo que a Bull Soda Rise e +12% que a IronPulseX; fica 12 a 20 minutos mais longa que elas e chega ao $49 na mesma faixa da Soda Horse (57 min), 20 minutos depois da HoneyFil.
+
+## Minutagem no ritmo efetivo da BSR (220 ppm)
+
+Base: os 3 cortes da BSR no print (PITCH 01_02_38 = 3.758 s, 01_03_10 = 3.790 s, 01_03_55 = 3.835 s) com 13.937 palavras dão 218 a 222 ppm.
+
+| Bloco | Palavras | Termina em (Lead 01) | Termina em (Lead 02) | Termina em (Lead 03) |
+|---|---|---|---|---|
+| Lead | 1.165 / 1.508 / 1.206 | 05:18 | 06:51 | 05:29 |
+| Background | 862 | 09:13 | 10:46 | 09:24 |
+| Emotional | 1.606 | 16:31 | 18:04 | 16:42 |
+| Discovery | 1.580 | 23:42 | 25:15 | 23:53 |
+| Tese | 1.904 | 32:21 | 33:55 | 32:32 |
+| MUS | 2.567 | 44:01 | 45:35 | 44:12 |
+| Build Up | 2.015 | 53:11 | 54:44 | 53:22 |
+| **$49 aparece** | | **01:01:20** | **01:02:54** | **01:01:31** |
+| Big Offer | 4.355 | 01:12:58 | 01:14:32 | 01:13:10 |
+| Close + FAQ | 1.840 | 01:21:20 | 01:22:54 | 01:21:31 |
+
+No padrão de nome da BSR (PITCH no $49): STALLION SODA _ PITCH 01_01_20 (L01) / 01_02_54 (L02) / 01_01_31 (L03). Vídeo total 01:21 a 01:23, contra 01:02:38 a 01:03:55 da BSR (+18 a 19 min).
