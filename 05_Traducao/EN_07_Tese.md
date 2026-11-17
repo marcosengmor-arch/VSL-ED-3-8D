@@ -32,7 +32,7 @@ And it's no coincidence that, since this poison got into American food for good,
 
 [Dana White]
 
-I saw it in my arena. 30, 34-year-old fighters, in their prime, with the testosterone of a horse, the ring girl waiting in the locker room, and their dick failing on the night of the win. It was the same sludge. They eat the same steak Don eats, and the same one you do.
+I saw it in my arena. 30, 34-year-old fighters, in their prime, with the testosterone of a horse, the ring girl waiting in the locker room, and their dick failing on the night of the win. And it's no locker room secret. Jon Jones, at 29, got flagged by USADA before UFC 200 and admitted he was taking Cialis he bought online. Anderson Silva, at 40, told the Nevada commission his positive test came from a sexual enhancer he bought in Thailand. Two of the greatest of all time, and neither one with a cock that worked on its own. It was the same sludge. They eat the same steak Don eats, and the same one you do.
 
 [Dr. Drew Pinsky]
 
