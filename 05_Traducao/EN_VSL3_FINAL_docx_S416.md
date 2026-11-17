@@ -1,6 +1,6 @@
-# VSL 3 — EN FINAL (docx "S416 - Copy VSL 8D - Stallion Soda Ritual - Stallion Soda", 17/11)
+# VSL 3 — EN FINAL (docx "S416 - Copy VSL 8D - Stallion Soda Ritual - Stallion Soda", versão final 17/11)
 
-> Texto exato do docx final ajustado pelo Marcos. Fonte de verdade da versão em inglês.
+> Texto exato do docx final do Marcos. Fonte de verdade da versão em inglês.
 
 Lead 01
 
@@ -103,7 +103,7 @@ But after Johnny and Mick told me their dirty secret, I decided to test it today
 
 [Cory Chase]
 
-Now let's get to the part that matters. I'm gonna prove right in front of you the secret every top porn actor uses to have an 8, 9-inch cock and make a woman come on top of him until the sun comes up. No fingers, no oil, no vibrator. Just this.
+But now let's get to the part that matters. I'm gonna prove right in front of you the secret every top porn actor uses to have an 8, 9-inch cock and make a woman come on top of him until the sun comes up. No fingers, no oil, no vibrator. Just this.
 
 It's gonna fill your mouth with water. Here. So good. Now we just wait for it to kick in.
 
@@ -145,7 +145,6 @@ The original video hit almost 30 million views in less than a week, and the serv
 
 Pay close attention, because it's Dana White himself who fixes this ritual in front of you, and tells you where it comes from. But a warning: this video has no replay, you can only watch it once for free. If you leave the page and try to watch it later, you'll have to pay $97.
 
-<w:pgSz w:h="15840" w:w="12240" w:orient="portrait"/><w:pgMar w:bottom="1440" w:top="1440" w:left="1440" w:right="1440" w:header="720" w:footer="720"/><w:pgNumType w:start="1"/></w:sectPr></w:pPr><w:r w:rsidDel="00000000" w:rsidR="00000000" w:rsidRPr="00000000"><w:rPr><w:rtl w:val="0"/></w:rPr><w:t xml:space="preserve">Now enough talking. Let's test it and see if it works. I'll leave you a clip of the live test now, and right after, production is gonna drop Dana White's video. Watch until the end and then thank me in that special little way only you know how.
 Lead 03
 
 [Brandi Love]
@@ -220,15 +219,14 @@ Now you can say goodbye to a soft, dead dick. Start getting rock hard for hours,
 
 Never again hear "don't worry, it's normal, we'll try another time." Instead, every night: "please, fuck me hard like last time." Gagging, drooling, spreading that tight little ass with both hands for you to come inside.
 
-<w:pgSz w:h="15840" w:w="12240" w:orient="portrait"/><w:pgMar w:bottom="1440" w:top="1440" w:left="1440" w:right="1440" w:header="720" w:footer="720"/><w:pgNumType w:start="1"/></w:sectPr></w:pPr><w:r w:rsidDel="00000000" w:rsidR="00000000" w:rsidRPr="00000000"><w:rPr><w:rtl w:val="0"/></w:rPr><w:t xml:space="preserve">If you want that, pay close attention, because what you're about to see is the video Dana White recorded from the undisclosed location where he shows exactly how to make this stallion salt paste and exposes Pfizer's plan to keep 80% of American men dependent on Viagra by 2029. Let's go.
 Background Story
 [Dana White]
 Hey there, Dana White here. You probably know me from the UFC.
 In 2001 I bought a sport banned in 36 states for $2 million and turned it into the biggest fight company in history. 700 fighters, 170 countries. In 2016 I sold it for $4 billion, and to this day, at 57, I’m the one who runs it.
-In the last few weeks the President offered me, on national television, the job of White House press secretary. I turned it down. I had something more important to do, and that’s why I’m recording this video.
+In the last few weeks the President offered me, on national television, the job of White House press secretary. But I refused. I had something more important to do, and that’s why I’m recording this video.
 I thought I’d already seen everything life can do to a man. Until January of this year. For the last few years, my real obsession has been what happens to a man after he stops fighting.
 UFC legends, Hall of Famers, guys who knocked people out in front of 20,000 people, called me confessing, in a low voice, that they couldn’t get hard for their own wives anymore. Unstoppable in the Octagon, dead in bed.
-And if even they were failing, the working American man was suffering in silence. According to ClinCalc DrugStats, in 5 years Viagra and Cialis prescriptions exploded by over 250%.
+But if even they were failing, the working American man was suffering in silence. According to ClinCalc DrugStats, in 5 years Viagra and Cialis prescriptions exploded by over 250%.
 I wasn’t gonna let an American man like you go soft in bed thinking it’s his age, his stress or his testosterone, while the real cause is hidden somewhere nobody looks. I hadn’t woken up hard in 3 years either. I knew that shame firsthand.
 That’s why I spent $100 million of my own money on a private lab, 20 scientists and a study with 3,000 men, to find out why an American man’s dick stops working after 40, and why nobody has the guts to tell the truth.
 And if you’re a straight man, I’m gonna show you the most important discovery of my life. The Stallion Soda Ritual.
@@ -252,20 +250,19 @@ That’s the only reason Don Frye agreed to have me at his ranch with the camera
 [Dana White - Na casa do Don]
 Don, I came as fast as I could.
 [Don Frye]
-You own the UFC, Dana. You’ve heard it all in this sport. But this I’ve never told anyone.
-I got to 61 being Don Frye, the guy the internet calls testosterone therapy. And still I called you almost crying to tell you my dick hadn’t gotten up in 10 years.
-Let me tell you how a man gets to that point. For 30 years that was my life. Fight, fuck, sleep, ride. My tool never let me down, not once. Until 2012. It didn’t collapse all at once.
+You own the UFC, Dana. You’ve heard it all in this sport. But this I’ve never told anyone. I got to 61 being Don Frye, the guy the internet calls testosterone therapy. And still I called you almost crying to tell you my dick hadn’t gotten up in 10 years.
+But let me tell you how a man gets to that point. For 30 years that was my life. Fight, fuck, sleep, ride. My tool never let me down, not once. Until 2012. It didn’t collapse all at once.
 At first it was just the look. I'd come out of the shower in a towel, and she was already turned the other way, on her phone. I'd lie down, and she'd pull the sheet up to her shoulder with the excuse ready: "Not tonight, Don, I'm tired." And I'd swallow it and pretend everything was fine.
 I had that woman for 20 years, knew the taste of her pussy by heart, and now I was more afraid of her than of any opponent I ever faced in a ring.
 [Dana White - Na casa do Don]
-And did she know what was happening to you?
+But did she know what was happening to you?
 [Don Frye]
 A woman always knows, Dana. I quit my career to watch my daughters grow up, built this ranch with the money from every punch. Trips, gifts, a new horse in the stall. But none of that makes a woman come.
 Then came the blue pill, hidden in the bathroom, 45 minutes staring at the clock, praying she wouldn't fall asleep first. It worked for a while. But the more I took it, the softer I got without it. Makeup for a dick.
 Until the night that broke me. She made dinner and said she had a surprise. I took it before sitting down. When I went upstairs, Mollie was in lingerie, on all fours on the bed. I pulled her panties to the side and put my hand there. Wet. Soaking wet. She arched her back and bit the pillow, waiting.
 But when I pressed the head of my cock against her opening, it bent. Like a damn wet noodle. I tried to push, it slipped out. Two pills in my blood, and it didn't get up. A dead dick on a MILF every man dreams of tasting.
 Mollie stayed still for about 5 seconds, took a deep breath, turned around and sat on the edge of the bed.
-And she looked at me with a look I'd never seen before. It wasn't anger, it was worse: pity and patience, and that hurts more than any punch. She said, "It's okay, Don, we'll try another day." The most castrating sentence I've ever heard.
+She looked at me with a look I'd never seen before. It wasn't anger, it was worse: pity and patience, and that hurts more than any punch. She said, "It's okay, Don, we'll try another day." The most castrating sentence I've ever heard.
 Then the silence. That bedroom silence after a failed night, worse than screaming. How the hell did I fuck two ring girls in one night at my peak and now go soft on top of the only one who mattered?
 [Dana White - Na casa do Don]
 Holy shit, Don. And you didn’t go see anyone?
@@ -276,7 +273,7 @@ But before that came the most humiliating night of my life. The end-of-season pa
 Her by the corral, with her friends, and a 40-year-old fighter somebody brought along, put his arm around her waist and squeezed her ass in a way I hadn't squeezed it in years.
 His hand stayed there 2, 3 seconds. And the worst part? She laughed, looking at him. When you live with a woman for 20 years, you know which smile she gives when she’s wet.
 [Dana White - Na casa do Don]
-And how long had it been since she smiled at you like that?
+But and how long had it been since she smiled at you like that?
 [Don Frye]
 Years. Then she noticed I was watching, the smile died, but the drinks had already given her the courage. She said it loud, for her friends to hear: "This one's got a dick that works. He's more of a man than you." And went back to talking as if I wasn't there.
 I left my own party without saying a word, with everybody watching, feeling 2 inches smaller inside my pants.
@@ -293,7 +290,7 @@ But every story has two sides. I went after Mollie, and she let me record a piec
 [Mollie, Ex Esposa do Don Frye]
 Promise you won’t judge me? I loved Don. 20 years, two daughters. But love doesn’t make a woman come.
 I’d been in a drought for 10 years, dying of desire, because what sat between the legs of the toughest man in this country was dead meat. I’d go come alone in the shower, biting the towel so he wouldn’t hear. That was my marriage.
-And I tried. Lingerie, toys, trips just the two of us. A doctor laughed in my face: "the problem isn't you." Then that fighter showed up at the party, and from the moment I saw the bulge in his pants I'd get wet just looking.
+But I tried. Lingerie, toys, trips just the two of us. A doctor laughed in my face: "the problem isn't you." Then that fighter showed up at the party, and from the moment I saw the bulge in his pants I'd get wet just looking.
 In the barn, he filled me up completely. Every inch. He made me squirt like I hadn’t squirted since I was 25, two hours rock hard, the way Don never did even at his peak.
 I came until I begged him to stop, and when he came, he didn’t go soft. He was ready to go again. I had him come back the next week, and the one after. I got hooked on the cock of a 40-year-old man, inside Don’s ranch. It was the one thing Don couldn’t give me anymore.
 [Dana White - Na casa da Mollie]
@@ -348,16 +345,13 @@ Glyphosate is in men’s food, but it’s in the horses’ food too, in much big
 He breeds a mare at 25 with the same strength he had at 5. Horses don’t get erectile dysfunction. The stallion gets away. Why? Hold on to that question, because its answer is exactly what’s gonna bring yours back.
 Before that, I need you to see what this poison did, millimeter by millimeter, inside you. And nobody in this country explains it better than the renowned Dr. Drew Pinsky.
 Graduated from USC in 1984, professor of medicine and urology specialist, he spent 32 years on the air, on radio and on MTV, taking live calls, night after night, taking live calls from the man who couldn't get it up for his woman, long before the blue pill existed.
-<w:pgSz w:h="15840" w:w="12240" w:orient="portrait"/><w:pgMar w:bottom="1440" w:top="1440" w:left="1440" w:right="1440" w:header="720" w:footer="720"/><w:pgNumType w:start="1"/></w:sectPr></w:pPr><w:r w:rsidDel="00000000" w:rsidR="00000000" w:rsidRPr="00000000"><w:rPr><w:rtl w:val="0"/></w:rPr><w:t xml:space="preserve">Pay attention to every word that follows.
 Marketing Thesis
 
 [Dr. Drew Pinsky]
 
 Thank you, Dana. You already know who did this. Now you need to see what they did inside you. And for that, you need to understand what no doctor ever sat down to explain to you: what your dick is like on the inside.
 
-It's not muscle, it's not bone. It's a sponge. It has a name, corpus cavernosum: full of holes, made of 70% to 80% type III collagen, an elastic protein, with a single job. To soak up blood when you want to fuck, swell to full size, and keep you rock hard until you're done.
-
-And that sponge decides everything.
+It's not muscle, it's not bone. It's a sponge. It has a name, corpus cavernosum: full of holes, made of 70% to 80% type III collagen, an elastic protein, with a single job. To soak up blood when you want to fuck, swell to full size, and keep you rock hard until you're done. And that sponge decides everything.
 
 Whether you get hard tonight when she touches you, or go soft in her hand. Whether she moans, or pats you on the back and says "it's okay." And the size you have when you're hard. Without it there's no erection. It's not desire, it's not lust, it's not love. It's pure mechanics. Sponge locked, dick soft. Period.
 
@@ -377,13 +371,15 @@ She wants you, but it's your cock that can't anymore. That weight you feel down 
 
 And it's no coincidence that, since this poison got into American food for good, erectile dysfunction in men under 40 has more than doubled. It's not today's youth, it's sludge drying earlier and earlier. And Dana saw it up close.
 
-[Dana White - Dana falando olhando pro Drew no consultorio dele]
+[Dana White - Dana falando olhando pro Drew no consultório dele]
 
-I saw it in my arena. 30, 34-year-old fighters, in their prime, with the testosterone of a horse, the ring girl waiting in the locker room, and their dick failing on the night of the win. It was the same sludge. They eat the same steak Don eats, and the same one you do.
+I saw it in my arena. Fighters at 30, in their prime, testosterone of a horse, ring girl waiting in the locker room, and their dick failing on the night of the win.
+
+Jon Jones, at 28, caught before UFC 200 with Cialis bought online. Anderson Silva, at 40, blamed a sex enhancer from Thailand. Two of the greatest ever, neither one hard on his own. Same sludge. Same steak Don eats, same one you do.
 
 [Dr. Drew Pinsky]
 
-Pay attention, because almost no man knows this. A loose sponge grows up to 7 inches. The size yours was made to reach. Except the sludge didn't wait for you to turn 40.
+But pay attention, because almost no man knows this. A loose sponge grows up to 7 inches. The size yours was made to reach. Except the sludge didn't wait for you to turn 40.
 
 A Stanford study proved that over 90% of final penis size is set before 21. After that, it locks. And remember what the Secretary of Health admitted at the White House about boys?
 
@@ -457,11 +453,9 @@ But don't take just my word for it. This is a breeding soundness exam, done in t
 
 He eats 10 times more poison than you, and he doesn't build up dried sludge in his cock. It's not genetics. If there's a body that eats the poison every day and never petrifies the sponge, that body knows how to dissolve the sludge. And that's exactly what I needed to find.
 
-The answer wasn't in a lab. It was with the few men who make fortunes off these horses. The breeders. Dana already told you what this animal is worth: $20, $30 million, $300,000 a stud fee.
+The answer wasn’t in a lab. It was with the few men who make fortunes off these horses. The breeders. Dana already told you what this animal is worth: $20, $30 million, $300,000 a stud fee.
 
-And that's exactly why the owners of the most expensive stallions on the planet keep a secret under lock and key: a salt paste that keeps the stallion hard long past the age he should've stopped.
-
-On the stud farm, that was never feed. It was the $30 million insurance policy. I sat down with the groom who spent 18 years on these farms, and with the vet.
+And the secret Dana told you about, the one they keep under lock and key, was never feed. It was the $30 million insurance policy. I sat down with the groom who spent 18 years on these farms, and with the vet.
 
 It was exactly this salt paste that the 40-year-old fighter fixed in Don's barn before fucking his wife. The same one that keeps the stallion hard at 25, and the same one that breaks down the cavernous sludge medicine swore for 30 years was impossible to dissolve. And that's exactly what I found in the trough.
 
@@ -571,11 +565,10 @@ Now, the 4 ingredients of the Stallion Soda Ritual combined, in the proportion f
 
 ["10:00"] And at 10 minutes, there's no clay left on the tissue. No residue. And look at the sponge underneath: getting its pink color back. That's the Celtic sea salt pulling water back into it.
 
-Now the part that surprised me. We took that same clean tissue and dripped a high concentration of glyphosate on it. Look: it doesn't stick. It runs off. The Pycnogenol left a film on the surface, and the glyphosate can't get through.
+But now the part that surprised me. We took that same clean tissue and dripped a high concentration of glyphosate on it. Look: it doesn't stick. It runs off. The Pycnogenol left a film on the surface, and the glyphosate can't get through.
 
 [Dana White]
 
-<w:pgSz w:h="15840" w:w="12240" w:orient="portrait"/><w:pgMar w:bottom="1440" w:top="1440" w:left="1440" w:right="1440" w:header="720" w:footer="720"/><w:pgNumType w:start="1"/></w:sectPr></w:pPr><w:r w:rsidDel="00000000" w:rsidR="00000000" w:rsidRPr="00000000"><w:rPr><w:rtl w:val="0"/></w:rPr><w:t xml:space="preserve">I'm gonna be straight with you: what you just saw is the end of erectile dysfunction. After that test, I was already convinced. So I took this formula to the first man.
 Product Build Up
 
 [Dana White]
@@ -694,7 +687,7 @@ With that support and 3 months of work by Dr. Drew alongside military scientists
 
 When it was ready, Dr. Holloway called me: "Dana, without your face this becomes just another supplement lost on Google."
 
-And I said I'd only put my name on it on one condition: no predatory pharma pricing. Charge what it costs to make. Period. He agreed. That's how the product that's going into your hands in a minute was born.
+But I said I'd only put my name on it on one condition: no predatory pharma pricing. Charge what it costs to make. Period. He agreed. That's how the product that's going into your hands in a minute was born.
 
 [Dr. Drew Pinsky]
 
@@ -722,7 +715,6 @@ I don't understand how this horse gummy works, but look what it does to my cock.
 
 [Dr. Drew Pinsky]
 
-<w:pgSz w:h="15840" w:w="12240" w:orient="portrait"/><w:pgMar w:bottom="1440" w:top="1440" w:left="1440" w:right="1440" w:header="720" w:footer="720"/><w:pgNumType w:start="1"/></w:sectPr></w:pPr><w:r w:rsidDel="00000000" w:rsidR="00000000" w:rsidRPr="00000000"><w:rPr><w:rtl w:val="0"/></w:rPr><w:t xml:space="preserve">They're not exceptions. They're living proof that virility comes back without a pharmacy and without chemicals, just with this stallion gummy I'm about to introduce to you now.
 Big Offer
 
 [Dr. Drew Pinsky]
